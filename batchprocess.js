@@ -48,17 +48,48 @@ function parseCliArgs(argv = process.argv.slice(2)) {
         short: 'n',
         type: 'boolean',
       },
+      'from-index': {
+        type: 'string',
+      },
     },
   });
 
   if (positionals.length > 1) {
-    throw new Error('Usage: node batchprocess.js [--dry-run] [domain]');
+    throw new Error('Usage: node batchprocess.js [--dry-run] [--from-index N] [domain]');
+  }
+
+  const requestedDomain = positionals[0] || '';
+  const fromIndexRaw = values['from-index'];
+  let fromIndex;
+
+  if (fromIndexRaw !== undefined) {
+    if (requestedDomain) {
+      throw new Error('--from-index cannot be used with a specific domain');
+    }
+
+    fromIndex = Number.parseInt(fromIndexRaw, 10);
+    if (!Number.isInteger(fromIndex) || fromIndex < 1) {
+      throw new Error('--from-index must be a positive integer');
+    }
   }
 
   return {
     dryRun: values['dry-run'] || false,
-    requestedDomain: positionals[0] || '',
+    fromIndex,
+    requestedDomain,
   };
+}
+
+function sliceDomainsFromIndex(domains, fromIndex) {
+  if (fromIndex === undefined) {
+    return domains;
+  }
+
+  if (fromIndex > domains.length) {
+    throw new Error(`--from-index ${fromIndex} is out of range for ${domains.length} host(s)`);
+  }
+
+  return domains.slice(fromIndex - 1);
 }
 
 function resetProfiles({
@@ -308,14 +339,15 @@ async function processHosts(domains, options = {}) {
 }
 
 async function main(argv = process.argv.slice(2), options = {}) {
-  const { dryRun, requestedDomain } = parseCliArgs(argv);
+  const { dryRun, requestedDomain, fromIndex } = parseCliArgs(argv);
   const output = getLogger(options.logger);
-  const domains = loadConfiguredHosts({
+  const configuredDomains = loadConfiguredHosts({
     requestedDomain,
     s3Hosts: options.s3Hosts,
     readFileSync: options.readFileSync,
     hostsFilePath: options.hostsFilePath,
   });
+  const domains = sliceDomainsFromIndex(configuredDomains, fromIndex);
 
   if (domains.length === 0) {
     throw new Error('No hosts to process.');
@@ -368,5 +400,6 @@ module.exports = {
   processHosts,
   resetProfiles,
   runCommand,
+  sliceDomainsFromIndex,
   updateTail,
 };

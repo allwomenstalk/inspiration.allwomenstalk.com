@@ -4,9 +4,11 @@ const assert = require('node:assert/strict');
 const {
   buildHostList,
   getDeploymentCommand,
+  main,
   parseCliArgs,
   processHost,
   processHosts,
+  sliceDomainsFromIndex,
 } = require('../batchprocess.js');
 
 function createLogger() {
@@ -30,8 +32,41 @@ function createLogger() {
 test('parseCliArgs supports a dry-run single-domain execution', () => {
   assert.deepEqual(parseCliArgs(['--dry-run', 'books.allwomenstalk.com']), {
     dryRun: true,
+    fromIndex: undefined,
     requestedDomain: 'books.allwomenstalk.com',
   });
+});
+
+test('parseCliArgs supports resuming from a 1-based index', () => {
+  assert.deepEqual(parseCliArgs(['--from-index', '25']), {
+    dryRun: false,
+    fromIndex: 25,
+    requestedDomain: '',
+  });
+});
+
+test('parseCliArgs rejects combining from-index with a single domain', () => {
+  assert.throws(
+    () => parseCliArgs(['--from-index', '25', 'gardening.allwomenstalk.com']),
+    /--from-index cannot be used with a specific domain/,
+  );
+});
+
+test('sliceDomainsFromIndex returns domains from the requested 1-based offset', () => {
+  assert.deepEqual(
+    sliceDomainsFromIndex(
+      ['one.allwomenstalk.com', 'two.allwomenstalk.com', 'three.allwomenstalk.com'],
+      2,
+    ),
+    ['two.allwomenstalk.com', 'three.allwomenstalk.com'],
+  );
+});
+
+test('sliceDomainsFromIndex rejects indexes beyond the available domains', () => {
+  assert.throws(
+    () => sliceDomainsFromIndex(['one.allwomenstalk.com'], 2),
+    /out of range/,
+  );
 });
 
 test('buildHostList returns a single requested domain', () => {
@@ -185,4 +220,30 @@ test('processHosts continues after a host failure and reports it in the summary'
   assert.equal(summary.failed.length, 1);
   assert.match(errors.join('\n'), /bad\.allwomenstalk\.com/);
   assert.match(errors.join('\n'), /last error line/);
+});
+
+test('main resumes processing from the requested index', async () => {
+  const summary = await main(['--dry-run', '--from-index', '2'], {
+    s3Hosts: [],
+    readFileSync: () => JSON.stringify([
+      { domain: 'one.allwomenstalk.com' },
+      { domain: 'two.allwomenstalk.com' },
+      { domain: 'three.allwomenstalk.com' },
+    ]),
+    writeFileSync: () => {},
+    createLogFileImpl: (domain) => `/tmp/${domain}.log`,
+    appendLogLineImpl: () => {},
+    cleanupSiteDirImpl: () => {},
+    runCommandImpl: async () => {},
+    processHost: undefined,
+    logger: {
+      log() {},
+      error() {},
+    },
+  });
+
+  assert.deepEqual(
+    summary.successful.map((result) => result.domain),
+    ['two.allwomenstalk.com', 'three.allwomenstalk.com'],
+  );
 });
