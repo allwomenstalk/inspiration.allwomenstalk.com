@@ -72,7 +72,7 @@
     "marked": "^5.1.0",
     "moment": "^2.29.4",
     "mongodb": "^5.5.0",
-    "puppeteer": "^22.7.1",
+    "puppeteer": "^24.42.0",
     "showdown": "^2.1.0"
   }
 }
