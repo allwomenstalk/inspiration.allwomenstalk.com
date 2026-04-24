@@ -9,7 +9,7 @@ module.exports = function (item) {
       temp.slug = item.post_name;
       temp.tags = [item.super_categories[0]];
       temp.category = item.super_categories[0]
-      temp.title = item.post_title.replace(/[^a-zA-Z0-9_.-\s'"]*/g,''); //removeing all emoji;
+      temp.title = item.post_title;
       temp.fulldate = item.post_date;
       temp.date = moment(item.post_date).format('MMM DD');
       temp.author = { name: item.author.first_name.replace('_', ''), id: item.author._id };
@@ -33,4 +33,3 @@ function capitalize(word) {
     console.log('word',word)
     return word[0].toUpperCase() + word.substring(1).toLowerCase();
   }
-  
