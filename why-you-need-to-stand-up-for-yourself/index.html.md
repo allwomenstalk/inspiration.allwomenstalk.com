@@ -1,0 +1,72 @@
+---
+title: "Why You Need to Learn to Stand up for Yourself for Girls Who Cower Away ..."
+description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+url: "https://inspiration.allwomenstalk.com/why-you-need-to-stand-up-for-yourself/"
+category: "inspiration"
+last_updated: "2026-05-19"
+---
+
+# Why  You Need to Learn to Stand up for Yourself for Girls Who Cower  Away ...
+
+I'm here to tell you **why you need to stand up for yourself**.
+
+Throughout my journey, there are certain questions I had and then would have to find the answers to. But then there are instances where the answers and lessons come before the question is even thought of. You may not be aware of the problem in the first place, let alone take the necessary steps to fix it. These are the instances in which the right people and situations will come to you when you are ready to learn the lesson. It may take a while for you to wake up to the problem and therefore, the problem will persist until you can see what is causing so much havoc in the first place. It may start with a lingering feeling that you are missing something and everyone knows but you. It may have caused a lot of pain. It may take courage and you would be surprised at what you are capable of with just a little understanding once you realize the problem.
+
+For me, It was learning to stand up for myself. The situation in which I learned to do so was through a job in which I worked for people I wouldn’t even believe existed unless I encountered it for myself. (Although I am no stranger to standing up for myself in close personal relationships, I had to learn how to all over again in a different setting).This job taught me so much about life on a microcosm level. It pointed out a lot of what is wrong with the world. That tiny office was the epitome of what is wrong with the world but couldn’t believe I’d be a part of. And once I learned the truth, I wasn’t a part of it any longer. Along the way, though, I endured much and came out a better person. My perseverance surprised me wholeheartedly while I navigated through this period of my life.
+
+For instance, I never realized I had so much trouble standing up for myself. See, I am really good at understanding why people act the way they do and most of the time it just doesn’t bother me. I see if someone is going through a hard time or having problems of their own, then I would justify their actions with my empathy. I’d think they must be having a bad day and it’ll pass. If they treat me bad along the way, it says more about them than it does about me. Eventually, you have to stand up for yourself, or it will only continue and after a while, it would hurt my feelings. Due to the fact that I knew I’d never treat them like that and after a year of showing dedication to that job and loyalty to those people, you’d think they would have started to treat me with respect, but that is not the case.
+
+This goes back to my previous post where I mentioned people will use that inner critic against you, they will also use your strengths against you also. At one point, after displaying characteristics such as honesty, loyalty, kindness, gratitude, and not to mention the hard work I was putting into that place, my office manager would start to discredit even my personality and all the good things about me. She’d find out I was honest, and then accuse me of lying. She’d find out I was loyal, and then accuse me of not caring about the patients or the office. She’d find out I was kind and would start rumors about me in order for other co-workers to become hostile towards me. She’d notice I developed a technique that works and then hide the materials I’d need to do it again. She’d find out I was hard working, and then piled more work on me while refusing to give me a raise. She’d find out I could handle even all the extra work she’d demand but then watch my every move in order to find just that one thing to complain about and then find me incompetent while degrading me behind closed doors to my boss.
+
+Throughout it all, I knew the lady had problems and at first, I thought she was helping, but she was just trying to lure me in so then she would have more control over me. At first, I would just listen to everything she was telling me about my job, in which she never even went to school for, and how things are supposed to be done there. I would take mental notes and go back and do better next time. Each time, I would apply what I was told, only to then have her find more and more and more. It was a vicious endless cycle. I learned that she had psychological issues in which she thought she was hideous looking and never came out of the house. She and my boss were together and lived together. Throughout it all, I found I learned to forgive her each time and displayed a lot of compassion I didn’t even know I had. Another huge thing I learned is not to take things personally. I learned that the way I was being treated was not because of me but because of how she felt about herself. I also learned my boss was the same exact way and working next to him every day was one insult disguised as jokes day in and day out. This is important because when I first started working there I really did think it was me and I carried that weight for a while. This is so important because this had been a recurring theme my whole life and by learning this lesson I was able to heal emotional wounds I otherwise wouldn’t have, had I not gone through this.
+
+Also, this lady characterized many different people throughout my life in which I carried around the weight of thinking I had done something wrong. She was the catalyst that set the stage for me to heal and overcome a lot of my past. Now, these past events and the way I was treated no longer burden me. A huge thing I learned, is not to change yourself in order to please others. In a way, she was the mother figure and he was the father figure who I tried to please but was only manipulated by them while never being reciprocated. I had to learn to stand up for myself, I had exhausted my old way of doing things. Here's why it's so important to learn **why you need to stand up for yourself**.
+
+Anyway, there is only so much a person can handle, I learned. I learned that no matter how much compassion you have for someone, that it is not okay for someone to treat you like that. I learned to have respect for myself and that I had a choice whether I allowed her to talk to me like that. One day, I decided that I did not have to put up with it. When she would go on rants and lash out at me I used to let her finish and take it. Then one day while she was going through one of her rants, I thought to myself “just hang up the phone” and that is what I did. I realized then I had the choice of whether to be treated like that or not. I didn’t do it to piss her off or because I felt it warranted some revenge. I did it for me.
+
+I realized she was always going to act like even if I worked there for 20 years. She would never change or show me any respect. It just wasn’t in her. She couldn’t because she felt bad for herself. Unless she got professional help she would never get any better, therefore, I would always have to deal with it. No matter how much I tried to help, it didn’t matter. This is when I realized I’ve been doing this my whole life. I’ve been trying to help people who didn’t want to help themselves and sticking around anyway just to be treated poorly. I learned that I let people walk all over me. I saw it as letting things roll off my back and being kind, but in reality, it was ruining my self-worth. While I worked there I had nightmares, insomnia, fatigue, flashbacks, anxiety, and every textbook symptoms of PTSD. It snuck up on me so subtly that I didn’t even know who I was anymore by the time I realized it.
+
+Little by little, I would stand up for myself again. When my boss would make a rude remark and then when he would act so impressed with himself as if he embarrassed me, I’d say something to stand up for myself. He thought he was embarrassing me every time, but in actuality, I was embarrassed for him every time, and that is what I would be thinking instead of trying to say something to stand up for myself. I would be in awe of how embarrassed I was for him for being so crude. He would think he was embarrassing me. But I learned not to take anything personally and knew his actions had nothing to do with my worth. I really had an epiphany after I busted my ass working there and nothing changed.
+
+I also learned that people have a twisted perception of kindness and compassion. It’s almost like it’s an abnormality in most people’s minds. It’s normal to treat people terribly while making yourself feel better in the process. In my opinion, those are the crazy people, the ones who need to spend some time in the ward. Once again, a microcosm realization that lead me to see this same problem in society and in the world. Everywhere I looked people were doing it. They were talking down to those around them to feel better about themselves. There is no need to compare yourself to others, just try to be a better you.
+
+I learned that those people saw me as an easy target but what they didn’t realize it that kindness is not a weakness. They were the wolves and I was the sheep in their minds. But what they didn’t understand is it takes more courage to be true to yourself in this world then it does to succumb to their ways. It takes great strength. It’s a delusion that I see running rampant in this world. I slowly got myself out of this situation. It was hard going to work every day but I did it, better equipped than the last. I made sure I had another job to go to first and then little by little I had an escape plan. I was tired of walking on eggshells and figured they’d fire me anyway. Funny thing is, they never fired me because patients liked me and I did the job well. I also experienced sexism and racism with these people.
+
+I also learned that after I learned to stand up for myself and applied it, that it actually just made them treat me worse. It was a futile situation unless I succumbed to being beaten down emotionally everyday. There is such thing as being too loyal. After coming to work and almost crying but not being able to because I had to see patients, I knew I had had enough. All it took was to understand what was happening and once again, it was a situation I wouldn’t even believe could exist unless I experienced it myself. And if I didn’t experience it, I would have never healed a lot of my past or learned to stand up for myself. I’ve learned it only takes one person that has a problem and can target you in order to try and make your life hell. I’ve learned that’s okay because their world is small. I’ve learned that that office is the only thing they have and the only thing they look forward to. The only place to place all their energy, whether it’s positive or negative. They could have it, I knew then I was done with this part of my life and ready to move on.
+
+I’ve learned some people make the world feel so small while others make the world feel big. I choose to be a part of the bigger picture.
+
+Overall, I learned people will mistake kindness as a weakness. I learned the world consists of a ton of narcissists, and these people were not my first or last encounter. I’ve learned that compassion and empathy are my natural reaction to things, but to not let them blind me and prevent me from saving myself from future emotional abuse. I’ve learned that I had strength so much deeper than ever expected. I’ve learned I can find forgiveness and understanding in unusual circumstances. I learned I can adapt while keeping my values intact. But most of all, I learned to stand up for myself and never would have if I didn’t experience this. And I didn’t stand up for myself by lashing out or hurting others or getting revenge, rather I just chose not to subject myself to the abuse. I learned when no one else has your back or stands up for you, then you must have your own back and stand up for yourself. I learned to correct people when they assume something about me or try to put words into my mouth. That is a great way to start standing up for yourself, by the way!
+
+This reminds me of few quotes
+
+“Insecure people have to make excuses and put others down to feel confident. Confidence isn’t walking into a room with your nose in the air, and thinking you are better than everyone else, it’s walking into a room and not having to compare yourself to anyone in the first place.”
+
+“The object of life is not to be on the side of the majority, but to escape finding oneself in the ranks of the insane.”
+Marcus Aurelius
+
+One more thing….
+
+Here is a great article on an example of what I went through. Hope it helps. [sott.net](https://www.sott.net/article/268449-Empathic-people-are-natural-targets-for-sociopaths-protect-yourself)
+
+## Related Posts
+
+- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
+- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
+- [reading hobby quotes](https://books.allwomenstalk.com/ways-to-read-more/)
+- [benefits of seeing a psychologist](https://health.allwomenstalk.com/benefits-of-seeing-a-therapist/)
+- [Why You Need to Learn to Trust Yourself for Girls ...](https://inspiration.allwomenstalk.com/why-you-need-to-learn-to-trust-yourself/)
+- [add facebook events to google calendar](https://apps.allwomenstalk.com/how-to-sync-google-calendar-with-facebook/)
+- [chic comfort zone](https://inspiration.allwomenstalk.com/ways-to-break-out-of-your-comfort-zone/)
+- [open2study free courses](https://money.allwomenstalk.com/free-online-courses/)
+- [lessons for girls](https://inspiration.allwomenstalk.com/important-life-lessons/)
+- [inner wisdom meaning](https://inspiration.allwomenstalk.com/how-to-access-your-inner-wisdom/)
+- [8 Ways to Stand up for Yourself ...](https://allwomenstalk.com/8-ways-to-stand-up-for-yourself/)
+- [8 Ways You Can Become a Strong and Independent Wom...](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-independent-woman/)
+
+## Site Information
+
+- [Main page](https://allwomenstalk.com)
+- [Contact us](https://allwomenstalk.com/contact.html)
+- [HTML article](https://inspiration.allwomenstalk.com/why-you-need-to-stand-up-for-yourself/)
+
