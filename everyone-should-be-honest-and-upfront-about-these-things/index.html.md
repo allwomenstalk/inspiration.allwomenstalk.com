@@ -3,7 +3,7 @@ title: "7 Honest Things to Be Upfront about in a Relationship ..."
 description: "Who You Are; Your Intentions; Important Values; How You Feel; Your Happiness; More ..."
 url: "https://inspiration.allwomenstalk.com/everyone-should-be-honest-and-upfront-about-these-things/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Honest Things to Be Upfront about in a Relationship ...
@@ -54,16 +54,16 @@ Being honest about any insecurities you have might feel uncomfortable at first, 
 
 ## Related Posts
 
-- [naughty tinder](https://love.allwomenstalk.com/dating-struggles-millennials-need-to-overcome-to-find-their-otp/)
+- [first century dates](https://love.allwomenstalk.com/the-rules-for-first-dates-for-the-2-1-st-century/)
 - [types of chemistry relationships](https://love.allwomenstalk.com/there-are-different-types-of-chemistry-in-a-relationship-well-who-knew/)
 - [stages of relationship psychology](https://love.allwomenstalk.com/five-stages-of-love-according-to-psychology/)
 - [insecure couples on facebook](https://love.allwomenstalk.com/only-insecure-couples-play-these-tired-social-media-games/)
-- [hobbies to put on dating site](https://apps.allwomenstalk.com/common-interest-dating-appsto-help-you-find-love/)
 - [highschool sweet hearts](https://love.allwomenstalk.com/the-truth-about-high-school-sweethearts-relationships/)
-- [low maintenance girlfriend](https://love.allwomenstalk.com/you-should-probably-know-these-things-before-dating-a-low-maintenance-girl/)
-- [first century dates](https://love.allwomenstalk.com/the-rules-for-first-dates-for-the-2-1-st-century/)
-- [dating woman with anxiety](https://love.allwomenstalk.com/how-girls-with-anxiety-are-dating-and-loving-differently/)
 - [what is too big of an age gap](https://love.allwomenstalk.com/relationship-age-gap-how-big-is-too-big/)
+- [dating woman with anxiety](https://love.allwomenstalk.com/how-girls-with-anxiety-are-dating-and-loving-differently/)
+- [naughty tinder](https://love.allwomenstalk.com/dating-struggles-millennials-need-to-overcome-to-find-their-otp/)
+- [hobbies to put on dating site](https://apps.allwomenstalk.com/common-interest-dating-appsto-help-you-find-love/)
+- [low maintenance girlfriend](https://love.allwomenstalk.com/you-should-probably-know-these-things-before-dating-a-low-maintenance-girl/)
 - [7 Dos  Donts in a Relationship ...](https://love.allwomenstalk.com/dos-donts-in-a-relationship/)
 - [11 Secrets for a Successful Relationship ...](https://allwomenstalk.com/10-secrets-for-a-successful-relationship/)
 

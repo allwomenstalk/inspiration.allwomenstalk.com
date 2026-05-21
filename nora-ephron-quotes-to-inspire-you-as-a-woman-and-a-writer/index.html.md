@@ -3,7 +3,7 @@ title: "9 Nora Ephron Quotes to Inspire You as a Woman and a Writer ..."
 description: "“Which is One of the Most Delicious Things Available to Women, and More Particularly to Women than to Men, I Think. It’s Slightly Easier for Us to Shift, to Change Our Minds, to Take Another Path.\"; \"so Much of What I See Reminds Me of Something I Read in a Book, when Shouldn’t It Be the Other Way around? I Don’t Really Want an Answer. I Just Want to Send This Cosmic Question out into the Void. so Good Night, Dear Void.\"; “Reading is Everything. Reading Makes Me Feel like I've Accomplished Something, Learned Something, Become a Better Person. … Reading is Bliss.”; “Everything is Copy.”; “above All, Be the Heroine of Your Own Life, Not the Victim.”; More ..."
 url: "https://inspiration.allwomenstalk.com/nora-ephron-quotes-to-inspire-you-as-a-woman-and-a-writer/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Nora Ephron Quotes to Inspire You as a Woman and a Writer ...
@@ -50,16 +50,16 @@ What’s your favorite Nora Ephron quote? What’s your favorite Nora Ephron mov
 
 ## Related Posts
 
-- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
-- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
-- [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
+- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
 - [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
-- [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
 - [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
 - [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
-- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
+- [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
+- [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
+- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
+- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
 - [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
-- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [9 Career Books Every Young Woman Should Read ...](https://books.allwomenstalk.com/career-books-every-young-woman-should-read/)
 

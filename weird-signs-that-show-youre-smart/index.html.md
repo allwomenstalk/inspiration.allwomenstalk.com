@@ -3,7 +3,7 @@ title: "11 Weird Signs That Show Youre Smart ..."
 description: "You Took Music Lessons; You Are Thin; You Own a Cat; You Learn from Mistakes; You Argue Intelligently; More ..."
 url: "https://inspiration.allwomenstalk.com/weird-signs-that-show-youre-smart/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 11 Weird Signs That Show Youre Smart  ...
@@ -91,16 +91,16 @@ These finding can explain the birth order effect because children that were born
 
 ## Related Posts
 
-- [am i more attractive than i think](https://beauty.allwomenstalk.com/signs-youre-more-attractive-than-you-think/)
-- [too much fast food](https://diet.allwomenstalk.com/signs-youre-eating-too-much-processed-food/)
-- [15 Signs You Have Metabolism Problems ...](https://allwomenstalk.com/15-signs-you-have-metabolism-problems/)
-- [how to know if your house is haunted quiz](https://lifestyle.allwomenstalk.com/signs-your-house-might-be-haunted/)
 - [low quality fabric](https://fashion.allwomenstalk.com/signs-your-clothing-is-low-quality/)
-- [letterman signs](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
+- [signs a person is evil](https://inspiration.allwomenstalk.com/signs-that-someone-is-truly-evil/)
+- [10 Signs Youre a Sex Addict ...](https://love.allwomenstalk.com/signs-youre-a-sex-addict/)
 - [partying too much](https://health.allwomenstalk.com/signs-you-party-too-hard-aka-you-drink-too-much/)
 - [what is self absorbed mean](https://inspiration.allwomenstalk.com/signs-of-a-strong-personality-that-might-scare-people/)
-- [10 Signs Youre a Sex Addict ...](https://love.allwomenstalk.com/signs-youre-a-sex-addict/)
-- [signs a person is evil](https://inspiration.allwomenstalk.com/signs-that-someone-is-truly-evil/)
+- [how to know if your house is haunted quiz](https://lifestyle.allwomenstalk.com/signs-your-house-might-be-haunted/)
+- [too much fast food](https://diet.allwomenstalk.com/signs-youre-eating-too-much-processed-food/)
+- [15 Signs You Have Metabolism Problems ...](https://allwomenstalk.com/15-signs-you-have-metabolism-problems/)
+- [am i more attractive than i think](https://beauty.allwomenstalk.com/signs-youre-more-attractive-than-you-think/)
+- [letterman signs](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
 - [7 Signs You Are Popular in School ...](https://allwomenstalk.com/7-signs-you-are-popular-in-school/)
 - [9 Sure Signs of Insecurity You Should Be Aware of ...](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
 

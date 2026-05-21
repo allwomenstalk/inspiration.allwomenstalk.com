@@ -3,7 +3,7 @@ title: "Dont Beat Yourself up over Wanting to do These Things ..."
 description: "Ignoring a Phone Call; Saying No; Putting Yourself First; Staying in on a Weekend; Not Checking Your Email; More ..."
 url: "https://inspiration.allwomenstalk.com/dont-beat-yourself-up-over-wanting-to-do-these-things/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Dont Beat Yourself up over Wanting to do These Things ...
@@ -117,13 +117,13 @@ So, there you have it, these are all of the things I am officially not apologizi
 ## Related Posts
 
 - [you wont regret it no no](https://inspiration.allwomenstalk.com/choices-to-make-in-life-that-you-wont-regret-10-years-from-now/)
-- [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
 - [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
-- [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
-- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
-- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
-- [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
+- [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
 - [growing up in a small town](https://lifestyle.allwomenstalk.com/things-you-learn-growing-up-in-a-small-town/)
+- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
+- [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
+- [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
+- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
 - [flaws in a woman](https://inspiration.allwomenstalk.com/personal-flaws-you-should-learn-to-embrace-because-they-arent-exactly-flaws/)
 - [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
 - [8 Reasons Not to Feel Bad about Feeling Bad](https://allwomenstalk.com/reasons-not-to-feel-bad-about-feeling-bad/)

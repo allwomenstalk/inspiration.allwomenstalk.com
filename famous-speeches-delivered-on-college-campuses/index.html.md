@@ -3,7 +3,7 @@ title: "7 Famous Speeches Delivered on College Campuses ..."
 description: "John F. Kennedy, Rice University, Sept. 12, 1962; Steve Jobs, Stanford Commencement, June 12, 2005; Ronald Reagan, Moscow State University, May 31, 1988; Lyndon Johnson, University of Michigan Commencement, May 22, 1964; Stokely Carmichael, UC Berkeley, Oct. 29, 1966; More ..."
 url: "https://inspiration.allwomenstalk.com/famous-speeches-delivered-on-college-campuses/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Famous Speeches Delivered on College Campuses ...
@@ -42,16 +42,16 @@ It must have been quite something to have been a student in the audience for the
 
 ## Related Posts
 
-- [7 Major Differences between High School and Colleg...](https://teen.allwomenstalk.com/major-differences-between-high-school-and-college/)
 - [7 Awesome Reasons to Take Notes on Your Tablet in ...](https://teen.allwomenstalk.com/awesome-reasons-to-take-notes-on-your-tablet-in-class/)
 - [7 Things to Consider when Picking a University Deg...](https://teen.allwomenstalk.com/things-to-consider-when-picking-a-university-degree/)
-- [9 Study Tips That Will Help You Pass Every Exam .....](https://teen.allwomenstalk.com/study-tips-that-will-help-you-pass-every-exam/)
-- [7 Tips to Help You Be a Part-Time Student ...](https://teen.allwomenstalk.com/tips-to-help-you-be-a-part-time-student/)
+- [7 Tips for Being a Better All around Student ...](https://teen.allwomenstalk.com/tips-for-being-a-better-all-around-student/)
 - [7 Ways to Deal with College Burnout ...](https://teen.allwomenstalk.com/ways-to-deal-with-college-burnout/)
+- [9 Study Tips That Will Help You Pass Every Exam .....](https://teen.allwomenstalk.com/study-tips-that-will-help-you-pass-every-exam/)
+- [7 Major Differences between High School and Colleg...](https://teen.allwomenstalk.com/major-differences-between-high-school-and-college/)
+- [classes that should be taught in school](https://teen.allwomenstalk.com/classes-that-should-be-taught-in-high-school/)
+- [7 Tips to Help You Be a Part-Time Student ...](https://teen.allwomenstalk.com/tips-to-help-you-be-a-part-time-student/)
 - [7 Lessons to Teach Your Daughter before She Starts...](https://parenting.allwomenstalk.com/lessons-to-teach-your-daughter-before-she-starts-college/)
 - [7 Tips to Solve High School Issues ...](https://teen.allwomenstalk.com/tips-to-solve-high-school-issues/)
-- [classes that should be taught in school](https://teen.allwomenstalk.com/classes-that-should-be-taught-in-high-school/)
-- [7 Tips for Being a Better All around Student ...](https://teen.allwomenstalk.com/tips-for-being-a-better-all-around-student/)
 - [7 Historical Moments ...](https://allwomenstalk.com/7-historical-moments/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

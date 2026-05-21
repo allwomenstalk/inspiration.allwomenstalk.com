@@ -3,7 +3,7 @@ title: "Inspiring Women Role Models for Girls Wanting to Be a Writer ..."
 description: "Meg Cabot; Mindy Kaling; Nora Ephron; Maya Angelou; Amy Poehler; More ..."
 url: "https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Inspiring Women Role Models for Girls Wanting to Be a Writer ...
@@ -58,12 +58,12 @@ Who inspires you as an aspiring writer? Let me know in the comments!
 
 - [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
 - [channel for girls](https://lifestyle.allwomenstalk.com/most-informative-and-entertaining-youtube-channels-for-the-curious-mind/)
+- [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
+- [mary lou retton plastic surgery](https://fitness.allwomenstalk.com/female-athletes-who-are-forever-our-she-roes/)
 - [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
 - [taylor swifts squad](https://fashion.allwomenstalk.com/these-women-in-taylor-swifts-squad-may-be-the-ultimate-style-inspo/)
-- [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
-- [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
-- [mary lou retton plastic surgery](https://fitness.allwomenstalk.com/female-athletes-who-are-forever-our-she-roes/)
 - [best qualities in a woman](https://inspiration.allwomenstalk.com/the-qualities-that-make-a-woman-stand-out/)
+- [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
 - [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
 - [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)

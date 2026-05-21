@@ -3,7 +3,7 @@ title: "7 Quotes for when Times Are Hard ..."
 description: "Accept Your Struggles; Forget the past; Keep Moving Forward; Never Stand in Your Own Way; Believe That Everything Happens for a Reason; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Quotes for when Times Are Hard ...
@@ -56,16 +56,16 @@ I hope these quotes will come to mind when times seem a little tough. What are s
 
 ## Related Posts
 
-- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
-- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
-- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
-- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
-- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
-- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
-- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
 - [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
+- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
+- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
 - [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
+- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
+- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
+- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
+- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
+- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [30 Motivational Quotes for when Youre Feeling down...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [10 Quotes to Help Heal a Broken Heart ...](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
 

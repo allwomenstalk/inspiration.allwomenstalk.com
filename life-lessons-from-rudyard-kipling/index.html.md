@@ -3,7 +3,7 @@ title: "7 Life Lessons from Rudyard Kipling ..."
 description: "Excuses; Let the past Be in the past; Fruits of Your Labor; Fear; Believe in the Best; More ..."
 url: "https://inspiration.allwomenstalk.com/life-lessons-from-rudyard-kipling/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Life Lessons from Rudyard Kipling ...
@@ -44,16 +44,16 @@ Rudyard Kipling was an extremely talented writer who lived a full life with many
 
 ## Related Posts
 
-- [monti say yes to the dress](https://wedding.allwomenstalk.com/helpful-things-you-can-learn-from-watching-say-yes-to-the-dress/)
-- [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
-- [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
 - [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
-- [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
-- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
-- [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
-- [no impact project](https://books.allwomenstalk.com/lessons-you-can-learn-from-the-no-impact-man/)
-- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
 - [one thing that money cant buy](https://money.allwomenstalk.com/things-money-cant-buy/)
+- [no impact project](https://books.allwomenstalk.com/lessons-you-can-learn-from-the-no-impact-man/)
+- [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
+- [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
+- [monti say yes to the dress](https://wedding.allwomenstalk.com/helpful-things-you-can-learn-from-watching-say-yes-to-the-dress/)
+- [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
+- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
+- [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
+- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
 - [7 Life Lessons to Teach Your Son ...](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
 - [7 Tips for Writing Poetry ...](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
 

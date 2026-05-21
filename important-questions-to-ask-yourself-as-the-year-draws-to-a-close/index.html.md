@@ -3,7 +3,7 @@ title: "7 Important Questions to Ask Yourself as the Year Draws to a Close ..."
 description: "What Contribution Have I Made to the Community?; Have I Achieved My Goals?; What do I Need to Change in Order to Be Where I Want to Be?; Have I Been True to Myself?; Have I Done My Best?; More ..."
 url: "https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/"
 category: "inspiration"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Important Questions to Ask Yourself as the Year Draws to a Close ...
@@ -43,15 +43,15 @@ These are just a few questions you may want to ask yourself as the year draws to
 ## Related Posts
 
 - [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
-- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
 - [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
+- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
+- [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
 - [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
 - [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
-- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
-- [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
 - [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
 - [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
+- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
+- [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [5 Questions to Ponder...](https://allwomenstalk.com/5-questions-to-ponder/)
 
