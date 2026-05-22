@@ -3,7 +3,7 @@ title: "22 Totally Important Things for 20-Somethings to Remember when Life Hits
 description: "It’s Okay Not to Love Every Part of You...; Take Those Selfies; But Don't Forget about the Real Stuff Too; We All Hate It but Find Some Time to Exercise, You’ll Feel Better when You do; Paying Your Bills Every Month is so Satisfying and is More Important than Going out All the Time; More ..."
 url: "https://inspiration.allwomenstalk.com/totally-important-things-for-20-somethings-to-remember-when-life-hits-hard/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 22 Totally Important Things for 20\-Somethings to Remember when Life Hits Hard ...
@@ -146,16 +146,16 @@ What's your favorite mantra for when life hits hard? Did you agree with these li
 
 ## Related Posts
 
-- [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
-- [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
-- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
-- [we must accept finite disappointment meaning](https://inspiration.allwomenstalk.com/things-truly-worth-hoping-for/)
-- [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
-- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
-- [age is just a number cake](https://beauty.allwomenstalk.com/iconic-women-who-prove-that-age-is-just-a-number/)
 - [harsh cable tv](https://lifestyle.allwomenstalk.com/how-technology-has-taken-over-our-lives/)
 - [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
+- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
 - [what does clutter say about a person](https://lifestyle.allwomenstalk.com/what-your-hidden-clutter-says-about-your-personality/)
+- [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
+- [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
+- [age is just a number cake](https://beauty.allwomenstalk.com/iconic-women-who-prove-that-age-is-just-a-number/)
+- [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
+- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
+- [we must accept finite disappointment meaning](https://inspiration.allwomenstalk.com/things-truly-worth-hoping-for/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 - [8 Things Not to Worry about in Your Twenties ...](https://lifestyle.allwomenstalk.com/things-not-to-worry-about-in-your-twenties/)
 

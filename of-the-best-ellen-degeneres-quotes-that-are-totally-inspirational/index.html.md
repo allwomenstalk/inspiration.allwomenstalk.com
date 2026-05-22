@@ -3,7 +3,7 @@ title: "9 of the Best Ellen DeGeneres Quotes That Are Totally Inspirational ..."
 description: "“Most Comedy is Based on Getting a Laugh at Somebody else's Expense. and I Find That That's Just a Form of Bullying in a Major Way. so I Want to Be an Example That You Can Be Funny and Be Kind, and Make People Laugh without Hurting Somebody else's Feelings.”; “if We're Destroying Our Trees and Destroying Our Environment and Hurting Animals and Hurting One Another and All That Stuff, There's Got to Be a Very Powerful Energy to Fight That. I Think We Need More Love in the World. We Need More Kindness, More Compassion, More Joy, More Laughter. I Definitely Want to Contribute to That.”; “Just Go up to Somebody on the Street and Say 'You're It!' and then Run Away.”; “Sometimes You Can't See Yourself Clearly until You See Yourself through the Eyes of Others.”; “I Learned Compassion from Being Discriminated against. Everything Bad That's Ever Happened to Me Has Taught Me Compassion.”; More ..."
 url: "https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 of the Best Ellen DeGeneres Quotes That Are Totally Inspirational ...
@@ -52,16 +52,16 @@ If we all take these quotes as inspiration, I believe the world would be a bette
 
 ## Related Posts
 
-- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
-- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 - [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
-- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
+- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [fabulous phrases](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/)
-- [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
-- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
-- [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
 - [dont be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
+- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
+- [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
+- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
+- [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
+- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 

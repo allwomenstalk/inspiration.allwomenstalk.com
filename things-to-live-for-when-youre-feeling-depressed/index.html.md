@@ -3,7 +3,7 @@ title: "11 Things to Live for when Youre Feeling Depressed ..."
 description: "Music; Laughter; Affection; New Experiences; Fresh Feelings; More ..."
 url: "https://inspiration.allwomenstalk.com/things-to-live-for-when-youre-feeling-depressed/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Things to Live for when Youre Feeling Depressed ...
@@ -60,15 +60,15 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [stay positive always](https://inspiration.allwomenstalk.com/tips-to-stay-positive-always-and-keep-smiling/)
-- [compliments to give yourself](https://inspiration.allwomenstalk.com/compliments-to-give-yourself-every-morning/)
 - [letting go of negativity](https://inspiration.allwomenstalk.com/steps-to-let-go-of-negativity-in-your-life/)
-- [how to stay persistent](https://inspiration.allwomenstalk.com/very-effective-ways-to-be-persistent-that-can-help-you-reach-your-goals/)
-- [how to dedicate](https://inspiration.allwomenstalk.com/inspiring-things-to-dedicate-your-life-to/)
-- [how to be good to others](https://inspiration.allwomenstalk.com/ways-to-be-kind-to-others-every-day/)
-- [advice like youth probably just wasted on the youn...](https://inspiration.allwomenstalk.com/ways-to-avoid-wasting-your-youth-and-make-it-worth-it/)
+- [stay positive always](https://inspiration.allwomenstalk.com/tips-to-stay-positive-always-and-keep-smiling/)
 - [giving back to the community by volunteering](https://lifestyle.allwomenstalk.com/ways-to-volunteer-and-give-back-to-the-community/)
 - [meaning of amezing](https://inspiration.allwomenstalk.com/amazing-ways-to-give-your-life-meaning/)
+- [how to dedicate](https://inspiration.allwomenstalk.com/inspiring-things-to-dedicate-your-life-to/)
+- [how to be good to others](https://inspiration.allwomenstalk.com/ways-to-be-kind-to-others-every-day/)
+- [how to stay persistent](https://inspiration.allwomenstalk.com/very-effective-ways-to-be-persistent-that-can-help-you-reach-your-goals/)
+- [advice like youth probably just wasted on the youn...](https://inspiration.allwomenstalk.com/ways-to-avoid-wasting-your-youth-and-make-it-worth-it/)
+- [compliments to give yourself](https://inspiration.allwomenstalk.com/compliments-to-give-yourself-every-morning/)
 - [have hope in life even if life is hard](https://inspiration.allwomenstalk.com/reasons-to-have-hope-that-your-life-will-change/)
 - [10 Ways to Prevent Depression ...](https://allwomenstalk.com/10-ways-to-prevent-depression/)
 - [10 Ways to Fight Depression ...](https://allwomenstalk.com/10-ways-to-fight-depression/)

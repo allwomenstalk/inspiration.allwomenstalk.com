@@ -3,7 +3,7 @@ title: "7 Ways to Deal with Someone Who Brags ..."
 description: "Back Away; Vent to Others; Say Something Non-committal; Change the Subject; Give Them a Reality Check; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Deal with Someone Who Brags ...
@@ -42,16 +42,16 @@ Dealing with someone who brags can be difficult. What are your tips for this sit
 
 ## Related Posts
 
-- [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
-- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
 - [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
-- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
-- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
+- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
+- [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
+- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
 - [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
+- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [7 Ways to Deal with Snobby People ...](https://allwomenstalk.com/7-ways-to-deal-with-snobby-people/)
 

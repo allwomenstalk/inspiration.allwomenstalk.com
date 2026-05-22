@@ -3,7 +3,7 @@ title: "7 Quotes from Friends That Will Lift Your Spirits ..."
 description: "True Beauty; Emotional Stress; Female Issues; Downhill Life; Desire for Love; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-from-friends-that-will-lift-your-spirits/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Quotes from Friends That Will Lift Your Spirits ...
@@ -56,16 +56,16 @@ If you loved the show as much as I do, you've seen every episode more than once.
 
 ## Related Posts
 
-- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
-- [what others think of you quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
-- [riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
-- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
 - [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
 - [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
 - [in every disaster there is an opportunity](https://inspiration.allwomenstalk.com/motivational-quotes-from-john-d-rockefeller/)
+- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
+- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
+- [riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
+- [what others think of you quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
+- [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
 - [5 Things to Cheer You up Today ...](https://allwomenstalk.com/5-things-to-cheer-you-up-today/)
 - [7 of My Favorite Friendship Quotes ...](https://allwomenstalk.com/7-of-my-favorite-friendship-quotes/)
 

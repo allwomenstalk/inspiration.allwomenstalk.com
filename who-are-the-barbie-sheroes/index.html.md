@@ -3,7 +3,7 @@ title: "Who Are the Barbie Sheroes ?"
 description: "Frida Kahlo; Katherine Johnson; Chloe Kim; More ..."
 url: "https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Who Are  the Barbie Sheroes ?
@@ -40,15 +40,15 @@ Here is the full list of Barbie Sheroes for 2018:
 
 ## Related Posts
 
-- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
-- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
-- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
 - [genius women](https://inspiration.allwomenstalk.com/genius-women-everyone-should-know-about/)
+- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
 - [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
+- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
+- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
+- [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
+- [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
 - [bridget jones quotes](https://funny.allwomenstalk.com/why-every-woman-really-is-bridget-jones/)
 - [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
-- [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
-- [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
 - [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
 - [Breasts What Are They and Who do They Belong to An...](https://allwomenstalk.com/breasts-what-are-they-and-who-do-they-belong-to-anyway/)
 - [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)

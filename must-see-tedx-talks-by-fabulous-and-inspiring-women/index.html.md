@@ -3,7 +3,7 @@ title: "9 Must See Tedx Talks by Fabulous and Inspiring Women ..."
 description: "Listening to Shame; The Power of Vulnerability; Looks Aren't Everything; The Power of Introverts; The Art of Asking; More ..."
 url: "https://inspiration.allwomenstalk.com/must-see-tedx-talks-by-fabulous-and-inspiring-women/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Must See Tedx Talks by Fabulous and Inspiring Women ...
@@ -68,16 +68,16 @@ I enjoy Tedx so much I subscribe to their YouTube channel. What are some of your
 
 ## Related Posts
 
-- [7 Hot New Job Fields for Women ...](https://fitene.com/hot-new-job-fields-for-women/)
-- [7 Reasons for the Media Discrimination against Wom...](https://lifestyle.allwomenstalk.com/reasons-for-the-media-discrimination-against-women/)
-- [11 Gloriously Badass Feminist Moments of 2013 ...](https://lifestyle.allwomenstalk.com/gloriously-badass-feminist-moments-of/)
-- [women empowered movies](https://movies.allwomenstalk.com/movies-to-make-you-feel-more-empowered-as-a-woman/)
 - [7 Lies about Women That Have Been Spread by Romanc...](https://movies.allwomenstalk.com/lies-about-women-that-have-been-spread-by-romance-films/)
 - [7 Fantastic  Inspiring Women of Science Who Will A...](https://lifestyle.allwomenstalk.com/fantastic-inspiring-women-of-science-who-will-amaze-you/)
 - [7 Royals around the World Who Are Just as Amazing ...](https://celebs.allwomenstalk.com/royals-around-the-world-who-are-just-as-amazing-as-kate-middleton/)
-- [7 Classic Pieces for Real Women ...](https://fashion.allwomenstalk.com/classic-pieces-for-real-women/)
-- [7 Adult Lessons I Learned from Young Adult Movie H...](https://bilbr.com/adult-lessons-i-learned-from-ya-heroines/)
 - [7 Amazing Female Scientists Your Kids Should Learn...](https://lifestyle.allwomenstalk.com/amazing-female-scientists-your-kids-should-learn-about/)
+- [7 Hot New Job Fields for Women ...](https://fitene.com/hot-new-job-fields-for-women/)
+- [7 Adult Lessons I Learned from Young Adult Movie H...](https://bilbr.com/adult-lessons-i-learned-from-ya-heroines/)
+- [7 Reasons for the Media Discrimination against Wom...](https://lifestyle.allwomenstalk.com/reasons-for-the-media-discrimination-against-women/)
+- [women empowered movies](https://movies.allwomenstalk.com/movies-to-make-you-feel-more-empowered-as-a-woman/)
+- [11 Gloriously Badass Feminist Moments of 2013 ...](https://lifestyle.allwomenstalk.com/gloriously-badass-feminist-moments-of/)
+- [7 Classic Pieces for Real Women ...](https://fashion.allwomenstalk.com/classic-pieces-for-real-women/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 

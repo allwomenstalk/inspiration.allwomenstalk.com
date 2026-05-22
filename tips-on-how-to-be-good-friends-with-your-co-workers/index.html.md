@@ -3,7 +3,7 @@ title: "7 Tips on How to Be Good Friends with Your Co-workers ..."
 description: "What’s Yours Should Not Always Be Theirs; Keep Personal Secrets to Yourself; Try Not to Bail out Your Friends; Chit-chat is a Waste of Time; Try to Avoid Too Much Togetherness; More ..."
 url: "https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/"
 category: "inspiration"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Tips on How to Be Good Friends with Your Co\-workers ...
@@ -45,15 +45,15 @@ It’s good to be friends with the ones you work with but keep in mind that ther
 
 ## Related Posts
 
+- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
 - [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
-- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
-- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
-- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
 - [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
+- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
 - [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
+- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
+- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
 - [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
 - [How to Be a Good Friend: 7 Ways to Avoid Friendshi...](https://lifestyle.allwomenstalk.com/how-to-be-a-good-friend-7-ways-to-avoid-friendship-failures/)
 - [7 Easy Steps to Making New Awesome Friends ...](https://lifestyle.allwomenstalk.com/easy-steps-to-making-new-awesome-friends/)
