@@ -3,7 +3,7 @@ title: "7 Fictional Female Characters to Gain Inspiration from ..."
 description: "Leslie Knope; Mindy Lahiri; Kimmy Schmidt; Kristina Braverman; Rachel Green; More ..."
 url: "https://inspiration.allwomenstalk.com/fictional-female-characters-to-gain-inspiration-from/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Fictional Female Characters to Gain Inspiration from ...
@@ -14,7 +14,7 @@ There are so many amazing fictional female characters that we could all get some
 
 ![Leslie Knope](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/pr/p6/pnqlqju254fbbe7e26058507041737_482x724.jpg)
 
-Leslie Knope is not only one of the [best female characters](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/) of all-time, but also one of the best characters, regardless of gender, ever. She’s funny, sweet, powerful, and unapologetic. She’s one of the most quotable women on television, because she’s ridiculous and real.
+Leslie Knope is not only one of the best female characters of all-time, but also one of the best characters, regardless of gender, ever. She’s funny, sweet, powerful, and unapologetic. She’s one of the most quotable women on television, because she’s ridiculous and real.
 
 ## 2. Mindy Lahiri
 
@@ -56,16 +56,16 @@ Who is your favorite fictional female character? These are just a few of mine, b
 
 ## Related Posts
 
+- [emily ratajkowski israel](https://celebs.allwomenstalk.com/these-women-put-the-super-in-supermodel/)
 - [independent woman movie](https://movies.allwomenstalk.com/movies-about-independent-women-thatll-inspire-you/)
 - [womens black denim dress](https://fashion.allwomenstalk.com/women-rocking-the-denim-dress/)
+- [movies about goddesses](https://lifestyle.allwomenstalk.com/badass-ancient-goddesses-tougher-than-angelina-jolies-movie-characters/)
 - [levina teerlinc artwork](https://lifestyle.allwomenstalk.com/women-artists-who-deserve-more-acclaim/)
 - [chick flick to watch](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
-- [miss piggy in glasses](https://lifestyle.allwomenstalk.com/quotes-that-prove-miss-piggy-is-a-feminist-icon/)
-- [take the money and run banksy](https://lifestyle.allwomenstalk.com/women-street-artists-who-give-banksy-a-run-for-his-money/)
-- [emily ratajkowski israel](https://celebs.allwomenstalk.com/these-women-put-the-super-in-supermodel/)
-- [vintage ads women](https://funny.allwomenstalk.com/shockingly-sexist-vintage-ads-youve-got-to-see-to-believe/)
-- [movies about goddesses](https://lifestyle.allwomenstalk.com/badass-ancient-goddesses-tougher-than-angelina-jolies-movie-characters/)
 - [female singers 2014](https://music.allwomenstalk.com/the-most-streamed-female-artists-on-spotify-in/)
+- [take the money and run banksy](https://lifestyle.allwomenstalk.com/women-street-artists-who-give-banksy-a-run-for-his-money/)
+- [miss piggy in glasses](https://lifestyle.allwomenstalk.com/quotes-that-prove-miss-piggy-is-a-feminist-icon/)
+- [vintage ads women](https://funny.allwomenstalk.com/shockingly-sexist-vintage-ads-youve-got-to-see-to-believe/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [5 Great Women to Admire...](https://allwomenstalk.com/5-great-women-to-admire/)
 

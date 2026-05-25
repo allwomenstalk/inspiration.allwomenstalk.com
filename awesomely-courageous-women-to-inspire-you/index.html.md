@@ -3,7 +3,7 @@ title: "7 Awesomely Courageous Women to Inspire You ..."
 description: "Malala Yousafzai; Mary Brave Bird; Claudette Colvin; Ada \"Bricktop\" Smith; Amelia Earhart; More ..."
 url: "https://inspiration.allwomenstalk.com/awesomely-courageous-women-to-inspire-you/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Awesomely Courageous Women to Inspire You ...
@@ -65,16 +65,16 @@ These seven women are truly phenomenal. They represent a much larger number of c
 
 ## Related Posts
 
-- [9 Firsts for Women in Politics in the USA ...](https://lifestyle.allwomenstalk.com/firsts-for-women-in-politics-in-the-usa/)
+- [7 of the Most Influential Women in History ...](https://inspiration.allwomenstalk.com/of-the-most-wonderful-things-women-have-done/)
 - [7 Things to Be Grateful for about Being a Woman in...](https://inspiration.allwomenstalk.com/things-to-be-grateful-for-about-being-a-woman-in/)
 - [7 Female Comedians That Keep Us Laughing ...](https://funny.allwomenstalk.com/female-comedians-that-keep-us-laughing/)
 - [7 Women-Led Shows That Are Changing the Course of ...](https://movies.allwomenstalk.com/women-led-shows-that-are-changing-the-course-of-television/)
-- [7 Funny Women Changing the Game Right Now ...](https://celebs.allwomenstalk.com/funny-women-changing-the-game-right-now/)
 - [mindy lahiri and danny castellano](https://celebs.allwomenstalk.com/times-mindy-lahiri-is-your-spirit-animal/)
-- [7 Admirable Heroines from YA Literature ...](https://inspiration.allwomenstalk.com/admirable-heroines-from-ya-literature/)
+- [9 Firsts for Women in Politics in the USA ...](https://lifestyle.allwomenstalk.com/firsts-for-women-in-politics-in-the-usa/)
 - [7 Awesome Ways to Celebrate International Womens D...](https://inspiration.allwomenstalk.com/awesome-ways-to-celebrate-international-womens-day/)
 - [7 Important Reasons We Still Need Feminism ...](https://inspiration.allwomenstalk.com/important-reasons-we-still-need-feminism/)
-- [7 of the Most Influential Women in History ...](https://inspiration.allwomenstalk.com/of-the-most-wonderful-things-women-have-done/)
+- [7 Admirable Heroines from YA Literature ...](https://inspiration.allwomenstalk.com/admirable-heroines-from-ya-literature/)
+- [7 Funny Women Changing the Game Right Now ...](https://celebs.allwomenstalk.com/funny-women-changing-the-game-right-now/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 

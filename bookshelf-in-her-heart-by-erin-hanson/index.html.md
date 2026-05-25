@@ -3,7 +3,7 @@ title: "Bookshelf in Her Heart by Erin Hanson ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Bookshelf in Her Heart by Erin Hanson ...
@@ -40,16 +40,16 @@ This poem is a legacy. What you write today feels different the next time you op
 
 ## Related Posts
 
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
 - [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
-- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
-- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
 - [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
+- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
 - [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
-- [best libraries in world](https://books.allwomenstalk.com/best-libraries-in-the-world/)
+- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
 - [the best place to read](https://books.allwomenstalk.com/the-best-places-to-read/)
+- [best libraries in world](https://books.allwomenstalk.com/best-libraries-in-the-world/)
 - [Chocolate and Books- Delicious](https://allwomenstalk.com/chocolate-and-books-delicious/)
 - [Valentines Kisses ...](https://allwomenstalk.com/valentines-kisses/)
 

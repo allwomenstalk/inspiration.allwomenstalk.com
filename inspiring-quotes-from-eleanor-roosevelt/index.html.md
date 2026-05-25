@@ -3,7 +3,7 @@ title: "11 Inspiring Quotes from Eleanor Roosevelt ..."
 description: "“a Woman is like a Tea Bag; You Never Know How Strong It is until It’s in Hot Water.”; “No One Can Make You Feel Inferior without Your Consent.”; “You Gain Strength, Courage, and Confidence by Every Experience in Which You Really Stop to Look Fear in the Face. You Must do the Thing You Think You Cannot do.”; “It Takes as Much Energy to Wish as It Does to Plan.”; “do What You Feel in Your Heart to Be Right – for You’ll Be Criticized Anyway.”; More ..."
 url: "https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Inspiring Quotes from Eleanor Roosevelt ...
@@ -80,16 +80,16 @@ There are so many quotes out there from this lady that are absolutely inspiring!
 
 ## Related Posts
 
-- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
-- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
-- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
-- [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
-- [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
-- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
-- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
 - [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
+- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
+- [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
+- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
+- [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
+- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
+- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

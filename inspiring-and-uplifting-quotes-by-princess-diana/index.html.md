@@ -3,7 +3,7 @@ title: "7 Inspiring and Uplifting Quotes by Princess Diana ..."
 description: "Kindness; Heart Rules; Hugs; Family; Princesses; More ..."
 url: "https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Inspiring and Uplifting Quotes by Princess Diana ...
@@ -56,16 +56,16 @@ Princess Diana was such a wise woman. Do you have a favorite Princess Diana quot
 
 ## Related Posts
 
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
-- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
-- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
-- [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
-- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
+- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
 - [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
+- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
+- [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
 - [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
+- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 

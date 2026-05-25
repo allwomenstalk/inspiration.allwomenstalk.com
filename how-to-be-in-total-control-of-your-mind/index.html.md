@@ -3,7 +3,7 @@ title: "How to Be in Total Control of Your Mind ..."
 description: "Know What You Want; Don't Be Afraid to Be Your Own Person; Speak up when You Don't like Something; Don't Listen to Negative Talk; Don't Stand for Gossip; More ..."
 url: "https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # How to Be in Total Control of Your Mind ...
@@ -44,16 +44,16 @@ What are other ways to be in total control of your mind?
 
 ## Related Posts
 
-- [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
-- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
-- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
-- [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
-- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
-- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
-- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
-- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
 - [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
+- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
+- [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
+- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
 - [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
+- [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
+- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
+- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
+- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
+- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
 - [Finding Peace of Mind ...](https://allwomenstalk.com/finding-peace-of-mind-in-2021/)
 - [15 Ways to Declutter Your Mind ...](https://allwomenstalk.com/15-ways-to-declutter-your-mind/)
 

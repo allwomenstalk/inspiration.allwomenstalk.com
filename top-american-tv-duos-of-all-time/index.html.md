@@ -3,7 +3,7 @@ title: "9 Top American TV Duos of All Time ..."
 description: "Will Smith and Carlton Banks; Beavis and Butt-head; Olivia Benson & Elliot Stabler; Zack Morris & Screech Powers; Lucy Ricardo & Ethel Mertz; More ..."
 url: "https://inspiration.allwomenstalk.com/top-american-tv-duos-of-all-time/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Top American TV Duos of All Time ...
@@ -70,14 +70,14 @@ The greatest part about keeping up with a TV series is watching the interaction 
 
 - [good luck with bookin that stage](https://celebs.allwomenstalk.com/most-scandalous-celebrity-twitter-feuds-that-will-evoke-a-facepalm/)
 - [jon heder lds](https://celebs.allwomenstalk.com/famous-celebrities-with-a-twin-that-will-probably-surprise-you/)
-- [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
-- [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
-- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
-- [celebrity long hair](https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/)
-- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
-- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
-- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
 - [was ryan gosling singing in barbie](https://celebs.allwomenstalk.com/barbie-dolls-of-celebrity-singers-that-youve-got-to-see-to-believe/)
+- [top british celebrities](https://celebs.allwomenstalk.com/brilliant-british-celebrities-that-you-should-take-note-of/)
+- [chace crawford liam hemsworth](https://celebs.allwomenstalk.com/hottest-guys-of-that-we-cant-stop-drooling-over/)
+- [underrated celebrity](https://celebs.allwomenstalk.com/underrated-hollywood-stars-that-deserve-more-attention/)
+- [the actress with the eyebrows](https://celebs.allwomenstalk.com/beautiful-celebrities-with-gorgeous-eyebrows-to-die-for/)
+- [celebrity long hair](https://celebs.allwomenstalk.com/drastic-celebrity-hair-cuts-that-caused-a-stir/)
+- [celebrities with very fine hair](https://hair.allwomenstalk.com/fabulous-celebrity-hair-crushes-we-absolutely-adore/)
+- [most famous british actors](https://movies.allwomenstalk.com/underrated-british-actors-i-want-to-see-more-of/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [The Top 10 Leading Men of All Time ...](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 

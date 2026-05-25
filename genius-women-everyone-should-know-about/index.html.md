@@ -3,7 +3,7 @@ title: "10 Genius Women You Never Heard of ..."
 description: "Augusta Ada Lovelace 1815-1852; Amalie Emmy Noether 1882-1935; Dorothy Hodgkin 1910-1994; Sappho of Ancient Greece; Dr. Katherine Johnson; More ..."
 url: "https://inspiration.allwomenstalk.com/genius-women-everyone-should-know-about/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Genius Women You Never Heard of ...
@@ -55,15 +55,15 @@ Born in 1952, Edith Stern has an IQ over 200. She talked in full sentences befor
 ## Related Posts
 
 - [bridget jones quotes](https://funny.allwomenstalk.com/why-every-woman-really-is-bridget-jones/)
-- [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
-- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
-- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
-- [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
-- [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
 - [baby girl names korean](https://lifestyle.allwomenstalk.com/korean-girl-names/)
-- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
-- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
+- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
 - [womens investment club](https://money.allwomenstalk.com/how-women-led-investment-clubs-are-making-a-difference-in-the-investing-world/)
+- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
+- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
+- [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
+- [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
+- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
+- [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)
 

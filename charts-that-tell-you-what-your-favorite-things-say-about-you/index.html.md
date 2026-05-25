@@ -3,7 +3,7 @@ title: "17 Charts That Tell You What Your Favorite Things Say about You ..."
 description: "Shoes; Coffee; Casino Game; Social Network; Dog; More ..."
 url: "https://inspiration.allwomenstalk.com/charts-that-tell-you-what-your-favorite-things-say-about-you/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 17 Charts That Tell You What Your Favorite  Things Say about You ...
@@ -68,7 +68,7 @@ There are so many delicious desserts that it's hard to choose a favorite. Of cou
 
 ![Drunk Food](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/vx/oz/ee2mqv8e56278db9229f4759622071_600x388.jpg)
 
-If you've gotten drunk before, you've probably had [weird food](https://food.allwomenstalk.com/weird-food-combinations-that-are-delicious/) cravings. We all want that special burger when we're feeling hungover.
+If you've gotten drunk before, you've probably had weird food cravings. We all want that special burger when we're feeling hungover.
 
 ## 11. Car
 
@@ -116,16 +116,16 @@ If you haven't looked over these charts yet, it's time to do so! It's crazy how 
 
 ## Related Posts
 
-- [pay-attention to me gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-aries/)
-- [scorpio funny gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-scorpio/)
 - [virgo pick up lines](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-virgo/)
-- [bad luck leo gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-leo/)
 - [frizzy hair gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-libra/)
-- [gifs that describe me](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-capricorn/)
-- [steep hill gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-gemini/)
-- [pisces photoshoot ideas](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-pisces/)
 - [sagittarius a gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-sagittarius/)
+- [pisces photoshoot ideas](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-pisces/)
+- [gifs that describe me](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-capricorn/)
+- [scorpio funny gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-scorpio/)
+- [steep hill gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-gemini/)
 - [aqua scream gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-an-aquarius/)
+- [pay-attention to me gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-aries/)
+- [bad luck leo gif](https://lifestyle.allwomenstalk.com/gifs-that-perfectly-describe-a-leo/)
 - [15 Interesting Psychological Facts about Yourself ...](https://inspiration.allwomenstalk.com/psychological-facts-about-yourself/)
 - [8 Beautiful Aspects about You That Make You Unique...](https://inspiration.allwomenstalk.com/beautiful-aspects-about-you-that-make-you-unique/)
 

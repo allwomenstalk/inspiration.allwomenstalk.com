@@ -3,7 +3,7 @@ title: "10 Things to Tell Yourself if You Are Spending Christmas Alone ..."
 description: "My Dog/Cat Loves Me!; It’s Cheaper; Your Time off is All Years; You Can Hide from Relationship Stuff; Netflix is Trendy; More ..."
 url: "https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/"
 category: "inspiration"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Things to Tell Yourself if You Are Spending Christmas Alone ...
@@ -52,14 +52,14 @@ There is no rule set in stone stating that there is only one proper way to spend
 
 ## Related Posts
 
-- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
-- [kisses arent contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
-- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
-- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
-- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
 - [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
+- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
+- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
+- [kisses arent contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
+- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
+- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
 - [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
 - [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
 - [10 Ways to Cheer Yourself up ...](https://allwomenstalk.com/10-ways-to-cheer-yourself-up/)
