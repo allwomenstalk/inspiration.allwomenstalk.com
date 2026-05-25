@@ -42,16 +42,16 @@ What’s your New Year’s resolution?
 
 ## Related Posts
 
+- [8 Myths about Psychology and Psychiatry That Every...](https://health.allwomenstalk.com/myths-about-psychology-and-psychiatry-that-everybody-buys-into/)
 - [9 Myths about Space We Need to Stop Believing ...](https://lifestyle.allwomenstalk.com/myths-about-space-we-need-to-stop-believing/)
 - [7 Embarrassing Things That Will Actually Make You ...](https://inspiration.allwomenstalk.com/embarrassing-things-that-will-actually-make-you-happier/)
-- [7 Mean Things You Need to do to Succeed ...](https://inspiration.allwomenstalk.com/mean-things-you-need-to-do-to-succeed/)
-- [7 Facts about Life You Need to Accept to Find True...](https://inspiration.allwomenstalk.com/facts-about-life-you-need-to-accept-to-find-true-happiness/)
 - [good habits of grandmother](https://lifestyle.allwomenstalk.com/habits-you-should-pick-up-from-your-grandmother/)
-- [7 Surprising Benefits of Kindness ...](https://inspiration.allwomenstalk.com/surprising-benefits-of-kindness/)
-- [8 Myths about Psychology and Psychiatry That Every...](https://health.allwomenstalk.com/myths-about-psychology-and-psychiatry-that-everybody-buys-into/)
+- [7 Mean Things You Need to do to Succeed ...](https://inspiration.allwomenstalk.com/mean-things-you-need-to-do-to-succeed/)
 - [9 People You Should Thank Instead of Hate ...](https://inspiration.allwomenstalk.com/people-you-should-thank-instead-of-hate/)
-- [7 Things We Mistake for Happiness ...](https://inspiration.allwomenstalk.com/things-we-mistake-for-happiness/)
 - [7 Lies We All Tell That Will Hurt You More than He...](https://inspiration.allwomenstalk.com/lies-we-all-tell-that-will-hurt-you-more-than-help-you/)
+- [7 Facts about Life You Need to Accept to Find True...](https://inspiration.allwomenstalk.com/facts-about-life-you-need-to-accept-to-find-true-happiness/)
+- [7 Things We Mistake for Happiness ...](https://inspiration.allwomenstalk.com/things-we-mistake-for-happiness/)
+- [7 Surprising Benefits of Kindness ...](https://inspiration.allwomenstalk.com/surprising-benefits-of-kindness/)
 - [10 New Years Diet Resolutions Thatll Get You the B...](https://diet.allwomenstalk.com/new-years-diet-resolutions-thatll-get-you-the-body-youve-always-wanted/)
 - [Weight Loss: a New Year Resolution ...](https://allwomenstalk.com/weight-loss-a-new-year-resolution/)
 

@@ -68,16 +68,16 @@ Are you a recovered shy person? How did you get over your shyness and face the w
 
 ## Related Posts
 
-- [dating in 50s](https://love.allwomenstalk.com/the-harsh-realities-of-being-a-woman-online-and-dating-in-your-50s/)
-- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
-- [girly girl clothes](https://inspiration.allwomenstalk.com/helpful-hints-for-girls-struggling-to-be-a-girly-girl/)
-- [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
 - [cant take a hint](https://love.allwomenstalk.com/insight-for-the-girls-who-cant-take-a-hint/)
+- [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
+- [girl instincts](https://lifestyle.allwomenstalk.com/ways-to-develop-your-intuition-for-girls-wanting-to-be-more-in-tune-with-themselves/)
+- [girly girl clothes](https://inspiration.allwomenstalk.com/helpful-hints-for-girls-struggling-to-be-a-girly-girl/)
+- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
 - [open the girl](https://inspiration.allwomenstalk.com/the-ultimate-girls-guide-to-being-open-with-mom-even-when-its-hard/)
 - [sexier](https://love.allwomenstalk.com/nerdy-girls-unite-all-the-reasons-why-the-smarter-you-are-the-sexier-you-are/)
-- [life lessons every woman should know](https://inspiration.allwomenstalk.com/life-lessons-all-girls-should-learn-by-the-time-theyre-21/)
-- [girl instincts](https://lifestyle.allwomenstalk.com/ways-to-develop-your-intuition-for-girls-wanting-to-be-more-in-tune-with-themselves/)
 - [emotionally independent](https://inspiration.allwomenstalk.com/phenomenal-ways-to-become-emotionally-independent-for-girls-sick-of-feeling-like-they-have-to-rely-on-someone/)
+- [dating in 50s](https://love.allwomenstalk.com/the-harsh-realities-of-being-a-woman-online-and-dating-in-your-50s/)
+- [life lessons every woman should know](https://inspiration.allwomenstalk.com/life-lessons-all-girls-should-learn-by-the-time-theyre-21/)
 - [Empowering Tips for Girls Who Feel Anxious All the...](https://health.allwomenstalk.com/heres-how-to-stop-anxiety-from-taking-over-your-life/)
 - [7 Tricks for Girls Who Want to Build Self Confiden...](https://inspiration.allwomenstalk.com/how-to-radiate-irresistible-confidence/)
 

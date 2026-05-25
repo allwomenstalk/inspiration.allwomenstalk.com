@@ -56,16 +56,16 @@ Literature provides us with many life lessons. They range from those about love 
 
 ## Related Posts
 
-- [book quotes about new year](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
-- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
-- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
-- [dont get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
 - [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
+- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
+- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
 - [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
-- [stephen king qoutes](https://movies.allwomenstalk.com/inspirational-quotes-from-stephen-king/)
 - [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
-- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
+- [dont get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
 - [words to describe a confident person](https://inspiration.allwomenstalk.com/powerful-words-that-confident-people-always-use/)
+- [book quotes about new year](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
+- [stephen king qoutes](https://movies.allwomenstalk.com/inspirational-quotes-from-stephen-king/)
+- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
 - [7 Must Read Literary Classics ...](https://allwomenstalk.com/7-must-read-literary-classics/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

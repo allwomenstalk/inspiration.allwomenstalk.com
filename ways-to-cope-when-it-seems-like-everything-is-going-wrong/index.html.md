@@ -42,16 +42,16 @@ At some point or another, everyone has to deal with multiple problems happening 
 
 ## Related Posts
 
-- [stress management infographics](https://health.allwomenstalk.com/best-infographics-to-help-you-reduce-your-stress-levels/)
 - [how to cope with christmas alone](https://health.allwomenstalk.com/ways-to-cope-with-being-alone-at-christmas/)
-- [writers block exercises](https://lifestyle.allwomenstalk.com/effective-exercises-to-overcome-writers-block/)
-- [sad websites](https://health.allwomenstalk.com/websites-to-visit-if-youre-suffering-from-depression/)
 - [websites like lumosity](https://lifestyle.allwomenstalk.com/websites-that-will-stimulate-your-brain/)
-- [cat relaxing gif](https://health.allwomenstalk.com/feeling-stressed-these-relaxing-gifs-will-calm-you-down/)
 - [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
-- [things to do at night instead of watching tv](https://lifestyle.allwomenstalk.com/ways-to-relax-at-night-besides-watching-tv/)
+- [sad websites](https://health.allwomenstalk.com/websites-to-visit-if-youre-suffering-from-depression/)
 - [dont make me angry quote](https://inspiration.allwomenstalk.com/quotes-to-help-you-deal-with-your-anger-in-a-healthier-way/)
 - [Here Are the 7 Best Ways to Give Your Brain a Work...](https://health.allwomenstalk.com/here-are-the-best-ways-to-give-your-brain-a-workout/)
+- [cat relaxing gif](https://health.allwomenstalk.com/feeling-stressed-these-relaxing-gifs-will-calm-you-down/)
+- [things to do at night instead of watching tv](https://lifestyle.allwomenstalk.com/ways-to-relax-at-night-besides-watching-tv/)
+- [writers block exercises](https://lifestyle.allwomenstalk.com/effective-exercises-to-overcome-writers-block/)
+- [stress management infographics](https://health.allwomenstalk.com/best-infographics-to-help-you-reduce-your-stress-levels/)
 - [7 Ways to Get out of a Funk ...](https://allwomenstalk.com/7-ways-to-get-out-of-a-funk/)
 - [7 Ways to Deal with a Bad Day ...](https://allwomenstalk.com/7-ways-to-deal-with-a-bad-day/)
 

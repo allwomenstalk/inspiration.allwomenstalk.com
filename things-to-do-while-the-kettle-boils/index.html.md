@@ -44,16 +44,16 @@ I’m sure if you put your mind to it, there are lots of things you can do while
 
 ## Related Posts
 
-- [7 Frugal Ways to Attack Boredom This Weekend ...](https://money.allwomenstalk.com/frugal-ways-to-attack-boredom-this-weekend/)
-- [best infographics ever](https://lifestyle.allwomenstalk.com/best-party-infographics-for-the-best-party-ever/)
-- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
-- [Try This if You Need to Get into the Holiday Spiri...](https://inspiration.allwomenstalk.com/ways-to-get-into-the-holiday-spirit-quickly/)
+- [7 Things to do in the Shower Other than Just Wash ...](https://beauty.allwomenstalk.com/things-to-do-in-the-shower-other-than-just-wash/)
+- [7 Ways to Celebrate New Year with the Kids ...](https://parenting.allwomenstalk.com/ways-to-celebrate-new-year-with-the-kids/)
 - [kids cooking thanksgiving](https://parenting.allwomenstalk.com/ways-to-entertain-kids-while-thanksgiving-cooks/)
 - [7 Christmassy Things to do This December ...](https://lifestyle.allwomenstalk.com/christmassy-things-to-do-this-december/)
-- [things to do during winter break college students](https://lifestyle.allwomenstalk.com/fun-ideas-for-students-stuck-on-campus-during-winter-break/)
-- [7 Things to do in the Shower Other than Just Wash ...](https://beauty.allwomenstalk.com/things-to-do-in-the-shower-other-than-just-wash/)
+- [7 Frugal Ways to Attack Boredom This Weekend ...](https://money.allwomenstalk.com/frugal-ways-to-attack-boredom-this-weekend/)
 - [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
-- [7 Ways to Celebrate New Year with the Kids ...](https://parenting.allwomenstalk.com/ways-to-celebrate-new-year-with-the-kids/)
+- [best infographics ever](https://lifestyle.allwomenstalk.com/best-party-infographics-for-the-best-party-ever/)
+- [things to do during winter break college students](https://lifestyle.allwomenstalk.com/fun-ideas-for-students-stuck-on-campus-during-winter-break/)
+- [Try This if You Need to Get into the Holiday Spiri...](https://inspiration.allwomenstalk.com/ways-to-get-into-the-holiday-spirit-quickly/)
+- [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
 - [10 Summer Activities to Keep Cool ...](https://lifestyle.allwomenstalk.com/summer-activities-to-keep-cool/)
 - [7 Ways to Have Fun This Winter ...](https://allwomenstalk.com/7-ways-to-have-fun-this-winter/)
 

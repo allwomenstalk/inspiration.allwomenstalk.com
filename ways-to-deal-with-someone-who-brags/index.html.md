@@ -42,16 +42,16 @@ Dealing with someone who brags can be difficult. What are your tips for this sit
 
 ## Related Posts
 
-- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
-- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
 - [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
 - [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
-- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
-- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
-- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
 - [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
 - [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
+- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
+- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
+- [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
+- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
+- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [7 Ways to Deal with Snobby People ...](https://allwomenstalk.com/7-ways-to-deal-with-snobby-people/)
 

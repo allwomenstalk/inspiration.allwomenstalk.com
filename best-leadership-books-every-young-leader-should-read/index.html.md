@@ -66,16 +66,16 @@ If you dream of becoming a great leader someday, then you should definitely read
 
 ## Related Posts
 
-- [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
-- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
 - [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
-- [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
-- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
-- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
+- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
+- [a classic tale](https://books.allwomenstalk.com/famous-classic-tales-and-the-lessons-they-teach-us/)
 - [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
-- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
+- [most famous romance novelists](https://books.allwomenstalk.com/of-the-greatest-romance-writers/)
 - [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
+- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
+- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
 - [jane austen movie adaptations](https://movies.allwomenstalk.com/best-adaptations-of-jane-austen-novels/)
+- [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

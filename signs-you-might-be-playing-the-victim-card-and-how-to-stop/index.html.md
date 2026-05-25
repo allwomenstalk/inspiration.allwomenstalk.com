@@ -42,16 +42,16 @@ Do you think that you play the victim card? What do you plan to do to make chang
 
 ## Related Posts
 
-- [severe weather warning](https://lifestyle.allwomenstalk.com/warning-signs-world-war-3-is-on-the-way/)
-- [signs youre ready for a baby](https://parenting.allwomenstalk.com/signs-youre-ready-to-be-a-parent/)
+- [signs you have outgrown your friends](https://lifestyle.allwomenstalk.com/signs-youve-outgrown-your-friends/)
 - [9 narcissist traits](https://inspiration.allwomenstalk.com/signs-you-are-a-narcissist/)
-- [signs of a great manager](https://money.allwomenstalk.com/signs-you-have-a-good-boss/)
+- [my friends jot mom](https://lifestyle.allwomenstalk.com/signs-youre-the-mom-of-your-friend-group/)
+- [what is a bibliophile](https://books.allwomenstalk.com/sure-signs-youre-a-bibliophile/)
+- [how often should you wash your jeans](https://fashion.allwomenstalk.com/signs-you-may-be-wearing-too-much-of-one-color/)
+- [signs youre ready for a baby](https://parenting.allwomenstalk.com/signs-youre-ready-to-be-a-parent/)
 - [baser instincts meaning](https://lifestyle.allwomenstalk.com/signs-you-are-still-ruled-by-your-base-instincts/)
 - [signs your boyfriend wants you to lose weight](https://diet.allwomenstalk.com/signs-your-friends-are-making-you-fat/)
-- [signs you have outgrown your friends](https://lifestyle.allwomenstalk.com/signs-youve-outgrown-your-friends/)
-- [how often should you wash your jeans](https://fashion.allwomenstalk.com/signs-you-may-be-wearing-too-much-of-one-color/)
-- [what is a bibliophile](https://books.allwomenstalk.com/sure-signs-youre-a-bibliophile/)
-- [my friends jot mom](https://lifestyle.allwomenstalk.com/signs-youre-the-mom-of-your-friend-group/)
+- [signs of a great manager](https://money.allwomenstalk.com/signs-you-have-a-good-boss/)
+- [severe weather warning](https://lifestyle.allwomenstalk.com/warning-signs-world-war-3-is-on-the-way/)
 - [10 Signs Hes Playing Games ...](https://allwomenstalk.com/10-signs-hes-playing-games/)
 - [7 Signs You Might Be Being Played by a Womanizer ....](https://allwomenstalk.com/7-signs-you-might-be-being-played-by-a-womanizer/)
 

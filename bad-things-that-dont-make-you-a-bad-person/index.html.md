@@ -42,16 +42,16 @@ You don't want to keep doing something you know is wrong, but you shouldn't thin
 
 ## Related Posts
 
-- [interesting theories](https://lifestyle.allwomenstalk.com/obscure-theories-that-will-change-your-vision-of-the-world/)
+- [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
 - [calvin and hobbes box](https://books.allwomenstalk.com/things-you-can-learn-from-calvin-hobbes/)
-- [best friend comparison](https://funny.allwomenstalk.com/differences-between-friends-and-bffs/)
 - [dislikes of a person](https://inspiration.allwomenstalk.com/traits-you-hate-about-yourself-that-are-actually-positive/)
+- [what makes a good town](https://lifestyle.allwomenstalk.com/neighborly-traits-small-town-people-possess/)
+- [best friend comparison](https://funny.allwomenstalk.com/differences-between-friends-and-bffs/)
+- [interesting theories](https://lifestyle.allwomenstalk.com/obscure-theories-that-will-change-your-vision-of-the-world/)
+- [it wont matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
 - [misconceptions of extroverts](https://inspiration.allwomenstalk.com/common-misconceptions-about-extroverts/)
 - [jamila lyiscott ted talk](https://teen.allwomenstalk.com/ted-talks-every-teen-should-watch/)
-- [what makes a good town](https://lifestyle.allwomenstalk.com/neighborly-traits-small-town-people-possess/)
-- [it wont matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
 - [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
-- [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
 - [7 Things That Are Not so Hot ...](https://allwomenstalk.com/7-things-that-are-not-so-hot/)
 - [7 Bad Social Behaviors Nobody Should Be Exposed to...](https://allwomenstalk.com/7-bad-social-behaviors-nobody-should-be-exposed-to/)
 

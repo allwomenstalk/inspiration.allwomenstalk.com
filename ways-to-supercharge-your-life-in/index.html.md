@@ -43,15 +43,15 @@ I’d love to hear about what you’re all doing this year to supercharge your o
 ## Related Posts
 
 - [small acts of courage](https://inspiration.allwomenstalk.com/little-acts-of-bravery-you-should-commit-each-day/)
-- [how to form a good habit](https://inspiration.allwomenstalk.com/important-steps-to-form-a-good-habit/)
-- [how to be more put together](https://lifestyle.allwomenstalk.com/quick-tips-for-being-more-put-together-on-a-daily-basis/)
-- [how to seize the day](https://inspiration.allwomenstalk.com/ways-to-seize-the-day-and-make-the-most-of-it/)
-- [quotes about leaving negativity behind](https://inspiration.allwomenstalk.com/ways-to-attract-positivity-and-leave-negativity-behind/)
 - [morning notes](https://inspiration.allwomenstalk.com/things-to-write-down-every-morning-to-have-a-great-day/)
-- [what a great year](https://inspiration.allwomenstalk.com/ways-to-have-a-great-year/)
 - [how to stick to commitments](https://inspiration.allwomenstalk.com/ways-to-stick-to-a-commitment-when-you-are-lacking-motivation/)
+- [how to seize the day](https://inspiration.allwomenstalk.com/ways-to-seize-the-day-and-make-the-most-of-it/)
+- [how to form a good habit](https://inspiration.allwomenstalk.com/important-steps-to-form-a-good-habit/)
 - [how to write planner](https://lifestyle.allwomenstalk.com/things-to-write-in-your-planner-this-year/)
 - [how to get rid of old habits](https://inspiration.allwomenstalk.com/inspirational-tips-to-help-you-get-rid-of-old-habits-for-good/)
+- [quotes about leaving negativity behind](https://inspiration.allwomenstalk.com/ways-to-attract-positivity-and-leave-negativity-behind/)
+- [how to be more put together](https://lifestyle.allwomenstalk.com/quick-tips-for-being-more-put-together-on-a-daily-basis/)
+- [what a great year](https://inspiration.allwomenstalk.com/ways-to-have-a-great-year/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 - [7 Challenges to Spice up Your Life ...](https://allwomenstalk.com/7-challenges-to-spice-up-your-life/)
 

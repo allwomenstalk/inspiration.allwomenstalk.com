@@ -56,16 +56,16 @@ I know many of you, myself included, struggle with speaking clearly. It doesn't 
 
 ## Related Posts
 
-- [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
-- [word for being happy for someone elses success](https://inspiration.allwomenstalk.com/simple-ways-to-bring-joy-to-others/)
-- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
-- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
-- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
 - [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
-- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
-- [beautiful activity](https://inspiration.allwomenstalk.com/simple-activities-that-make-life-more-beautiful/)
-- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
+- [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
+- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
+- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
 - [future enjoy love](https://money.allwomenstalk.com/ways-to-enjoy-life-today-while-saving-for-the-future/)
+- [word for being happy for someone elses success](https://inspiration.allwomenstalk.com/simple-ways-to-bring-joy-to-others/)
+- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
+- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
+- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
+- [beautiful activity](https://inspiration.allwomenstalk.com/simple-activities-that-make-life-more-beautiful/)
 - [7 Tips on Public Speaking ...](https://allwomenstalk.com/7-tips-on-public-speaking/)
 - [7 Tips to Improve Your Writing Skills ...](https://allwomenstalk.com/7-tips-to-improve-your-writing-skills/)
 

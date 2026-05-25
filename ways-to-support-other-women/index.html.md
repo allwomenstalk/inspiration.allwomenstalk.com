@@ -72,16 +72,16 @@ Supporting women means supporting yourself. Take time for yourself. Love yoursel
 
 ## Related Posts
 
-- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
-- [bridget jones quotes](https://funny.allwomenstalk.com/why-every-woman-really-is-bridget-jones/)
-- [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
-- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
-- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
 - [genius women](https://inspiration.allwomenstalk.com/genius-women-everyone-should-know-about/)
-- [baby girl names korean](https://lifestyle.allwomenstalk.com/korean-girl-names/)
 - [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
+- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
+- [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
+- [bridget jones quotes](https://funny.allwomenstalk.com/why-every-woman-really-is-bridget-jones/)
+- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
 - [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
 - [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
+- [baby girl names korean](https://lifestyle.allwomenstalk.com/korean-girl-names/)
+- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
 - [8 Excellent Ways to Support a Friend in Trouble .....](https://lifestyle.allwomenstalk.com/excellent-ways-to-support-a-friend-in-trouble/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 

@@ -42,14 +42,14 @@ I hope some of these tips will help you to stay motivated this year - I know I'l
 
 ## Related Posts
 
+- [how to sound professional on the phone](https://lifestyle.allwomenstalk.com/easy-ways-to-sound-more-professional/)
+- [surefire event staffing](https://money.allwomenstalk.com/surefire-ways-to-get-that-promotion-this-year/)
+- [value in work](https://money.allwomenstalk.com/essential-work-values-employers-look-for/)
+- [advantages of working in different industries](https://lifestyle.allwomenstalk.com/advantages-of-working-for-an-employer/)
+- [competition at work](https://lifestyle.allwomenstalk.com/ways-to-deal-with-competition-at-work/)
 - [things to know before a job interview](https://money.allwomenstalk.com/things-to-know-before-your-job-interview/)
 - [job dignity](https://money.allwomenstalk.com/ways-to-resign-from-your-job-with-dignity/)
-- [value in work](https://money.allwomenstalk.com/essential-work-values-employers-look-for/)
-- [how to sound professional on the phone](https://lifestyle.allwomenstalk.com/easy-ways-to-sound-more-professional/)
 - [how to get job references](https://money.allwomenstalk.com/easy-tips-to-help-you-get-a-new-job-without-references/)
-- [advantages of working in different industries](https://lifestyle.allwomenstalk.com/advantages-of-working-for-an-employer/)
-- [surefire event staffing](https://money.allwomenstalk.com/surefire-ways-to-get-that-promotion-this-year/)
-- [competition at work](https://lifestyle.allwomenstalk.com/ways-to-deal-with-competition-at-work/)
 - [when is the syep lottery](https://teen.allwomenstalk.com/types-of-jobs-you-may-receive-from-syep/)
 - [how to work faster and smarter](https://lifestyle.allwomenstalk.com/ways-to-work-smarter-and-faster-on-your-computer/)
 - [7 Tips for a Successful Freelancing Career ...](https://allwomenstalk.com/7-tips-for-a-successful-freelancing-career/)

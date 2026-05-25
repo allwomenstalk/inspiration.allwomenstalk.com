@@ -46,16 +46,16 @@ Are you friends with someone that displays negative personality traits? Have you
 
 ## Related Posts
 
-- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
-- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
 - [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
+- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
+- [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
+- [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
+- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
 - [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
 - [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
-- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
-- [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
-- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
 - [7 Negative Influences to Remove from Your Life ...](https://lifestyle.allwomenstalk.com/negative-influences-to-remove-from-your-life/)
 - [8 Items You Really Should Discard ...](https://allwomenstalk.com/8-items-you-really-should-discard/)
 

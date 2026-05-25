@@ -44,16 +44,16 @@ If you need to learn how to be more charming, you will have to put in a little w
 
 ## Related Posts
 
-- [how to get picked up at a bar](https://love.allwomenstalk.com/ways-to-get-a-guys-attention-at-a-bar/)
+- [the way to a mans heart is through his stomach](https://love.allwomenstalk.com/simple-ways-to-win-his-heart-through-his-stomach/)
 - [how to know if a girl is eyeing you](https://love.allwomenstalk.com/ways-to-get-his-attention-back-when-he-is-eyeing-another-girl/)
+- [how to subtly flirt with a guy](https://love.allwomenstalk.com/subtle-but-effective-ways-to-flirt/)
 - [how to recover from coming on too strong](https://love.allwomenstalk.com/ways-to-get-his-attention-without-coming-on-too-strong/)
+- [how to win him back](https://love.allwomenstalk.com/amazing-ways-to-win-him-back/)
+- [are you in love with him](https://love.allwomenstalk.com/ways-to-distinguish-if-you-love-him-with-your-head-or-heart/)
+- [how to get picked up at a bar](https://love.allwomenstalk.com/ways-to-get-a-guys-attention-at-a-bar/)
 - [what to text your crush at night](https://love.allwomenstalk.com/flirty-texts-to-send-your-crush-that-arent-too-forward/)
 - [how to make a man curious about you](https://love.allwomenstalk.com/ways-to-be-mysterious-and-arouse-his-curiosity/)
 - [will he ask me out quiz](https://love.allwomenstalk.com/ways-to-tell-if-he-wants-to-ask-you-out/)
-- [are you in love with him](https://love.allwomenstalk.com/ways-to-distinguish-if-you-love-him-with-your-head-or-heart/)
-- [how to win him back](https://love.allwomenstalk.com/amazing-ways-to-win-him-back/)
-- [how to subtly flirt with a guy](https://love.allwomenstalk.com/subtle-but-effective-ways-to-flirt/)
-- [the way to a mans heart is through his stomach](https://love.allwomenstalk.com/simple-ways-to-win-his-heart-through-his-stomach/)
 - [7 Tips on How to Be a Lady ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-a-lady/)
 - [7 Positively Useful Tips on How to Flirt Online .....](https://love.allwomenstalk.com/positively-useful-tips-on-how-to-flirt-online/)
 

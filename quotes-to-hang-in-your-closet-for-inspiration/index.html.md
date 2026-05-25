@@ -42,16 +42,16 @@ I feel like this list is sparkling with inspiration. It’s a set of quotes that
 
 ## Related Posts
 
-- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
-- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
-- [quote about mermaids](https://inspiration.allwomenstalk.com/intense-and-beautiful-quotes-inspired-by-mermaids/)
+- [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
 - [quotes himym](https://inspiration.allwomenstalk.com/inspirational-quotes-from-how-i-met-your-mother/)
+- [inspirational quotes for a tough day](https://inspiration.allwomenstalk.com/inspirational-quotes-to-get-you-through-a-tough-day/)
+- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
 - [ones dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
 - [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
-- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
-- [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
-- [inspirational quotes for a tough day](https://inspiration.allwomenstalk.com/inspirational-quotes-to-get-you-through-a-tough-day/)
+- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
+- [quote about mermaids](https://inspiration.allwomenstalk.com/intense-and-beautiful-quotes-inspired-by-mermaids/)
 - [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
+- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
 - [8 Bargain Ways to Revamp Your Wardrobe ...](https://allwomenstalk.com/8-bargain-ways-to-revamp-your-wardrobe/)
 - [10 Accessories to Boost Any Outfit ...](https://allwomenstalk.com/10-accessories-to-boost-any-outfit/)
 

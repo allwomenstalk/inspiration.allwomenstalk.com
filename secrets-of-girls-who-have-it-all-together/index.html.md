@@ -56,15 +56,15 @@ How do you keep yourself together?
 
 ## Related Posts
 
-- [how to make decision when you are confused](https://inspiration.allwomenstalk.com/how-to-make-decisions-when-youre-confused/)
-- [weird things girls](https://love.allwomenstalk.com/weird-things-girls-do-when-they-have-a-crush/)
-- [cleopatra seductress](https://love.allwomenstalk.com/how-to-seduce-like-cleopatra/)
 - [learn how to stand up for yourself](https://inspiration.allwomenstalk.com/why-you-need-to-stand-up-for-yourself/)
-- [being a classy woman](https://inspiration.allwomenstalk.com/qualities-of-a-classy-lady/)
-- [coping with blushing](https://inspiration.allwomenstalk.com/ways-to-cope-with-blushing/)
-- [energy vampires quotes](https://inspiration.allwomenstalk.com/ways-to-get-rid-of-energy-vampires-from-your-life/)
-- [coping skills for girls](https://health.allwomenstalk.com/coping-skills-for-anxiety/)
+- [weird things girls](https://love.allwomenstalk.com/weird-things-girls-do-when-they-have-a-crush/)
 - [feeding your soul quotes](https://inspiration.allwomenstalk.com/ways-to-feed-your-soul/)
+- [energy vampires quotes](https://inspiration.allwomenstalk.com/ways-to-get-rid-of-energy-vampires-from-your-life/)
+- [being a classy woman](https://inspiration.allwomenstalk.com/qualities-of-a-classy-lady/)
+- [cleopatra seductress](https://love.allwomenstalk.com/how-to-seduce-like-cleopatra/)
+- [coping skills for girls](https://health.allwomenstalk.com/coping-skills-for-anxiety/)
+- [coping with blushing](https://inspiration.allwomenstalk.com/ways-to-cope-with-blushing/)
+- [how to make decision when you are confused](https://inspiration.allwomenstalk.com/how-to-make-decisions-when-youre-confused/)
 - [tracy hensel gossip](https://lifestyle.allwomenstalk.com/etiquette-tips-for-women-who-want-to-be-more-classy/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 - [The Ultimate to-do List for Every Single Girl ...](https://inspiration.allwomenstalk.com/the-ultimate-to-do-list-for-every-single-girl/)

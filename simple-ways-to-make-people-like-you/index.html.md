@@ -42,13 +42,13 @@ The key is to be authentically you, but showing an interest in others and being 
 
 ## Related Posts
 
-- [How do You Cope when You Cant Be Close to Your Mom...](https://inspiration.allwomenstalk.com/helpful-pieces-of-advice-when-you-cant-be-close-to-your-mom/)
 - [how to break shyness](https://lifestyle.allwomenstalk.com/ways-to-overcome-shyness/)
+- [7 Steps for Dealing with a Lazy Co-Worker ...](https://money.allwomenstalk.com/steps-for-dealing-with-a-lazy-co-worker/)
 - [coworker passive aggressive](https://money.allwomenstalk.com/ways-to-deal-with-passive-aggressive-co-workers/)
+- [7 Ways to Feel Less Awkward in Social Situations ....](https://inspiration.allwomenstalk.com/ways-to-feel-less-awkward-in-social-situations/)
+- [How do You Cope when You Cant Be Close to Your Mom...](https://inspiration.allwomenstalk.com/helpful-pieces-of-advice-when-you-cant-be-close-to-your-mom/)
 - [7 Ways to Help Yourself when Youre Jealous of Your...](https://inspiration.allwomenstalk.com/ways-to-help-yourself-when-youre-jealous-of-your-friends/)
 - [How to Handle Online Harassment Safely and Success...](https://lifestyle.allwomenstalk.com/ways-to-handle-online-harassment/)
-- [7 Steps for Dealing with a Lazy Co-Worker ...](https://money.allwomenstalk.com/steps-for-dealing-with-a-lazy-co-worker/)
-- [7 Ways to Feel Less Awkward in Social Situations ....](https://inspiration.allwomenstalk.com/ways-to-feel-less-awkward-in-social-situations/)
 - [giving affection](https://love.allwomenstalk.com/ways-to-show-love-if-youre-not-comfortable-giving-affection/)
 - [Do You Have a Narcissistic Parent Here Are 7 Ways ...](https://parenting.allwomenstalk.com/do-you-have-a-narcissistic-parent-here-are-ways-to-deal/)
 - [7 Things to do if Your Significant Other Hates You...](https://love.allwomenstalk.com/things-to-do-if-your-significant-other-hates-your-bff/)

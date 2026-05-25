@@ -49,16 +49,16 @@ Ladies, I urge you to take a time out today to just think about hat it means to 
 
 ## Related Posts
 
-- [Strong Women Have Always Been a Vital Component of...](https://bilbr.com/strong-women-have-always-been-a-vital-component-of-film-and-theyre-not-going-anywhere/)
-- [High Paying Occupations for Women ...](https://money.allwomenstalk.com/high-paying-occupations-for-women/)
-- [Commitments to Make on International Womens Day 20...](https://inspiration.allwomenstalk.com/commitments-to-make-on-international-womens-day/)
-- [Why More Women Are Getting into Real Estate Invest...](https://allwomenstalk.com/more-women-are-getting-into-real-estate-investment/)
-- [5 Women That Totally Changed Medicine ...](https://inspiration.allwomenstalk.com/women-that-changed-medicine/)
-- [Increase of Mental Health and Addiction in Women S...](https://allwomenstalk.com/increase-of-mental-health-and-addiction-in-women-since-covid/)
-- [3 Excellent Reasons to Invest in Female Startups](https://allwomenstalk.com/reasons-to-invest-in-female-startups/)
-- [the future of wealth is female](https://allwomenstalk.com/the-future-of-finance-is-female/)
 - [Women Doing What They Gotta do ...](https://parenting.allwomenstalk.com/women-doing-what-they-gotta-do/)
+- [High Paying Occupations for Women ...](https://money.allwomenstalk.com/high-paying-occupations-for-women/)
+- [Increase of Mental Health and Addiction in Women S...](https://allwomenstalk.com/increase-of-mental-health-and-addiction-in-women-since-covid/)
+- [Commitments to Make on International Womens Day 20...](https://inspiration.allwomenstalk.com/commitments-to-make-on-international-womens-day/)
 - [5 Top Female Leadership Strategies That Triumph at...](https://allwomenstalk.com/women-career-success-strategies/)
+- [the future of wealth is female](https://allwomenstalk.com/the-future-of-finance-is-female/)
+- [3 Excellent Reasons to Invest in Female Startups](https://allwomenstalk.com/reasons-to-invest-in-female-startups/)
+- [5 Women That Totally Changed Medicine ...](https://inspiration.allwomenstalk.com/women-that-changed-medicine/)
+- [Why More Women Are Getting into Real Estate Invest...](https://allwomenstalk.com/more-women-are-getting-into-real-estate-investment/)
+- [Strong Women Have Always Been a Vital Component of...](https://bilbr.com/strong-women-have-always-been-a-vital-component-of-film-and-theyre-not-going-anywhere/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [Happy International Womens Day](https://allwomenstalk.com/happy-international-womens-day/)
 

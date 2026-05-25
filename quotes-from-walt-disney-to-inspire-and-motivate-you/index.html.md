@@ -58,14 +58,14 @@ Watching Disney movies was one of my favorite things to do as a child. Now that 
 
 - [inspirational quotes about loving yourself](https://inspiration.allwomenstalk.com/inspiring-quotes-about-loving-yourself/)
 - [quotes from eckhart tolle](https://inspiration.allwomenstalk.com/eckhart-tolle-quotes-to-help-you-put-things-into-perspective/)
-- [book motivational quotes](https://books.allwomenstalk.com/motivational-quotes-from-books-that-celebrate-being-happy/)
-- [fear of amp](https://inspiration.allwomenstalk.com/quotes-about-courage-that-will-amp-up-your-fearlessness/)
 - [quotes close friends](https://inspiration.allwomenstalk.com/quotes-about-friendship/)
+- [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
+- [fear of amp](https://inspiration.allwomenstalk.com/quotes-about-courage-that-will-amp-up-your-fearlessness/)
+- [famous quotes from comedians](https://funny.allwomenstalk.com/quotes-from-comedians-that-will-give-you-strength-to-be-happy/)
 - [kubler ross quotes](https://inspiration.allwomenstalk.com/best-quotes-from-elizabeth-kubler-ross/)
 - [inspirational quotes from robin williams](https://celebs.allwomenstalk.com/memorable-quotes-from-robin-williams-to-celebrate-his-genius/)
-- [famous quotes from comedians](https://funny.allwomenstalk.com/quotes-from-comedians-that-will-give-you-strength-to-be-happy/)
 - [when you have exhausted all possibilities](https://inspiration.allwomenstalk.com/quotes-from-thomas-edison-for-when-you-need-encouragement/)
-- [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
+- [book motivational quotes](https://books.allwomenstalk.com/motivational-quotes-from-books-that-celebrate-being-happy/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

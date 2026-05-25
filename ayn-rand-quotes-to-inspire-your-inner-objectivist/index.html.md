@@ -43,16 +43,16 @@ Ayn Rand’s works have helped shape many brilliant minds in both our history’
 
 ## Related Posts
 
-- [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
-- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
-- [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
 - [best quotes by confucius](https://inspiration.allwomenstalk.com/philosophical-quotes-from-confucius/)
+- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
+- [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
 - [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
 - [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
-- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
+- [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
 - [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
 - [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
-- [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
+- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
+- [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [7 Inspiring Career Quotes ...](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
 

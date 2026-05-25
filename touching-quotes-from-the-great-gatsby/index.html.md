@@ -56,14 +56,14 @@ These quotes from the Great Gatsby are so profound. What are your favorite quote
 
 ## Related Posts
 
-- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
-- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
-- [ayn rand atlas shrugged quotes](https://inspiration.allwomenstalk.com/ayn-rand-quotes-to-inspire-your-inner-objectivist/)
-- [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
-- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
-- [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
 - [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
 - [the best thing one can do when its raining is to l...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
+- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
+- [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
+- [ayn rand atlas shrugged quotes](https://inspiration.allwomenstalk.com/ayn-rand-quotes-to-inspire-your-inner-objectivist/)
+- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
+- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
 - [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
 - [jane austen quote](https://books.allwomenstalk.com/expressive-quotes-from-jane-austen/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)

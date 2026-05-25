@@ -54,16 +54,16 @@ These’re some ways to handle a friendship that’s falling apart. Have you bee
 
 ## Related Posts
 
+- [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
+- [the secret of friendship](https://lifestyle.allwomenstalk.com/the-secret-to-making-friends-without-really-trying/)
+- [why do men never approach me](https://lifestyle.allwomenstalk.com/ways-to-discourage-people-from-approaching-you-in-public/)
+- [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
+- [musculing](https://love.allwomenstalk.com/ways-to-cope-when-your-bfs-bromance-is-musculing-in-on-your-relationship/)
+- [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
+- [what to say to bride to be](https://wedding.allwomenstalk.com/how-to-say-no-to-the-bride-without-pissing-her-off/)
+- [someone cool](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-you-really-just-want-to-slap-someone/)
 - [losing it rn bestie](https://lifestyle.allwomenstalk.com/ways-to-deal-when-you-and-your-bestie-arent-friends-anymore/)
 - [how to use 48 laws of power](https://lifestyle.allwomenstalk.com/how-to-win-an-argument-with-someone-who-is-never-wrong/)
-- [why do men never approach me](https://lifestyle.allwomenstalk.com/ways-to-discourage-people-from-approaching-you-in-public/)
-- [the secret of friendship](https://lifestyle.allwomenstalk.com/the-secret-to-making-friends-without-really-trying/)
-- [what to say to bride to be](https://wedding.allwomenstalk.com/how-to-say-no-to-the-bride-without-pissing-her-off/)
-- [musculing](https://love.allwomenstalk.com/ways-to-cope-when-your-bfs-bromance-is-musculing-in-on-your-relationship/)
-- [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
-- [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
-- [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
-- [someone cool](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-you-really-just-want-to-slap-someone/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Deal with Mutual Friends after a Breakup...](https://allwomenstalk.com/7-ways-to-deal-with-mutual-friends-after-a-breakup/)
 

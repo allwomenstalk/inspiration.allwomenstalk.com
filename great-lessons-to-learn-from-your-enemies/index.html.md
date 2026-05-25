@@ -42,16 +42,16 @@ While none of us might want enemies, we'll all have to deal with them at some po
 
 ## Related Posts
 
-- [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
-- [youre not a bad person its just a bad world](https://inspiration.allwomenstalk.com/bad-things-that-dont-make-you-a-bad-person/)
-- [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
 - [interesting theories](https://lifestyle.allwomenstalk.com/obscure-theories-that-will-change-your-vision-of-the-world/)
-- [it wont matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
+- [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
 - [what makes a good town](https://lifestyle.allwomenstalk.com/neighborly-traits-small-town-people-possess/)
 - [best friend comparison](https://funny.allwomenstalk.com/differences-between-friends-and-bffs/)
+- [youre not a bad person its just a bad world](https://inspiration.allwomenstalk.com/bad-things-that-dont-make-you-a-bad-person/)
 - [misconceptions of extroverts](https://inspiration.allwomenstalk.com/common-misconceptions-about-extroverts/)
-- [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
+- [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
+- [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
 - [jamila lyiscott ted talk](https://teen.allwomenstalk.com/ted-talks-every-teen-should-watch/)
+- [it wont matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
 - [8 Lessons We Can Learn from past Relationships ...](https://love.allwomenstalk.com/lessons-we-can-learn-from-past-relationships/)
 - [7 Steps to Forgive Others ...](https://health.allwomenstalk.com/steps-to-forgive-others/)
 

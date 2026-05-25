@@ -47,16 +47,16 @@ Sometimes we are our own worst enemy because instead of working towards making o
 
 ## Related Posts
 
-- [totally for teens](https://teen.allwomenstalk.com/things-teens-should-never-be-ashamed-of/)
-- [how to think effectively](https://inspiration.allwomenstalk.com/surprising-things-you-never-knew-on-how-to-think-effectively/)
-- [what makes a person indecisive](https://lifestyle.allwomenstalk.com/things-only-majorly-indecisive-individuals-understand/)
-- [benefit of constructive criticism](https://inspiration.allwomenstalk.com/very-good-reasons-you-should-learn-to-take-constructive-criticism/)
-- [types of development](https://health.allwomenstalk.com/types-of-development-that-affect-you-as-you-grow/)
 - [things that frustrate you at work](https://lifestyle.allwomenstalk.com/frustrating-things-that-come-with-a-leadership-position/)
+- [types of development](https://health.allwomenstalk.com/types-of-development-that-affect-you-as-you-grow/)
+- [benefit of constructive criticism](https://inspiration.allwomenstalk.com/very-good-reasons-you-should-learn-to-take-constructive-criticism/)
 - [lessons from disney](https://movies.allwomenstalk.com/life-lessons-to-learn-from-disney-villians/)
 - [the wealthy barber review](https://money.allwomenstalk.com/lessons-to-memorize-from-the-wealthy-barber-returns/)
-- [different types of procrastination](https://lifestyle.allwomenstalk.com/very-common-types-of-procrastination/)
 - [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
+- [how to think effectively](https://inspiration.allwomenstalk.com/surprising-things-you-never-knew-on-how-to-think-effectively/)
+- [different types of procrastination](https://lifestyle.allwomenstalk.com/very-common-types-of-procrastination/)
+- [totally for teens](https://teen.allwomenstalk.com/things-teens-should-never-be-ashamed-of/)
+- [what makes a person indecisive](https://lifestyle.allwomenstalk.com/things-only-majorly-indecisive-individuals-understand/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 - [10 Things You Need to Stop Doing in Your Everyday ...](https://allwomenstalk.com/10-things-you-need-to-stop-doing-in-your-everyday-life/)
 

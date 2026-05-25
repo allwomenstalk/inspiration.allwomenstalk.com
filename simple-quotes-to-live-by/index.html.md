@@ -42,16 +42,16 @@ I have many quotes that I love and keep in mind during good and bad times in my 
 
 ## Related Posts
 
-- [teenage friendship quotes](https://teen.allwomenstalk.com/life-quotes-for-teenagers-to-abide-by/)
-- [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
+- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [in every disaster there is an opportunity](https://inspiration.allwomenstalk.com/motivational-quotes-from-john-d-rockefeller/)
 - [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
-- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
+- [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
 - [did hazel and augustus sleep together](https://books.allwomenstalk.com/quotes-from-the-fault-in-our-stars-that-will-become-embedded-in-your-mind-forever/)
 - [einstein quotes about change](https://inspiration.allwomenstalk.com/most-inspiring-quotes-from-albert-einstein-to-help-you-get-back-on-your-feet/)
 - [quotes to lift your spirits](https://inspiration.allwomenstalk.com/quotes-from-friends-that-will-lift-your-spirits/)
-- [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
+- [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
+- [teenage friendship quotes](https://teen.allwomenstalk.com/life-quotes-for-teenagers-to-abide-by/)
 - [7 Celebrity Quotes We Should Actually Live by ...](https://celebs.allwomenstalk.com/celebrity-quotes-we-should-actually-live-by/)
 - [7 Inspiring Career Quotes ...](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
 

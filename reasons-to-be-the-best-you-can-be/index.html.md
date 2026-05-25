@@ -42,16 +42,16 @@ I hope my words have helped you to realize you can be anything you want to be an
 
 ## Related Posts
 
-- [why you should swim](https://health.allwomenstalk.com/extremely-good-reasons-you-should-be-swimming/)
-- [7 Reasons to Head to the Library ASAP ...](https://books.allwomenstalk.com/reasons-to-head-to-the-library-asap/)
-- [7 Reasons Why You Need a Good Friend at Work ...](https://lifestyle.allwomenstalk.com/reasons-why-you-need-a-good-friend-at-work/)
-- [7 Smart Reasons Why You Should Read More ...](https://books.allwomenstalk.com/smart-reasons-why-you-should-read-more/)
-- [reasons to renew wedding vows](https://love.allwomenstalk.com/wonderful-reasons-to-renew-your-vows/)
-- [7 Great Reasons to Pick Your Own Fruit at Local Fa...](https://food.allwomenstalk.com/great-reasons-to-pick-your-own-fruit-at-local-farms/)
 - [7 Brilliant Reasons to do NaNoWriMo ...](https://books.allwomenstalk.com/brilliant-reasons-to-do-nanowrimo/)
-- [10 TOP REASONS to FEEL BODY CONFIDENT ...](https://fitness.allwomenstalk.com/top-reasons-to-feel-body-confident/)
-- [7 Reasons Why Runners Have a Lower Risk of Osteoar...](https://running.allwomenstalk.com/reasons-why-runners-have-a-lower-risk-of-osteoarthritis/)
+- [7 Reasons Why You Need a Good Friend at Work ...](https://lifestyle.allwomenstalk.com/reasons-why-you-need-a-good-friend-at-work/)
+- [reasons to renew wedding vows](https://love.allwomenstalk.com/wonderful-reasons-to-renew-your-vows/)
 - [7 Reasons to Run the NYC Marathon ...](https://running.allwomenstalk.com/reasons-to-run-the-nyc-marathon/)
+- [7 Smart Reasons Why You Should Read More ...](https://books.allwomenstalk.com/smart-reasons-why-you-should-read-more/)
+- [why you should swim](https://health.allwomenstalk.com/extremely-good-reasons-you-should-be-swimming/)
+- [7 Reasons Why Runners Have a Lower Risk of Osteoar...](https://running.allwomenstalk.com/reasons-why-runners-have-a-lower-risk-of-osteoarthritis/)
+- [7 Reasons to Head to the Library ASAP ...](https://books.allwomenstalk.com/reasons-to-head-to-the-library-asap/)
+- [10 TOP REASONS to FEEL BODY CONFIDENT ...](https://fitness.allwomenstalk.com/top-reasons-to-feel-body-confident/)
+- [7 Great Reasons to Pick Your Own Fruit at Local Fa...](https://food.allwomenstalk.com/great-reasons-to-pick-your-own-fruit-at-local-farms/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [5 Ways to Be the Best Version of Yourself ...](https://allwomenstalk.com/ways-to-be-the-best-version-of-yourself/)
 

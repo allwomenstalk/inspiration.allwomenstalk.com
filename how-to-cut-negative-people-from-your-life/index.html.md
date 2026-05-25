@@ -40,16 +40,16 @@ For each negative person in your life that you let go of, fill that space in wit
 
 ## Related Posts
 
-- [7 Ways to Deal with His Overprotective Mum ...](https://7fun.net/7-ways-to-deal-with-his-overprotective-mum/)
 - [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
-- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
-- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
+- [7 Ways to Deal with His Overprotective Mum ...](https://7fun.net/7-ways-to-deal-with-his-overprotective-mum/)
 - [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
-- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
 - [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
-- [8 Ways to Spot a New BFF ...](https://allwomenstalk.com/8-ways-to-spot-a-new-bff/)
 - [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
+- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
 - [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
+- [8 Ways to Spot a New BFF ...](https://allwomenstalk.com/8-ways-to-spot-a-new-bff/)
+- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
 - [10 Ways to Deal with Negative People ...](https://allwomenstalk.com/10-ways-to-deal-with-negative-people/)
 - [7 Ways to Deal with Negative People ...](https://health.allwomenstalk.com/ways-to-deal-with-negative-people/)
 

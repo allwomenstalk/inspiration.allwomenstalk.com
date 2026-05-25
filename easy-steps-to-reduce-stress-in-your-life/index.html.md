@@ -42,16 +42,16 @@ These are my top 7 tips for reducing stress but there are loads more out there, 
 
 ## Related Posts
 
+- [mental health mantras](https://health.allwomenstalk.com/mantras-to-keep-in-mind-when-recovering-from-mental-illness/)
 - [the mood cure supplement list](https://books.allwomenstalk.com/things-i-love-about-the-mood-cure-by-julia-ross/)
-- [what to do when you are unemployed and depressed](https://money.allwomenstalk.com/best-ways-to-overcome-unemployment-depression/)
-- [i feel high without being high](https://lifestyle.allwomenstalk.com/ways-to-feel-high-without-drugs-or-alcohol/)
-- [is venting good for you](https://lifestyle.allwomenstalk.com/ways-venting-helps-when-youre-really-frustrated/)
-- [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
 - [craft hobbies for anxiety](https://diy.allwomenstalk.com/art-therapy-projects-you-can-do-to-help-you-recover-from-your-mental-illness/)
 - [how to stop a meltdown](https://parenting.allwomenstalk.com/ways-to-stop-a-meltdown-in-its-tracks/)
-- [how to heal yourself emotionally](https://inspiration.allwomenstalk.com/ways-to-emotionally-heal-yourself-and-be-set-free/)
 - [unproductive work day](https://lifestyle.allwomenstalk.com/interesting-ways-to-rescue-an-unproductive-day/)
-- [mental health mantras](https://health.allwomenstalk.com/mantras-to-keep-in-mind-when-recovering-from-mental-illness/)
+- [is venting good for you](https://lifestyle.allwomenstalk.com/ways-venting-helps-when-youre-really-frustrated/)
+- [i feel high without being high](https://lifestyle.allwomenstalk.com/ways-to-feel-high-without-drugs-or-alcohol/)
+- [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
+- [how to heal yourself emotionally](https://inspiration.allwomenstalk.com/ways-to-emotionally-heal-yourself-and-be-set-free/)
+- [what to do when you are unemployed and depressed](https://money.allwomenstalk.com/best-ways-to-overcome-unemployment-depression/)
 - [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
 - [5 Things for a Stress Free Life ...](https://allwomenstalk.com/the-top-5-things-for-a-stress-free-life/)
 

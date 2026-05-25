@@ -100,16 +100,16 @@ I keep a notebook full of my favorite quotes and a document on my PC. When I’m
 
 ## Related Posts
 
-- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
-- [dont be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
-- [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
-- [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
+- [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
+- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 - [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
 - [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
+- [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
 - [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
-- [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
+- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [dont be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

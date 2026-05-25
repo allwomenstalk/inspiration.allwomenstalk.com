@@ -42,16 +42,16 @@ Mary Poppins may be a fictional character, but the lessons she teaches are very 
 
 ## Related Posts
 
-- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
-- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
-- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
-- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
-- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
 - [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
+- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
+- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
 - [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
+- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
+- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
+- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
 - [8 Life Lessons They Should Teach in School ...](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [8 Sobering but Simple Lessons in Life We Can Learn...](https://lifestyle.allwomenstalk.com/sobering-but-simple-lessons-in-life-we-can-learn-from-children/)
 

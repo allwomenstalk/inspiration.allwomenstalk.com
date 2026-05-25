@@ -42,16 +42,16 @@ A lot of us think about the cons of being spontaneous and fearless. It is import
 
 ## Related Posts
 
-- [to pursue education](https://inspiration.allwomenstalk.com/outstanding-reasons-for-women-to-pursue-an-education/)
-- [benefits of being an extrovert](https://inspiration.allwomenstalk.com/valuable-reasons-why-its-time-to-become-an-extrovert/)
-- [staycation](https://travel.allwomenstalk.com/reasons-why-staycations-rock-and-why-you-should-try-it/)
 - [reading is wonderful](https://books.allwomenstalk.com/wonderful-reasons-why-reading-is-so-important-to-your-development/)
 - [second marriage](https://love.allwomenstalk.com/undeniable-advantages-of-a-second-marriage/)
-- [what are you looking forward for this school year](https://parenting.allwomenstalk.com/reasons-to-look-forward-to-the-kids-going-back-to-school/)
-- [reason for going abroad for employment](https://travel.allwomenstalk.com/wonderful-reasons-to-work-abroad-and-get-out-of-your-comfort-zone/)
-- [drama clubs](https://lifestyle.allwomenstalk.com/amazing-benefits-of-joining-a-drama-class/)
-- [what are some of the advantages of living in a cit...](https://lifestyle.allwomenstalk.com/amazing-advantages-of-city-living/)
+- [benefits of being an extrovert](https://inspiration.allwomenstalk.com/valuable-reasons-why-its-time-to-become-an-extrovert/)
 - [cant dance coffee](https://lifestyle.allwomenstalk.com/great-reasons-why-you-should-dance-even-if-you-cant/)
+- [staycation](https://travel.allwomenstalk.com/reasons-why-staycations-rock-and-why-you-should-try-it/)
+- [drama clubs](https://lifestyle.allwomenstalk.com/amazing-benefits-of-joining-a-drama-class/)
+- [reason for going abroad for employment](https://travel.allwomenstalk.com/wonderful-reasons-to-work-abroad-and-get-out-of-your-comfort-zone/)
+- [what are some of the advantages of living in a cit...](https://lifestyle.allwomenstalk.com/amazing-advantages-of-city-living/)
+- [to pursue education](https://inspiration.allwomenstalk.com/outstanding-reasons-for-women-to-pursue-an-education/)
+- [what are you looking forward for this school year](https://parenting.allwomenstalk.com/reasons-to-look-forward-to-the-kids-going-back-to-school/)
 - [10 Reasons to Smile in Life ...](https://allwomenstalk.com/10-reasons-to-smile-in-life/)
 - [7 Reasons to Love Traveling ...](https://allwomenstalk.com/7-reasons-to-love-traveling/)
 

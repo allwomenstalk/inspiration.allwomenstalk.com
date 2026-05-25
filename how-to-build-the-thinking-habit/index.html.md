@@ -28,16 +28,16 @@ Get into the habit of keeping a journal in which you can write down all of your 
 
 ## Related Posts
 
-- [Brilliant Ways to Gain Confidence ...](https://inspiration.allwomenstalk.com/ways-to-gain-confidence/)
-- [15 Great Ways to Be a Better Person ...](https://inspiration.allwomenstalk.com/ways-to-be-a-better-person/)
-- [3 Ways to Rocket Boost Your Self Esteem ...](https://inspiration.allwomenstalk.com/ways-to-boost-self-esteem/)
-- [Things That Will Make You a Better Person ...](https://inspiration.allwomenstalk.com/things-that-will-make-you-a-better-person-2/)
-- [5 Effective Habits of Positive People We All Shoul...](https://inspiration.allwomenstalk.com/effective-habits-of-positive-people/)
-- [Brilliant Ideas on Causes of Low Self-Esteem and H...](https://inspiration.allwomenstalk.com/causes-of-low-self-esteem/)
+- [How to Build Confidence from a Base of Zero 0 ...](https://inspiration.allwomenstalk.com/how-to-build-confidence-from-a-base-of-zero-0/)
 - [Inspiration on How to Fall in Love with Yourself ....](https://inspiration.allwomenstalk.com/how-to-fall-in-love-with-yourself/)
 - [Awesome Ways to Keep Your Creative Juices Flowing ...](https://inspiration.allwomenstalk.com/ways-to-keep-your-creative-juices-flowing/)
-- [How to Build Confidence from a Base of Zero 0 ...](https://inspiration.allwomenstalk.com/how-to-build-confidence-from-a-base-of-zero-0/)
 - [The Importance of Loving Yourself ...](https://inspiration.allwomenstalk.com/the-importance-of-loving-yourself/)
+- [3 Ways to Rocket Boost Your Self Esteem ...](https://inspiration.allwomenstalk.com/ways-to-boost-self-esteem/)
+- [15 Great Ways to Be a Better Person ...](https://inspiration.allwomenstalk.com/ways-to-be-a-better-person/)
+- [5 Effective Habits of Positive People We All Shoul...](https://inspiration.allwomenstalk.com/effective-habits-of-positive-people/)
+- [Brilliant Ideas on Causes of Low Self-Esteem and H...](https://inspiration.allwomenstalk.com/causes-of-low-self-esteem/)
+- [Things That Will Make You a Better Person ...](https://inspiration.allwomenstalk.com/things-that-will-make-you-a-better-person-2/)
+- [Brilliant Ways to Gain Confidence ...](https://inspiration.allwomenstalk.com/ways-to-gain-confidence/)
 - [7 Habits of Positive People That You Can Implement...](https://inspiration.allwomenstalk.com/habits-of-positive-people-that-you-can-implement-starting-today/)
 - [7 Simple Ways to Harness the Power of Positive Thi...](https://inspiration.allwomenstalk.com/simple-ways-to-harness-the-power-of-positive-thinking/)
 

@@ -42,16 +42,16 @@ I think we often forget to stop and smell the roses, so to speak, in the busines
 
 ## Related Posts
 
-- [what do people think about all day](https://inspiration.allwomenstalk.com/positive-thoughts-to-think-all-day-every-day/)
-- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
-- [live the life to its fullest](https://lifestyle.allwomenstalk.com/rules-to-follow-to-live-life-to-the-fullest/)
 - [make peace with the woman you once were](https://inspiration.allwomenstalk.com/ways-to-make-peace-with-whom-you-are/)
+- [what do people think about all day](https://inspiration.allwomenstalk.com/positive-thoughts-to-think-all-day-every-day/)
 - [word for being happy for someone elses success](https://inspiration.allwomenstalk.com/simple-ways-to-bring-joy-to-others/)
-- [changing from one thing to another](https://inspiration.allwomenstalk.com/ways-to-change-in-life/)
 - [how can you improve your community](https://inspiration.allwomenstalk.com/ways-to-contribute-to-your-community/)
-- [future enjoy love](https://money.allwomenstalk.com/ways-to-enjoy-life-today-while-saving-for-the-future/)
-- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
 - [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
+- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
+- [live the life to its fullest](https://lifestyle.allwomenstalk.com/rules-to-follow-to-live-life-to-the-fullest/)
+- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
+- [future enjoy love](https://money.allwomenstalk.com/ways-to-enjoy-life-today-while-saving-for-the-future/)
+- [changing from one thing to another](https://inspiration.allwomenstalk.com/ways-to-change-in-life/)
 - [5 Ways to Prettify Your Life...](https://allwomenstalk.com/5-ways-to-prettify-your-life/)
 - [7 Challenges to Spice up Your Life ...](https://allwomenstalk.com/7-challenges-to-spice-up-your-life/)
 

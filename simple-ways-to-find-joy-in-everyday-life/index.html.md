@@ -42,16 +42,16 @@ Finding joy in life in the simplest of ways is one of the greatest pleasures. It
 
 ## Related Posts
 
-- [7 Easy Ways to Be Smarter ...](https://inspiration.allwomenstalk.com/easy-ways-to-be-smarter/)
 - [7 Ways to Become More Patient That Will Lead to a ...](https://inspiration.allwomenstalk.com/ways-to-become-more-patient-that-will-lead-to-a-happier-life/)
-- [7 Bad Habits That Are Actually Good for You ...](https://health.allwomenstalk.com/bad-habits-that-are-actually-good-for-you/)
-- [11 Changes to Make Today for Better Health Tomorro...](https://health.allwomenstalk.com/changes-to-make-today-for-better-health-tomorrow/)
-- [7 Bold Ways to Face Your Fears This Year ...](https://inspiration.allwomenstalk.com/bold-ways-to-face-your-fears-this-year/)
 - [never give up on your goals](https://inspiration.allwomenstalk.com/tips-on-how-to-never-give-up-on-your-goals/)
+- [7 Easy Ways to Be Smarter ...](https://inspiration.allwomenstalk.com/easy-ways-to-be-smarter/)
 - [11 Empowering Tips from Successful People ...](https://inspiration.allwomenstalk.com/empowering-tips-from-successful-people/)
-- [7  Worthwhile Ways to Create Your Own Happiness .....](https://inspiration.allwomenstalk.com/worthwhile-ways-to-create-your-own-happiness/)
+- [7 Bad Habits That Are Actually Good for You ...](https://health.allwomenstalk.com/bad-habits-that-are-actually-good-for-you/)
 - [7 Fool-Proof Ways to Overcome Self Doubt ...](https://inspiration.allwomenstalk.com/fool-proof-ways-to-overcome-self-doubt/)
+- [11 Changes to Make Today for Better Health Tomorro...](https://health.allwomenstalk.com/changes-to-make-today-for-better-health-tomorrow/)
+- [7  Worthwhile Ways to Create Your Own Happiness .....](https://inspiration.allwomenstalk.com/worthwhile-ways-to-create-your-own-happiness/)
 - [7 Everyday Things You Can do to Help the World aro...](https://inspiration.allwomenstalk.com/everyday-things-you-can-do-to-help-the-world-around-you/)
+- [7 Bold Ways to Face Your Fears This Year ...](https://inspiration.allwomenstalk.com/bold-ways-to-face-your-fears-this-year/)
 - [10 Ways to Make Yourself Feel Happier Every Day .....](https://allwomenstalk.com/10-ways-to-make-yourself-feel-happier-every-day/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 

@@ -42,16 +42,16 @@ These are 7 things to love about yourself if you’re a Gemini. Are any of these
 
 ## Related Posts
 
-- [the best horoscope site](https://lifestyle.allwomenstalk.com/best-websites-for-checking-your-horoscope/)
-- [things pisces like](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-pisces/)
 - [are aquarius indecisive](https://inspiration.allwomenstalk.com/challenging-libra-traits-and-how-to-overcome-them/)
-- [what do scorpios like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-scorpio/)
+- [the best horoscope site](https://lifestyle.allwomenstalk.com/best-websites-for-checking-your-horoscope/)
 - [virgo moody](https://inspiration.allwomenstalk.com/challenging-virgo-traits-and-how-to-overcome-them/)
 - [what do capricorns like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-capricorn/)
-- [sagittarius personality](https://inspiration.allwomenstalk.com/challenging-sagittarius-traits-and-how-to-overcome-them/)
 - [are leos faithful in relationships](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-leo/)
-- [scorpio woman jealous of friends](https://inspiration.allwomenstalk.com/challenging-scorpio-traits-and-how-to-overcome-them/)
 - [is capricorn selfish](https://inspiration.allwomenstalk.com/challenging-capricorn-traits-and-how-to-overcome-them/)
+- [things pisces like](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-pisces/)
+- [what do scorpios like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-scorpio/)
+- [sagittarius personality](https://inspiration.allwomenstalk.com/challenging-sagittarius-traits-and-how-to-overcome-them/)
+- [scorpio woman jealous of friends](https://inspiration.allwomenstalk.com/challenging-scorpio-traits-and-how-to-overcome-them/)
 - [7 Things to Love about Being Married ...](https://allwomenstalk.com/7-things-to-love-about-being-married/)
 - [7 Things to Love about Adolescence ...](https://allwomenstalk.com/7-things-to-love-about-adolescence/)
 

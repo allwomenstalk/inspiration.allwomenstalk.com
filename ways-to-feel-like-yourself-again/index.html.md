@@ -50,16 +50,16 @@ Life hits us all in different ways. Don't be too hard on yourself if you don't f
 
 ## Related Posts
 
-- [how do i free my mind](https://inspiration.allwomenstalk.com/ways-to-free-your-mind-immediately-that-really-do-work/)
-- [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
-- [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
 - [how to keep busy yourself](https://lifestyle.allwomenstalk.com/ways-to-keep-yourself-busy-and-productive/)
-- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
-- [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
+- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
 - [physical activities that reduce stress](https://fitness.allwomenstalk.com/activities-that-reduce-stress-and-give-you-exercise/)
+- [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
+- [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
+- [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
 - [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
 - [how to handle post traumatic stress disorder](https://health.allwomenstalk.com/ways-to-handle-post-traumatic-stress/)
-- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
+- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
+- [how do i free my mind](https://inspiration.allwomenstalk.com/ways-to-free-your-mind-immediately-that-really-do-work/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 - [10 Ways to Make Yourself Feel Happier Every Day .....](https://allwomenstalk.com/10-ways-to-make-yourself-feel-happier-every-day/)
 

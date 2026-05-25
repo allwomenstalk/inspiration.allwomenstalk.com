@@ -82,16 +82,16 @@ So I haven't gone into great detail here but it’s a good overview and certainl
 
 ## Related Posts
 
+- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
+- [too tough to handle](https://inspiration.allwomenstalk.com/fab-things-to-remember-when-life-feels-too-hard-to-handle/)
+- [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
+- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
+- [do not beat yourself up](https://inspiration.allwomenstalk.com/dont-beat-yourself-up-over-wanting-to-do-these-things/)
+- [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
+- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
 - [you wont regret it no no](https://inspiration.allwomenstalk.com/choices-to-make-in-life-that-you-wont-regret-10-years-from-now/)
 - [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
-- [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
-- [do not beat yourself up](https://inspiration.allwomenstalk.com/dont-beat-yourself-up-over-wanting-to-do-these-things/)
-- [too tough to handle](https://inspiration.allwomenstalk.com/fab-things-to-remember-when-life-feels-too-hard-to-handle/)
 - [flaws in a woman](https://inspiration.allwomenstalk.com/personal-flaws-you-should-learn-to-embrace-because-they-arent-exactly-flaws/)
-- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
-- [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
-- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
-- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
 - [What Your Eyes Can Tell about You ...](https://allwomenstalk.com/what-your-eyes-can-tell-about-you/)
 - [7 Reasons You Are Who You Are ...](https://inspiration.allwomenstalk.com/reasons-you-are-who-you-are/)
 

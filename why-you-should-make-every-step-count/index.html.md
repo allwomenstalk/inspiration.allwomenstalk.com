@@ -14,16 +14,16 @@ Life, much like an awful walk under the most horrendous conditions, has a way of
 
 ## Related Posts
 
-- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
+- [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
+- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
 - [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
+- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
 - [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
 - [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
-- [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
-- [setback and relax](https://inspiration.allwomenstalk.com/ways-to-turn-a-setback-into-success/)
 - [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
-- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
-- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
-- [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
+- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [setback and relax](https://inspiration.allwomenstalk.com/ways-to-turn-a-setback-into-success/)
 - [7 Motivational Quotes for Runners ...](https://allwomenstalk.com/7-motivational-quotes-for-runners/)
 - [7 Inspirational Fitness Quotes ...](https://weightloss.allwomenstalk.com/inspirational-fitness-quotes/)
 

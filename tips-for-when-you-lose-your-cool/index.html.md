@@ -42,16 +42,16 @@ Although I have come a long way in learning what to do when I am ready to lose m
 
 ## Related Posts
 
-- [helping out the neighbour](https://lifestyle.allwomenstalk.com/ways-to-help-out-a-neighbor-who-is-lonely/)
-- [dont expect too much from people](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-expecting-too-much-from-people/)
-- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
-- [how to help someone in a codependent relationship](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-a-codependent-family-member/)
-- [how to practice standing up for yourself](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-stand-up-for-yourself/)
-- [respect peoples boundaries](https://lifestyle.allwomenstalk.com/helpful-tips-on-how-to-respect-boundaries/)
-- [how to show a friend you care](https://inspiration.allwomenstalk.com/thoughtful-things-you-can-do-to-show-your-friends-you-care/)
-- [thoughtful vs kind](https://inspiration.allwomenstalk.com/ways-to-be-more-thoughtful-and-kind/)
-- [be kind on social media](https://inspiration.allwomenstalk.com/ways-to-use-social-media-to-spread-kindness/)
 - [inner introvert](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-your-inner-introvert/)
+- [dont expect too much from people](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-expecting-too-much-from-people/)
+- [how to show a friend you care](https://inspiration.allwomenstalk.com/thoughtful-things-you-can-do-to-show-your-friends-you-care/)
+- [be kind on social media](https://inspiration.allwomenstalk.com/ways-to-use-social-media-to-spread-kindness/)
+- [thoughtful vs kind](https://inspiration.allwomenstalk.com/ways-to-be-more-thoughtful-and-kind/)
+- [how to help someone in a codependent relationship](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-a-codependent-family-member/)
+- [helping out the neighbour](https://lifestyle.allwomenstalk.com/ways-to-help-out-a-neighbor-who-is-lonely/)
+- [respect peoples boundaries](https://lifestyle.allwomenstalk.com/helpful-tips-on-how-to-respect-boundaries/)
+- [how to practice standing up for yourself](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-stand-up-for-yourself/)
+- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
 - [7 Ways to Deal with Anger ...](https://allwomenstalk.com/7-ways-to-deal-with-anger/)
 - [7 Tips on Dealing with Frustration ...](https://allwomenstalk.com/7-tips-on-dealing-with-frustration/)
 

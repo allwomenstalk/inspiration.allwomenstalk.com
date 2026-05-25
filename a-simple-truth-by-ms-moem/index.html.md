@@ -32,16 +32,16 @@ I found this poem and it is striking and real. Moving on ain't easy but you can 
 
 ## Related Posts
 
-- [erin hanson human](https://inspiration.allwomenstalk.com/when-sadness-finds-you-by-erin-hanson/)
-- [social media person](https://apps.allwomenstalk.com/great-ways-social-media-makes-you-a-better-person/)
-- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
-- [skills all adults should have](https://lifestyle.allwomenstalk.com/essential-social-skills-that-all-adults-should-have/)
-- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
-- [types of people in a class](https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/)
-- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
-- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
-- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
 - [things to look for in a person](https://inspiration.allwomenstalk.com/qualities-to-look-for-in-people/)
+- [skills all adults should have](https://lifestyle.allwomenstalk.com/essential-social-skills-that-all-adults-should-have/)
+- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
+- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
+- [social media person](https://apps.allwomenstalk.com/great-ways-social-media-makes-you-a-better-person/)
+- [erin hanson human](https://inspiration.allwomenstalk.com/when-sadness-finds-you-by-erin-hanson/)
+- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
+- [types of people in a class](https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/)
+- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
+- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
 - [Redefining Myself as a Mother Wife and Citizen ...](https://allwomenstalk.com/redefining-myself-as-a-mother-wife-and-citizen/)
 - [Enlightening Quotes about Acceptance ...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
 

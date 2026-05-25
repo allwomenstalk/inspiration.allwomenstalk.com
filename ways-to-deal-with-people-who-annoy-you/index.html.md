@@ -42,16 +42,16 @@ I get it; there are some really annoying people out there. Some of them don’t 
 
 ## Related Posts
 
-- [when a friend becomes an enemy](https://lifestyle.allwomenstalk.com/ways-to-cope-when-your-best-friend-becomes-your-worst-enemy/)
-- [how to not cry from onion](https://food.allwomenstalk.com/ways-to-chop-an-onion-without-shedding-tears/)
-- [why does my 16 year old son hate me](https://parenting.allwomenstalk.com/things-to-remember-when-your-teenager-hates-you/)
-- [how to deal with paranoia in a relationship](https://love.allwomenstalk.com/helpful-tips-for-handling-a-paranoid-partner/)
-- [my neighbour is running a noisy business from home](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-annoying-neighbors/)
-- [breaking up with friends](https://love.allwomenstalk.com/ways-to-break-up-with-a-friend/)
-- [my friend hit me](https://love.allwomenstalk.com/tips-for-handling-your-partners-friends-hitting-on-you/)
-- [when your boss asks you to do something you dont w...](https://lifestyle.allwomenstalk.com/tips-on-how-to-say-no-in-an-assertive-way/)
 - [is being obsessed with someone bad](https://love.allwomenstalk.com/ways-to-deal-with-a-friend-who-is-obsessed-with-her-boyfriend/)
+- [how to deal with paranoia in a relationship](https://love.allwomenstalk.com/helpful-tips-for-handling-a-paranoid-partner/)
+- [when a friend becomes an enemy](https://lifestyle.allwomenstalk.com/ways-to-cope-when-your-best-friend-becomes-your-worst-enemy/)
 - [overcoming fear of intimacy](https://lifestyle.allwomenstalk.com/tips-for-overcoming-fears-of-intimacy-with-others/)
+- [when your boss asks you to do something you dont w...](https://lifestyle.allwomenstalk.com/tips-on-how-to-say-no-in-an-assertive-way/)
+- [how to not cry from onion](https://food.allwomenstalk.com/ways-to-chop-an-onion-without-shedding-tears/)
+- [breaking up with friends](https://love.allwomenstalk.com/ways-to-break-up-with-a-friend/)
+- [why does my 16 year old son hate me](https://parenting.allwomenstalk.com/things-to-remember-when-your-teenager-hates-you/)
+- [my neighbour is running a noisy business from home](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-annoying-neighbors/)
+- [my friend hit me](https://love.allwomenstalk.com/tips-for-handling-your-partners-friends-hitting-on-you/)
 - [7 Ways to Deal with Anger ...](https://allwomenstalk.com/7-ways-to-deal-with-anger/)
 - [7 Ways to Deal with Snobby People ...](https://allwomenstalk.com/7-ways-to-deal-with-snobby-people/)
 

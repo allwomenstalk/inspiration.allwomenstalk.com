@@ -42,16 +42,16 @@ There are plenty of other ways to get into the holiday spirit quickly, including
 
 ## Related Posts
 
-- [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
-- [nail inspro](https://inspiration.allwomenstalk.com/inspro-for-a-rainy-day-things-to-do-instead-of-bitchin-about-the-weather/)
 - [7 Ways to Celebrate the Holidays with Presence Not...](https://inspiration.allwomenstalk.com/ways-to-celebrate-the-holidays-with-presence-not-presents/)
-- [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
-- [7 Ways to Celebrate New Year with the Kids ...](https://parenting.allwomenstalk.com/ways-to-celebrate-new-year-with-the-kids/)
+- [7 Fun Winter Break Adventures for You and Your BFF...](https://teen.allwomenstalk.com/fun-winter-break-adventures-for-you-and-your-bff/)
 - [what things to do on christmas eve](https://lifestyle.allwomenstalk.com/simple-cozy-things-to-do-on-christmas-eve/)
 - [Have an Egg-cellent Easter with These Fun Ideas fo...](https://parenting.allwomenstalk.com/have-an-egg-cellent-easter-with-these-fun-ideas-for-the-family/)
-- [things to do with boyfriend](https://love.allwomenstalk.com/things-thatre-more-fun-when-you-do-them-with-your-boyfriend/)
-- [Exciting  Things to do in New York at Easter ...](https://travel.allwomenstalk.com/theres-nothing-like-easter-weekend-in-new-york/)
+- [7 Ways to Celebrate New Year with the Kids ...](https://parenting.allwomenstalk.com/ways-to-celebrate-new-year-with-the-kids/)
 - [funniest online games](https://funny.allwomenstalk.com/free-funny-online-games-to-play-right-away/)
+- [things to do with boyfriend](https://love.allwomenstalk.com/things-thatre-more-fun-when-you-do-them-with-your-boyfriend/)
+- [nail inspro](https://inspiration.allwomenstalk.com/inspro-for-a-rainy-day-things-to-do-instead-of-bitchin-about-the-weather/)
+- [Exciting  Things to do in New York at Easter ...](https://travel.allwomenstalk.com/theres-nothing-like-easter-weekend-in-new-york/)
+- [7 Themes for the Best Birthday Ever ...](https://lifestyle.allwomenstalk.com/themes-for-the-best-birthday-ever/)
 - [Car Accessory Gift to Put Anyone in the Holiday Sp...](https://allwomenstalk.com/car-accessory-gift-to-put-anyone-in-the-holiday-spirit/)
 - [Get Spooky ...](https://allwomenstalk.com/get-spooky/)
 

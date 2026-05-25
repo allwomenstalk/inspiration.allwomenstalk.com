@@ -42,16 +42,16 @@ Do you have a bucket list for 2019 yet? What’s on it?
 
 ## Related Posts
 
-- [things to do on your own as a woman](https://lifestyle.allwomenstalk.com/things-a-woman-should-do-on-her-own-at-least-once/)
-- [college girls making out](https://lifestyle.allwomenstalk.com/mistakes-every-college-girl-needs-to-make/)
-- [women buying cars](https://lifestyle.allwomenstalk.com/crucial-things-to-consider-before-buying-a-car-for-a-woman/)
-- [teach your daughter to be strong](https://parenting.allwomenstalk.com/girl-power-messages-to-teach-your-daughter/)
-- [books to empower your daughter](https://parenting.allwomenstalk.com/fabulous-ways-to-empower-your-daughter/)
-- [names for aunts](https://teen.allwomenstalk.com/reasons-why-every-girl-needs-an-aunt/)
-- [starter wife phenomenon](https://inspiration.allwomenstalk.com/lessons-from-oprah-every-woman-can-learn-from/)
 - [girls night out meaning](https://lifestyle.allwomenstalk.com/tips-for-planning-a-great-girls-night-out/)
-- [girl code rules about guys](https://lifestyle.allwomenstalk.com/rules-of-the-girl-code-book-every-female-needs-to-know-about/)
+- [starter wife phenomenon](https://inspiration.allwomenstalk.com/lessons-from-oprah-every-woman-can-learn-from/)
 - [of website girls](https://lifestyle.allwomenstalk.com/amazing-websites-every-girl-should-know-about-and-use/)
+- [college girls making out](https://lifestyle.allwomenstalk.com/mistakes-every-college-girl-needs-to-make/)
+- [books to empower your daughter](https://parenting.allwomenstalk.com/fabulous-ways-to-empower-your-daughter/)
+- [teach your daughter to be strong](https://parenting.allwomenstalk.com/girl-power-messages-to-teach-your-daughter/)
+- [women buying cars](https://lifestyle.allwomenstalk.com/crucial-things-to-consider-before-buying-a-car-for-a-woman/)
+- [names for aunts](https://teen.allwomenstalk.com/reasons-why-every-girl-needs-an-aunt/)
+- [things to do on your own as a woman](https://lifestyle.allwomenstalk.com/things-a-woman-should-do-on-her-own-at-least-once/)
+- [girl code rules about guys](https://lifestyle.allwomenstalk.com/rules-of-the-girl-code-book-every-female-needs-to-know-about/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [8 Things to do on International Womans Day](https://allwomenstalk.com/8-things-to-do-on-international-womans-day/)
 

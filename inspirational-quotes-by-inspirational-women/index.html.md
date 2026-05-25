@@ -56,16 +56,16 @@ All these inspirational women have made waves in their lifetimes and the ripples
 
 ## Related Posts
 
-- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
-- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
-- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
-- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
-- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
 - [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
-- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
-- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
 - [everything is copy meaning](https://inspiration.allwomenstalk.com/nora-ephron-quotes-to-inspire-you-as-a-woman-and-a-writer/)
 - [holding a grudge is like drinking poison quote](https://inspiration.allwomenstalk.com/profound-quotes-from-nelson-mandela/)
+- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
+- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
+- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
+- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
+- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
+- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
+- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 

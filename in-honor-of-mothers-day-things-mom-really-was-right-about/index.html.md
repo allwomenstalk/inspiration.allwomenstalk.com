@@ -56,16 +56,16 @@ These’re 7 **bits of advice that mom was right about**. Now it’s your turn. 
 
 ## Related Posts
 
-- [The 7 Social Skills That Will Guarantee Your Succe...](https://inspiration.allwomenstalk.com/the-social-skills-that-will-guarantee-your-success-in-life/)
 - [Letting Go of the past ...](https://inspiration.allwomenstalk.com/letting-go-of-the-past/)
-- [riche le eye blinged](https://lifestyle.allwomenstalk.com/how-to-read-a-persons-face-to-know-what-theyre-thinking/)
-- [What Even the Best of Us Struggle with ...](https://inspiration.allwomenstalk.com/what-even-the-best-of-us-struggle-with/)
-- [Heres What Anyone Dealing with Depression Should R...](https://health.allwomenstalk.com/heres-what-anyone-dealing-with-depression-should-remember/)
-- [Stop Tearing Yourself down - Things You Deserve Ev...](https://inspiration.allwomenstalk.com/stop-tearing-yourself-down-things-you-deserve-even-though-you-dont-believe-it/)
-- [7 Truths about Beauty You Discover as an Adult ...](https://beauty.allwomenstalk.com/truths-about-beauty-you-discover-as-an-adult/)
-- [You Dont Actually Need These 7 Things to Be Happy ...](https://inspiration.allwomenstalk.com/you-dont-actually-need-these-things-to-be-happy/)
 - [The Trick to Being Happy when Everything Seems lik...](https://inspiration.allwomenstalk.com/the-trick-to-being-happy-when-everything-seems-like-its-falling-apart/)
+- [7 Truths about Beauty You Discover as an Adult ...](https://beauty.allwomenstalk.com/truths-about-beauty-you-discover-as-an-adult/)
+- [Stop Tearing Yourself down - Things You Deserve Ev...](https://inspiration.allwomenstalk.com/stop-tearing-yourself-down-things-you-deserve-even-though-you-dont-believe-it/)
+- [The 7 Social Skills That Will Guarantee Your Succe...](https://inspiration.allwomenstalk.com/the-social-skills-that-will-guarantee-your-success-in-life/)
+- [riche le eye blinged](https://lifestyle.allwomenstalk.com/how-to-read-a-persons-face-to-know-what-theyre-thinking/)
 - [You Can Be Independent and Still do These 7 Things...](https://inspiration.allwomenstalk.com/you-can-be-independent-and-still-do-these-things/)
+- [You Dont Actually Need These 7 Things to Be Happy ...](https://inspiration.allwomenstalk.com/you-dont-actually-need-these-things-to-be-happy/)
+- [Heres What Anyone Dealing with Depression Should R...](https://health.allwomenstalk.com/heres-what-anyone-dealing-with-depression-should-remember/)
+- [What Even the Best of Us Struggle with ...](https://inspiration.allwomenstalk.com/what-even-the-best-of-us-struggle-with/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [Best 7 Dating Tips ... from My Mother ...](https://allwomenstalk.com/best-7-dating-tips-from-my-mother/)
 

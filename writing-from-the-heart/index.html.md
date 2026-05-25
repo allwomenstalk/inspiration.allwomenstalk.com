@@ -16,16 +16,16 @@ The result may not be perfect on the first try, but then again it never is. This
 
 ## Related Posts
 
-- [play kissing](https://love.allwomenstalk.com/fun-kissing-games-to-play/)
 - [homemade valentines gifts for her](https://diy.allwomenstalk.com/homemade-valentines-day-gift-ideas-for-your-other-half/)
-- [woman like to get for valentines day](https://love.allwomenstalk.com/things-women-really-want-for-valentines-day/)
-- [late night date night ideas](https://love.allwomenstalk.com/best-date-ideas-for-late-night-owls/)
-- [things to do in paris romantic](https://travel.allwomenstalk.com/the-most-romantic-things-to-do-in-paris/)
-- [what to give your boyfriend for valentines day](https://love.allwomenstalk.com/creative-valentines-day-gifts-for-your-boyfriend/)
 - [planning a romantic getaway](https://travel.allwomenstalk.com/tips-on-how-to-plan-a-perfect-romantic-getaway/)
+- [couple kissing under the mistletoe](https://love.allwomenstalk.com/mistletoe-rules-for-a-kiss-under-the-decoration/)
+- [late night date night ideas](https://love.allwomenstalk.com/best-date-ideas-for-late-night-owls/)
 - [show ur bff](https://lifestyle.allwomenstalk.com/genius-ways-to-show-your-bff-your-appreciation/)
 - [happy birthday secret keeper](https://lifestyle.allwomenstalk.com/best-friend-birthday-quotes-to-show-your-bestie-love/)
-- [couple kissing under the mistletoe](https://love.allwomenstalk.com/mistletoe-rules-for-a-kiss-under-the-decoration/)
+- [things to do in paris romantic](https://travel.allwomenstalk.com/the-most-romantic-things-to-do-in-paris/)
+- [woman like to get for valentines day](https://love.allwomenstalk.com/things-women-really-want-for-valentines-day/)
+- [play kissing](https://love.allwomenstalk.com/fun-kissing-games-to-play/)
+- [what to give your boyfriend for valentines day](https://love.allwomenstalk.com/creative-valentines-day-gifts-for-your-boyfriend/)
 - [The Scent of Love ...](https://allwomenstalk.com/the-scent-of-love/)
 - [Valentines Day Roses That Speak to You ...](https://allwomenstalk.com/valentines-day-roses-that-speak-to-you/)
 

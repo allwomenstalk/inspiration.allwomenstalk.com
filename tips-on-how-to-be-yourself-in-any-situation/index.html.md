@@ -42,16 +42,16 @@ So, these were my tips on how to find yourself, how to accept who you are and ho
 
 ## Related Posts
 
+- [how to attend a concert](https://music.allwomenstalk.com/tips-on-attending-concerts-thatll-guarantee-you-have-a-great-time/)
 - [tips for hosting a dinner party](https://lifestyle.allwomenstalk.com/important-tips-for-a-successful-dinner-party/)
 - [what to do after failing a test](https://lifestyle.allwomenstalk.com/points-to-encourage-you-if-you-failed-your-driving-test/)
-- [how to quit social media for good](https://lifestyle.allwomenstalk.com/tips-on-how-to-quit-social-media/)
-- [first yoga class](https://fitness.allwomenstalk.com/important-tips-for-surviving-and-enjoying-your-first-yoga-class/)
-- [how to be kind](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-be-kind-that-you-should-always-consider/)
-- [how to make my phone battery last longer](https://lifestyle.allwomenstalk.com/ways-to-make-your-cell-phone-battery-last-longer/)
-- [how to attend a concert](https://music.allwomenstalk.com/tips-on-attending-concerts-thatll-guarantee-you-have-a-great-time/)
-- [tips and tricks for braces](https://health.allwomenstalk.com/helpful-braces-tips-and-tricks-to-remember-always/)
 - [what is the most important thing to do before you ...](https://teen.allwomenstalk.com/driving-rules-you-must-know-before-getting-behind-the-wheel/)
+- [how to quit social media for good](https://lifestyle.allwomenstalk.com/tips-on-how-to-quit-social-media/)
+- [how to be kind](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-be-kind-that-you-should-always-consider/)
 - [youre running late with all your makeup on](https://lifestyle.allwomenstalk.com/tips-to-get-ready-when-youre-running-late/)
+- [how to make my phone battery last longer](https://lifestyle.allwomenstalk.com/ways-to-make-your-cell-phone-battery-last-longer/)
+- [tips and tricks for braces](https://health.allwomenstalk.com/helpful-braces-tips-and-tricks-to-remember-always/)
+- [first yoga class](https://fitness.allwomenstalk.com/important-tips-for-surviving-and-enjoying-your-first-yoga-class/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 

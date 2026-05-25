@@ -42,16 +42,16 @@ Being nice has its own advantages and of course, disadvantages, but I’m quite 
 
 ## Related Posts
 
-- [what are the main causes of prejudice](https://inspiration.allwomenstalk.com/important-causes-of-prejudice-you-should-know-about/)
-- [about your favorite teacher](https://parenting.allwomenstalk.com/characteristics-of-an-amazing-teacher/)
-- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
-- [why do i find my mom attractive](https://lifestyle.allwomenstalk.com/best-and-worst-things-about-having-an-attractive-mother/)
 - [my child and other mistakes](https://inspiration.allwomenstalk.com/things-to-learn-from-your-parents-mistakes-that-can-make-you-stronger/)
-- [in what ways do you think were similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
-- [the older i get the more i appreciate](https://inspiration.allwomenstalk.com/things-youll-appreciate-as-you-start-nearing-30/)
-- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
-- [identify possible problems that may be encountered...](https://lifestyle.allwomenstalk.com/ways-facebook-causes-problems-for-users-that-you-cant-ignore/)
+- [about your favorite teacher](https://parenting.allwomenstalk.com/characteristics-of-an-amazing-teacher/)
+- [why do i find my mom attractive](https://lifestyle.allwomenstalk.com/best-and-worst-things-about-having-an-attractive-mother/)
 - [my 16 years old self](https://inspiration.allwomenstalk.com/things-id-tell-my-16-year-old-self/)
+- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
+- [identify possible problems that may be encountered...](https://lifestyle.allwomenstalk.com/ways-facebook-causes-problems-for-users-that-you-cant-ignore/)
+- [the older i get the more i appreciate](https://inspiration.allwomenstalk.com/things-youll-appreciate-as-you-start-nearing-30/)
+- [what are the main causes of prejudice](https://inspiration.allwomenstalk.com/important-causes-of-prejudice-you-should-know-about/)
+- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
+- [in what ways do you think were similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Show Respect to Others ...](https://allwomenstalk.com/7-ways-to-show-respect-to-others/)
 

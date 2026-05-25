@@ -38,16 +38,16 @@ I learned that practicing yoga and learning balance allows you to learn to trust
 
 ## Related Posts
 
-- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
-- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
-- [open2study free courses](https://money.allwomenstalk.com/free-online-courses/)
-- [lessons for girls](https://inspiration.allwomenstalk.com/important-life-lessons/)
 - [benefits of seeing a psychologist](https://health.allwomenstalk.com/benefits-of-seeing-a-therapist/)
-- [collage board big future](https://inspiration.allwomenstalk.com/steps-to-creating-a-vision-board/)
-- [reading hobby quotes](https://books.allwomenstalk.com/ways-to-read-more/)
+- [lessons for girls](https://inspiration.allwomenstalk.com/important-life-lessons/)
 - [dating a strong independent woman](https://love.allwomenstalk.com/dating-tips-for-independent-women/)
-- [inner wisdom meaning](https://inspiration.allwomenstalk.com/how-to-access-your-inner-wisdom/)
 - [add facebook events to google calendar](https://apps.allwomenstalk.com/how-to-sync-google-calendar-with-facebook/)
+- [inner wisdom meaning](https://inspiration.allwomenstalk.com/how-to-access-your-inner-wisdom/)
+- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
+- [open2study free courses](https://money.allwomenstalk.com/free-online-courses/)
+- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
+- [reading hobby quotes](https://books.allwomenstalk.com/ways-to-read-more/)
+- [collage board big future](https://inspiration.allwomenstalk.com/steps-to-creating-a-vision-board/)
 - [Empowering Tips for Girls Who Feel Anxious All the...](https://health.allwomenstalk.com/heres-how-to-stop-anxiety-from-taking-over-your-life/)
 - [This is Why You Need to Avoid Naysayers for Girls ...](https://inspiration.allwomenstalk.com/reasons-you-shouldnt-listen-to-the-naysayers/)
 

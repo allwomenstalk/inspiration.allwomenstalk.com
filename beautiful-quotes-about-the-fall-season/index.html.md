@@ -58,14 +58,14 @@ All of these quotes beautifully capture the spirit of the fall season. So much s
 
 - [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
 - [keira knightley quotes](https://celebs.allwomenstalk.com/celebrity-quotes-on-feminism-you-need-to-read/)
-- [anti bullying quotes short](https://inspiration.allwomenstalk.com/inspiring-quotes-to-help-you-deal-with-bullying/)
 - [amy poehler legs](https://inspiration.allwomenstalk.com/quotes-from-amy-poehler-to-inspire-you/)
+- [budding picasso meaning](https://inspiration.allwomenstalk.com/inspirational-quotes-for-budding-artists/)
+- [memes about college](https://funny.allwomenstalk.com/funny-quotes-for-high-school-and-college-kids/)
+- [anti bullying quotes short](https://inspiration.allwomenstalk.com/inspiring-quotes-to-help-you-deal-with-bullying/)
+- [working hard for something quotes](https://inspiration.allwomenstalk.com/motivational-quotes-about-hard-work/)
 - [romantic passionate quotes](https://love.allwomenstalk.com/passionate-quotes-about-love/)
 - [you will inspire some and annoy others](https://funny.allwomenstalk.com/silly-words-of-wisdom-that-will-inspire-you-to-succeed/)
-- [working hard for something quotes](https://inspiration.allwomenstalk.com/motivational-quotes-about-hard-work/)
-- [memes about college](https://funny.allwomenstalk.com/funny-quotes-for-high-school-and-college-kids/)
 - [sayings autumn](https://inspiration.allwomenstalk.com/lovely-quotes-about-autumn/)
-- [budding picasso meaning](https://inspiration.allwomenstalk.com/inspirational-quotes-for-budding-artists/)
 - [5 Signs of Fall I Love ...](https://gardening.allwomenstalk.com/5-signs-of-fall-i-love/)
 - [5 Reasons to Love the Fall ...](https://gardening.allwomenstalk.com/5-reasons-to-love-the-fall/)
 

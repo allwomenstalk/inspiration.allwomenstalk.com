@@ -58,14 +58,14 @@ You don’t have to wait till New Year’s to set resolutions. Every day is a ne
 
 ## Related Posts
 
-- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
-- [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
-- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
-- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
 - [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
+- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
+- [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
 - [write any two ways of helping others](https://inspiration.allwomenstalk.com/amazing-ways-to-help-others-and-make-a-difference/)
+- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [kind things to do for yourself](https://inspiration.allwomenstalk.com/kind-things-to-do-for-yourself-today/)
+- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
 - [establish yourself](https://inspiration.allwomenstalk.com/inspiring-ways-to-establish-yourself-as-a-leader/)
 - [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)

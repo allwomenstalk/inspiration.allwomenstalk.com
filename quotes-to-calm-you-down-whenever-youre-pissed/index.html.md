@@ -82,16 +82,16 @@ The next time you're upset, take a deep breath and read through these quotes. Wh
 
 ## Related Posts
 
-- [meaningful mottos](https://inspiration.allwomenstalk.com/ways-to-live-your-life-for-girls-who-love-inspiration/)
-- [feels like a weight has been lifted quotes](https://fitness.allwomenstalk.com/quotes-for-all-the-weight-lifting-lovers-out-there/)
-- [giving up something you love](https://inspiration.allwomenstalk.com/ariana-grande-quotes-for-women-who-need-a-confidence-boost/)
+- [to thy own self be true tattoo](https://lifestyle.allwomenstalk.com/quote-tattoos-that-will-change-your-life/)
+- [nicki minaj quotes songs](https://inspiration.allwomenstalk.com/nicki-minaj-quotes-that-are-a-little-too-real/)
+- [youre your youre difference](https://lifestyle.allwomenstalk.com/quotes-that-english-majors-everywhere-will-adore/)
 - [pessimistic quotes](https://lifestyle.allwomenstalk.com/quotes-to-help-pessimistic-women-become-more-optimistic/)
+- [giving up something you love](https://inspiration.allwomenstalk.com/ariana-grande-quotes-for-women-who-need-a-confidence-boost/)
+- [harry potter quote love](https://inspiration.allwomenstalk.com/snape-quotes-thatll-make-you-love-him/)
+- [feels like a weight has been lifted quotes](https://fitness.allwomenstalk.com/quotes-for-all-the-weight-lifting-lovers-out-there/)
 - [reassuring love quotes for her](https://love.allwomenstalk.com/reassuring-quotes-for-girls-who-have-never-been-in-love/)
 - [judgemental quotes](https://lifestyle.allwomenstalk.com/quotes-for-creative-girls-who-cant-get-enough-of-tattoos/)
-- [harry potter quote love](https://inspiration.allwomenstalk.com/snape-quotes-thatll-make-you-love-him/)
-- [nicki minaj quotes songs](https://inspiration.allwomenstalk.com/nicki-minaj-quotes-that-are-a-little-too-real/)
-- [to thy own self be true tattoo](https://lifestyle.allwomenstalk.com/quote-tattoos-that-will-change-your-life/)
-- [youre your youre difference](https://lifestyle.allwomenstalk.com/quotes-that-english-majors-everywhere-will-adore/)
+- [meaningful mottos](https://inspiration.allwomenstalk.com/ways-to-live-your-life-for-girls-who-love-inspiration/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

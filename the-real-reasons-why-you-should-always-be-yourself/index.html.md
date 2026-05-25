@@ -56,16 +56,16 @@ So don't hide the person you are or try to be different; it's one thing trying t
 
 ## Related Posts
 
-- [types of friends in a group of 5](https://lifestyle.allwomenstalk.com/types-of-friends-we-all-have-or-have-had/)
+- [so true gif](https://funny.allwomenstalk.com/gifs-that-describe-the-socially-awkward-life-of-every-introvert/)
+- [dreaming of running effortlessly](https://lifestyle.allwomenstalk.com/what-these-dreams-are-trying-to-tell-you/)
+- [common sense is not so common examples](https://lifestyle.allwomenstalk.com/common-sense-things-most-people-dont-get/)
+- [should you listen to your heart or head](https://love.allwomenstalk.com/times-when-you-should-listen-to-your-head-over-your-heart/)
+- [short stories about happiness](https://love.allwomenstalk.com/short-story-the-key-to-happiness/)
 - [do all geniuses talk to themselves](https://lifestyle.allwomenstalk.com/people-who-talk-to-themselves-arent-crazy-theyre-geniuses/)
 - [sad truths](https://inspiration.allwomenstalk.com/sad-truths-about-your-life-you-need-to-change-in/)
-- [so true gif](https://funny.allwomenstalk.com/gifs-that-describe-the-socially-awkward-life-of-every-introvert/)
-- [short stories about happiness](https://love.allwomenstalk.com/short-story-the-key-to-happiness/)
-- [dreaming of running effortlessly](https://lifestyle.allwomenstalk.com/what-these-dreams-are-trying-to-tell-you/)
-- [should you listen to your heart or head](https://love.allwomenstalk.com/times-when-you-should-listen-to-your-head-over-your-heart/)
 - [gut instincts you should never ignore in a relatio...](https://lifestyle.allwomenstalk.com/gut-feelings-you-should-never-ignore/)
-- [common sense is not so common examples](https://lifestyle.allwomenstalk.com/common-sense-things-most-people-dont-get/)
 - [puts things into perspective](https://lifestyle.allwomenstalk.com/knowing-these-things-will-put-your-life-into-perspective/)
+- [types of friends in a group of 5](https://lifestyle.allwomenstalk.com/types-of-friends-we-all-have-or-have-had/)
 - [5 Ways to Be the Best Version of Yourself ...](https://allwomenstalk.com/ways-to-be-the-best-version-of-yourself/)
 - [7 Reasons to Be the Best You Can Be ...](https://inspiration.allwomenstalk.com/reasons-to-be-the-best-you-can-be/)
 

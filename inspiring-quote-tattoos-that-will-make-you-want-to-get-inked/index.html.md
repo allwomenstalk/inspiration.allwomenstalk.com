@@ -379,16 +379,16 @@ So girls, what are some of your most inspiring quote tattoos? Do you have anythi
 
 ## Related Posts
 
-- [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
-- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
+- [aladdin best quotes](https://funny.allwomenstalk.com/silly-but-inspirational-robin-williams-genie-quotes-from-aladdin/)
+- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
 - [alice sayings](https://inspiration.allwomenstalk.com/inspirational-alice-in-wonderland-quotes-thatll-make-you-think/)
 - [deepak chopra quotes on self love](https://inspiration.allwomenstalk.com/deepak-chopra-quotes-to-make-you-feel-more-centered/)
-- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
-- [aladdin best quotes](https://funny.allwomenstalk.com/silly-but-inspirational-robin-williams-genie-quotes-from-aladdin/)
 - [battling with depression quotes](https://teen.allwomenstalk.com/quotes-for-teens-battling-depression/)
-- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
-- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
 - [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
+- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
+- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
+- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
+- [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
 - [7 Daily Inspirations ...](https://allwomenstalk.com/7-daily-inspirations/)
 - [7 Inspiring Career Quotes ...](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
 

@@ -42,16 +42,16 @@ It is definitely possible to change your life, but it does require determination
 
 ## Related Posts
 
-- [examples of operant conditioning](https://lifestyle.allwomenstalk.com/ways-to-use-operant-conditioning-principles-to-reach-a-goal/)
-- [stop criticizing yourself](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-criticizing-yourself/)
-- [7 habits of unhappy person](https://inspiration.allwomenstalk.com/tips-on-how-to-overcome-the-habits-that-make-you-unhappy/)
-- [how to overcome passivity and lack of initiative](https://inspiration.allwomenstalk.com/very-helpful-tips-on-how-to-overcome-passivity/)
-- [things to do that make you feel alive](https://lifestyle.allwomenstalk.com/cute-ways-to-make-you-feel-alive/)
-- [to dwell on the past](https://lifestyle.allwomenstalk.com/helpful-and-effective-tips-on-how-to-not-dwell-on-your-past/)
 - [learning to enjoy life](https://inspiration.allwomenstalk.com/ways-to-learn-to-let-go-and-enjoy-life-more/)
-- [7 best friend picture](https://inspiration.allwomenstalk.com/ways-to-become-your-own-best-friend/)
-- [365 days of positive self talk](https://inspiration.allwomenstalk.com/steps-to-positive-self-talk-that-you-should-always-keep-in-mind/)
 - [january blues quotes](https://inspiration.allwomenstalk.com/inspirational-day-challenges-to-beat-the-january-blues/)
+- [examples of operant conditioning](https://lifestyle.allwomenstalk.com/ways-to-use-operant-conditioning-principles-to-reach-a-goal/)
+- [how to overcome passivity and lack of initiative](https://inspiration.allwomenstalk.com/very-helpful-tips-on-how-to-overcome-passivity/)
+- [365 days of positive self talk](https://inspiration.allwomenstalk.com/steps-to-positive-self-talk-that-you-should-always-keep-in-mind/)
+- [7 best friend picture](https://inspiration.allwomenstalk.com/ways-to-become-your-own-best-friend/)
+- [stop criticizing yourself](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-criticizing-yourself/)
+- [things to do that make you feel alive](https://lifestyle.allwomenstalk.com/cute-ways-to-make-you-feel-alive/)
+- [7 habits of unhappy person](https://inspiration.allwomenstalk.com/tips-on-how-to-overcome-the-habits-that-make-you-unhappy/)
+- [to dwell on the past](https://lifestyle.allwomenstalk.com/helpful-and-effective-tips-on-how-to-not-dwell-on-your-past/)
 - [7 Ways to Spring Clean Your Life](https://allwomenstalk.com/ways-to-spring-clean-your-life/)
 - [7 Ways to Take Control of Your Life ...](https://lifestyle.allwomenstalk.com/ways-to-take-control-of-your-life-2/)
 

@@ -36,16 +36,16 @@ It"s all in your mind, it's your thoughts that you have to fight. For doubts kil
 
 ## Related Posts
 
-- [mothers are special poems](https://parenting.allwomenstalk.com/to-my-very-special-mother-by-erin-hanson/)
 - [not eric hanson poem](https://inspiration.allwomenstalk.com/who-would-remember-by-erin-hanson/)
-- [social media movies](https://movies.allwomenstalk.com/why-anyone-who-uses-social-media-should-watch-ingrid-goes-west/)
-- [trapped in the tower](https://inspiration.allwomenstalk.com/trapped-by-erin-hanson/)
 - [erin hanson face](https://inspiration.allwomenstalk.com/that-burn-bridges-by-erin-hanson/)
-- [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
-- [tug of war relationship](https://love.allwomenstalk.com/love-tug-of-war/)
-- [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
-- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
 - [why was toby fired](https://movies.allwomenstalk.com/times-the-offices-michael-scott-should-have-gone-to-jail/)
+- [tug of war relationship](https://love.allwomenstalk.com/love-tug-of-war/)
+- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
+- [trapped in the tower](https://inspiration.allwomenstalk.com/trapped-by-erin-hanson/)
+- [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
+- [mothers are special poems](https://parenting.allwomenstalk.com/to-my-very-special-mother-by-erin-hanson/)
+- [social media movies](https://movies.allwomenstalk.com/why-anyone-who-uses-social-media-should-watch-ingrid-goes-west/)
+- [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
 - [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
 - [About Life ...](https://allwomenstalk.com/about-life/)
 

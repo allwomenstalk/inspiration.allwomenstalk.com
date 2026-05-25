@@ -47,16 +47,16 @@ Sources:
 
 ## Related Posts
 
-- [Fire up Your Vocabwith These Awesome Alternative W...](https://inspiration.allwomenstalk.com/cat-got-your-tongue-here-are-some-words-to-use-instead-of-awesome/)
 - [11 Words You Use That Once Had Different Meanings ...](https://lifestyle.allwomenstalk.com/words-you-use-that-once-had-different-meanings/)
-- [White Not Right Try These Other Tones ...](https://fashion.allwomenstalk.com/white-not-right-try-these-other-tones-fashion/)
-- [well you know what can i say gif](https://inspiration.allwomenstalk.com/these-empathy-cards-will-help-when-you-dont-know-what-to-say/)
-- [He Used Text Shorcuts to Prank His Parents. Result...](https://funny.allwomenstalk.com/he-used-text-shorcuts-to-prank-his-parents-results-hilarious/)
-- [7 Words You Should Use Less Frequently ...](https://lifestyle.allwomenstalk.com/words-you-should-use-less-frequently/)
-- [old fashioned manners](https://lifestyle.allwomenstalk.com/its-time-to-bring-back-these-old-school-manners/)
 - [7 Unusual Dating Sites You Wont Believe Exist ...](https://love.allwomenstalk.com/unusual-dating-sites-you-wont-believe-exist/)
-- [13 Expressions No One Knows  How to Use ...](https://lifestyle.allwomenstalk.com/expressions-no-one-knows-how-to-use/)
+- [He Used Text Shorcuts to Prank His Parents. Result...](https://funny.allwomenstalk.com/he-used-text-shorcuts-to-prank-his-parents-results-hilarious/)
 - [If Paintings Could Text ...](https://funny.allwomenstalk.com/if-paintings-could-text/)
+- [13 Expressions No One Knows  How to Use ...](https://lifestyle.allwomenstalk.com/expressions-no-one-knows-how-to-use/)
+- [well you know what can i say gif](https://inspiration.allwomenstalk.com/these-empathy-cards-will-help-when-you-dont-know-what-to-say/)
+- [old fashioned manners](https://lifestyle.allwomenstalk.com/its-time-to-bring-back-these-old-school-manners/)
+- [7 Words You Should Use Less Frequently ...](https://lifestyle.allwomenstalk.com/words-you-should-use-less-frequently/)
+- [Fire up Your Vocabwith These Awesome Alternative W...](https://inspiration.allwomenstalk.com/cat-got-your-tongue-here-are-some-words-to-use-instead-of-awesome/)
+- [White Not Right Try These Other Tones ...](https://fashion.allwomenstalk.com/white-not-right-try-these-other-tones-fashion/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 - [7 Worst Interview Mistakes ...](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 

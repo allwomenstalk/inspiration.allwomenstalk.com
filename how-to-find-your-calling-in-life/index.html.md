@@ -46,16 +46,16 @@ Sources:
 
 ## Related Posts
 
-- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
-- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
-- [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
 - [what are a mans obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
+- [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
+- [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
+- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
 - [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
 - [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
-- [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
-- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
-- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
 - [single girl bucket list](https://lifestyle.allwomenstalk.com/a-realistic-bucket-list-for-college-girls/)
+- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
+- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
+- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
 - [7 Tips for Finding Your Career Calling in Life ...](https://lifestyle.allwomenstalk.com/tips-for-finding-your-career-calling-in-life/)
 - [The Average Girls Guide to Having an Exciting Life...](https://lifestyle.allwomenstalk.com/an-average-girls-guide-to-living-an-exciting-life/)
 

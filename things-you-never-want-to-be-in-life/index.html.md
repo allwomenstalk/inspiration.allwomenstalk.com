@@ -42,16 +42,16 @@ Character building is why it’s important to evaluate ourselves constantly, to 
 
 ## Related Posts
 
-- [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
-- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
-- [annoying things boyfriends do](https://love.allwomenstalk.com/annoying-things-boyfriends-do-that-you-should-forgive/)
 - [week before your wedding](https://wedding.allwomenstalk.com/things-you-should-not-do-the-week-before-your-wedding/)
-- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
-- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
 - [paris riche le smoky java](https://movies.allwomenstalk.com/worst-things-about-going-to-the-movies/)
-- [7 Questions You Should Never Ask Your Partner ...](https://love.allwomenstalk.com/questions-you-should-never-ask-your-partner/)
 - [7 Social Media Donts That Youre Better off Avoidin...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
+- [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
+- [7 Questions You Should Never Ask Your Partner ...](https://love.allwomenstalk.com/questions-you-should-never-ask-your-partner/)
+- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
+- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
 - [7 Worst Things to do at Your Workplace ...](https://inspiration.allwomenstalk.com/worst-things-to-do-at-your-workplace/)
+- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
+- [annoying things boyfriends do](https://love.allwomenstalk.com/annoying-things-boyfriends-do-that-you-should-forgive/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [5 Things You Dont Need in Life ...](https://allwomenstalk.com/5-things-you-dont-need-in-life/)
 

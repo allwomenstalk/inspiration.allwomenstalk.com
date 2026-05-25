@@ -72,16 +72,16 @@ Nobody ever did anything original by being a follower. To achieve the most succe
 
 ## Related Posts
 
+- [kisses arent contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [wemmmmm](https://inspiration.allwomenstalk.com/hacks-for-making-difficult-decisions/)
+- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
 - [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
-- [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
+- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
 - [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
 - [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
+- [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
 - [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
-- [kisses arent contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
-- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
 - [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
-- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
 - [10 Easy Ways to Be a Better Person ...](https://allwomenstalk.com/10-easy-ways-to-be-a-better-person/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 

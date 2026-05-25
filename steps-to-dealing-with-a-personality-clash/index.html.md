@@ -42,16 +42,16 @@ Has anyone else found themselves swimming in the personality-clash pool? How hav
 
 ## Related Posts
 
-- [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
-- [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
 - [dont embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
-- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
+- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
+- [what if partner doesnt like engagement ring](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
 - [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
 - [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
-- [what if partner doesnt like engagement ring](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
+- [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
+- [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
 - [ignore negative people](https://inspiration.allwomenstalk.com/tips-for-ignoring-the-negative-people-in-your-life/)
 - [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
-- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
+- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
 - [7 Ways to Deal with Insecurity ...](https://allwomenstalk.com/7-ways-to-deal-with-insecurity/)
 - [7 Ways to Cope when You Cant Get along with Someon...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)
 

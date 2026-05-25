@@ -36,16 +36,16 @@ Make sure that your explanation is about yourself rather than about any external
 
 ## Related Posts
 
-- [if you want someone respect you](https://inspiration.allwomenstalk.com/if-you-want-to-get-people-to-respect-you-read-this-now/)
-- [avoid drama](https://inspiration.allwomenstalk.com/ways-to-avoid-drama-for-an-easy-life/)
-- [7 Best Ways to Gracefully Handle Your First Argume...](https://love.allwomenstalk.com/best-ways-to-gracefully-handle-your-first-argument/)
-- [girl being left out](https://inspiration.allwomenstalk.com/video-guide-on-how-to-respond-to-being-left-out/)
-- [How to Recognize the Negative People in Your Life ...](https://inspiration.allwomenstalk.com/how-to-recognize-the-negative-people-in-your-life/)
-- [Helpful Tips to Deal with Negative People when You...](https://lifestyle.allwomenstalk.com/helpful-tips-to-deal-with-negative-people-when-you-live-in-dorm/)
-- [how much is my friend worth](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-a-friend-worth-having/)
 - [Top 5  Ways to Help Someone Who Has Suffered a Los...](https://lifestyle.allwomenstalk.com/ways-to-help-someone-who-has-suffered-a-loss/)
-- [cartia mallan boyfriend](https://love.allwomenstalk.com/when-you-have-to-break-up-with-a-nice-person/)
+- [how much is my friend worth](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-a-friend-worth-having/)
+- [girl being left out](https://inspiration.allwomenstalk.com/video-guide-on-how-to-respond-to-being-left-out/)
+- [Helpful Tips to Deal with Negative People when You...](https://lifestyle.allwomenstalk.com/helpful-tips-to-deal-with-negative-people-when-you-live-in-dorm/)
+- [avoid drama](https://inspiration.allwomenstalk.com/ways-to-avoid-drama-for-an-easy-life/)
 - [Respectful Ways to Get out of a Date Gracefully .....](https://love.allwomenstalk.com/ways-to-get-out-of-a-date-gracefully/)
+- [How to Recognize the Negative People in Your Life ...](https://inspiration.allwomenstalk.com/how-to-recognize-the-negative-people-in-your-life/)
+- [7 Best Ways to Gracefully Handle Your First Argume...](https://love.allwomenstalk.com/best-ways-to-gracefully-handle-your-first-argument/)
+- [if you want someone respect you](https://inspiration.allwomenstalk.com/if-you-want-to-get-people-to-respect-you-read-this-now/)
+- [cartia mallan boyfriend](https://love.allwomenstalk.com/when-you-have-to-break-up-with-a-nice-person/)
 - [8 Ways to Stand up for Yourself ...](https://allwomenstalk.com/8-ways-to-stand-up-for-yourself/)
 - [Extremely Helpful Tips on How to Be Approachable ....](https://love.allwomenstalk.com/extremely-helpful-tips-on-how-to-be-approachable/)
 

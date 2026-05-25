@@ -54,16 +54,16 @@ Reading the last sentence inspired me to write this article; Audrey grabbed my a
 
 ## Related Posts
 
-- [following your dreams quotes](https://inspiration.allwomenstalk.com/the-most-motivational-quotes-about-following-your-dreams/)
-- [soulmates that cant be together quotes](https://love.allwomenstalk.com/the-sweetest-quotes-about-soulmates/)
-- [steven hawking quotes](https://inspiration.allwomenstalk.com/inspirational-stephen-hawking-quotes/)
 - [positive dont worry quotes](https://inspiration.allwomenstalk.com/dont-worry-be-happy-best-quotes-in-the-world-thatll-help-you-stop-worrying/)
-- [Carpe Vinum These Quotes about Wine Will Make You ...](https://funny.allwomenstalk.com/carpe-vinum-these-quotes-about-wine-will-make-you-laugh/)
-- [stargazing truck bed date](https://inspiration.allwomenstalk.com/heres-a-little-stargazing-inspo-to-make-your-day-or-night/)
-- [nutritional quotes](https://fitness.allwomenstalk.com/these-quotes-about-fitness-nutrition-will-keep-you-motivated/)
-- [latin for life is short](https://inspiration.allwomenstalk.com/latin-phrases-about-finding-strength-within-yourself/)
+- [soulmates that cant be together quotes](https://love.allwomenstalk.com/the-sweetest-quotes-about-soulmates/)
 - [famous j.k. rowling quotes](https://inspiration.allwomenstalk.com/inspirational-j-k-rowling-quotes-to-help-you-reach-your-potential/)
 - [becoming a better woman quotes](https://inspiration.allwomenstalk.com/quotes-thatll-motivate-you-to-become-a-better-woman/)
+- [steven hawking quotes](https://inspiration.allwomenstalk.com/inspirational-stephen-hawking-quotes/)
+- [stargazing truck bed date](https://inspiration.allwomenstalk.com/heres-a-little-stargazing-inspo-to-make-your-day-or-night/)
+- [Carpe Vinum These Quotes about Wine Will Make You ...](https://funny.allwomenstalk.com/carpe-vinum-these-quotes-about-wine-will-make-you-laugh/)
+- [following your dreams quotes](https://inspiration.allwomenstalk.com/the-most-motivational-quotes-about-following-your-dreams/)
+- [latin for life is short](https://inspiration.allwomenstalk.com/latin-phrases-about-finding-strength-within-yourself/)
+- [nutritional quotes](https://fitness.allwomenstalk.com/these-quotes-about-fitness-nutrition-will-keep-you-motivated/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

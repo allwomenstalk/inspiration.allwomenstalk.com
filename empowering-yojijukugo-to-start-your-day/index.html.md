@@ -32,16 +32,16 @@ When you fall down, you can pick yourself back up. Setbacks happen. Failure happ
 
 ## Related Posts
 
+- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
+- [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
+- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
 - [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
 - [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
-- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
-- [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
-- [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
-- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
-- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
-- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
-- [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
 - [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
+- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
+- [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
+- [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
 - [5 Things That Can Help You Relax Today...](https://allwomenstalk.com/5-things-that-can-help-you-relax-today/)
 - [5 Weird Things to Perk up Your Week ...](https://allwomenstalk.com/5-weird-things-to-perk-up-your-week/)
 

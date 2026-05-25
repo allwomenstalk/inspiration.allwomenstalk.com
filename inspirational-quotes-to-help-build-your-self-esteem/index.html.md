@@ -51,15 +51,15 @@ These are but a few inspirational quotes that help me realize what I want to do 
 ## Related Posts
 
 - [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
-- [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
-- [self love workout quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
+- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
 - [hobgoblin quotes](https://books.allwomenstalk.com/well-known-quotes-you-probably-didnt-know-were-from-literature/)
+- [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
+- [poems of inspiration](https://books.allwomenstalk.com/poems-that-inspire-me-to-write/)
 - [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
 - [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
-- [poems of inspiration](https://books.allwomenstalk.com/poems-that-inspire-me-to-write/)
 - [dr seuss stand out quote](https://inspiration.allwomenstalk.com/insipiring-quotes-from-dr-seuss-to-live-by/)
-- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
-- [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
+- [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
+- [self love workout quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
 - [9 Wonderfully Effective Ways to Boost Your Self-Es...](https://lifestyle.allwomenstalk.com/wonderfully-effective-ways-to-boost-your-self-esteem/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

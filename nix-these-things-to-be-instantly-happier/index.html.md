@@ -52,16 +52,16 @@ What are you saying goodbye to so you can move onward and upward this year?
 
 ## Related Posts
 
-- [The Foundation Tip That Will Completely Change You...](https://makeup.allwomenstalk.com/the-foundation-tip-thatll-change-your-life/)
 - [Outstanding Ways to Change Your Life when Youre Ti...](https://inspiration.allwomenstalk.com/ways-to-change-your-life-when-youre-exhausted-trying/)
-- [9 Things You Can do to Connect with Your Body ...](https://health.allwomenstalk.com/connect-to-your-body-by-doing-these-things/)
-- [Celebrate Earth Hour Today to Help Change Climate ...](https://lifestyle.allwomenstalk.com/celebrate-earth-hour-today-to-help-change-climate-change/)
-- [9 Ways to Supercharge Your Focus and Achieve Succe...](https://inspiration.allwomenstalk.com/ways-to-boost-your-focus-on-achieving-success/)
-- [10 Genius Ways to Always Keep Your Mind Razor Shar...](https://health.allwomenstalk.com/ways-to-keep-your-mind-razor-sharp-always/)
 - [Youll Be Happier if You Say Yes to These 17 Things...](https://inspiration.allwomenstalk.com/youll-be-happier-if-you-say-yes-to-these-things/)
-- [How to Stay  Motivated to Keep Your New Years Reso...](https://inspiration.allwomenstalk.com/how-to-stay-motivated-to-keep-your-new-years-resolution/)
-- [Great Ways to Help You Stop Fearing the Future ...](https://inspiration.allwomenstalk.com/how-to-stop-fearing-the-future/)
+- [Celebrate Earth Hour Today to Help Change Climate ...](https://lifestyle.allwomenstalk.com/celebrate-earth-hour-today-to-help-change-climate-change/)
 - [17 Things You Should Make More Time for in Life .....](https://inspiration.allwomenstalk.com/you-should-make-more-time-for-these-things/)
+- [How to Stay  Motivated to Keep Your New Years Reso...](https://inspiration.allwomenstalk.com/how-to-stay-motivated-to-keep-your-new-years-resolution/)
+- [10 Genius Ways to Always Keep Your Mind Razor Shar...](https://health.allwomenstalk.com/ways-to-keep-your-mind-razor-sharp-always/)
+- [Great Ways to Help You Stop Fearing the Future ...](https://inspiration.allwomenstalk.com/how-to-stop-fearing-the-future/)
+- [9 Things You Can do to Connect with Your Body ...](https://health.allwomenstalk.com/connect-to-your-body-by-doing-these-things/)
+- [9 Ways to Supercharge Your Focus and Achieve Succe...](https://inspiration.allwomenstalk.com/ways-to-boost-your-focus-on-achieving-success/)
+- [The Foundation Tip That Will Completely Change You...](https://makeup.allwomenstalk.com/the-foundation-tip-thatll-change-your-life/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 - [5 Things to Be Happy about ...](https://allwomenstalk.com/5-things-to-be-happy-about/)
 

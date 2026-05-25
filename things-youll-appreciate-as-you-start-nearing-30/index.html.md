@@ -42,16 +42,16 @@ Though I joke we are going to skip next December 31st when I turn 30, I’m trul
 
 ## Related Posts
 
-- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
-- [in what ways do you think were similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
-- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
-- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
-- [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
-- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
-- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
 - [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
+- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
 - [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
+- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
+- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
+- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
+- [in what ways do you think were similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
 - [skills to learn before 20](https://inspiration.allwomenstalk.com/lifesaving-skills-to-learn-before-you-reach-20/)
+- [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
+- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
 - [7 Things That Get Better with Age ...](https://lifestyle.allwomenstalk.com/things-that-get-better-with-age/)
 - [10 Great Points about Turning 40 ...](https://allwomenstalk.com/10-great-points-about-turning-40/)
 

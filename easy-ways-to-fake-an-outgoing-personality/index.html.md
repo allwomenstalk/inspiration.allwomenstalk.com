@@ -42,16 +42,16 @@ These 7 steps can help you to fake an outgoing personality when you need to do s
 
 ## Related Posts
 
-- [what does it mean when someone mimics you](https://inspiration.allwomenstalk.com/ways-to-deal-when-someone-constantly-imitates-you/)
-- [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
 - [cheating revenge ideas](https://love.allwomenstalk.com/awesome-ways-to-get-back-at-a-cheater/)
+- [what does it mean when someone mimics you](https://inspiration.allwomenstalk.com/ways-to-deal-when-someone-constantly-imitates-you/)
 - [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
-- [how to handle rumors](https://inspiration.allwomenstalk.com/empowering-ways-to-deal-with-rumors/)
-- [7 tricks to make yourself stop texting and driving](https://lifestyle.allwomenstalk.com/ways-to-break-the-texting-and-driving-habit/)
+- [famous angry tennis player](https://fitness.allwomenstalk.com/ways-to-control-anger-on-the-tennis-court/)
 - [how to cope with embarrassing moments](https://lifestyle.allwomenstalk.com/ways-to-recover-from-an-embarrassing-moment-2/)
 - [makepeace jewelry](https://lifestyle.allwomenstalk.com/ways-to-make-peace-with-your-siblings-as-an-adult/)
+- [7 tricks to make yourself stop texting and driving](https://lifestyle.allwomenstalk.com/ways-to-break-the-texting-and-driving-habit/)
 - [falling out between friends](https://teen.allwomenstalk.com/tips-for-when-you-have-a-falling-out-with-your-best-friend/)
-- [famous angry tennis player](https://fitness.allwomenstalk.com/ways-to-control-anger-on-the-tennis-court/)
+- [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
+- [how to handle rumors](https://inspiration.allwomenstalk.com/empowering-ways-to-deal-with-rumors/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [9 Easy Ways to Overcome Your Shyness ...](https://lifestyle.allwomenstalk.com/easy-ways-to-overcome-your-shyness/)
 

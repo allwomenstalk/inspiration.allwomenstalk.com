@@ -112,16 +112,16 @@ No one says you have to be perfect, however, why should perfection not be your a
 
 ## Related Posts
 
+- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
 - [taylor swifts squad](https://fashion.allwomenstalk.com/these-women-in-taylor-swifts-squad-may-be-the-ultimate-style-inspo/)
 - [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
 - [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
-- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
 - [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
 - [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
-- [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
 - [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
-- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
 - [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
+- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
+- [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
 - [15 Things Men Love in Women More than Good Looks ....](https://love.allwomenstalk.com/things-men-like-in-women-more-than-good-looks/)
 - [7 Facts about Girls](https://allwomenstalk.com/7-facts-about-girls/)
 

@@ -42,14 +42,14 @@ These are 7 reasons why integrity is important. What are your thoughts on this s
 
 ## Related Posts
 
-- [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
-- [the most friendly person in my class paragraph](https://lifestyle.allwomenstalk.com/benefits-of-being-friendly-with-everyone-you-meet/)
+- [why is it so hard to stand up straight](https://health.allwomenstalk.com/reasons-to-stand-up-straight-always/)
 - [how do you put together a flute](https://music.allwomenstalk.com/pros-and-cons-of-playing-the-flute/)
 - [good grammar or proper grammar](https://lifestyle.allwomenstalk.com/important-reasons-why-good-grammar-matters/)
-- [why is it so hard to stand up straight](https://health.allwomenstalk.com/reasons-to-stand-up-straight-always/)
+- [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
 - [why you should visit the philippines](https://travel.allwomenstalk.com/reasons-why-you-should-visit-the-philippines-after-the-typhoon/)
 - [why is to kill a mockingbird important](https://books.allwomenstalk.com/reasons-why-you-should-read-to-kill-a-mockingbird/)
 - [calgary canada tourism](https://travel.allwomenstalk.com/reasons-to-visit-calgary/)
+- [the most friendly person in my class paragraph](https://lifestyle.allwomenstalk.com/benefits-of-being-friendly-with-everyone-you-meet/)
 - [why we watch](https://inspiration.allwomenstalk.com/reasons-why-you-should-spend-more-time-people-watching/)
 - [vitamix quiz](https://food.allwomenstalk.com/reasons-to-own-a-vitamix-blender/)
 - [7 Reasons to Vote ...](https://lifestyle.allwomenstalk.com/reasons-to-vote/)

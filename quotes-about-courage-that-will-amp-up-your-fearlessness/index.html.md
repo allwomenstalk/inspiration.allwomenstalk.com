@@ -69,15 +69,15 @@ Courage can mean many things, but what’s important is knowing what it is in li
 ## Related Posts
 
 - [aladdin best quotes](https://funny.allwomenstalk.com/silly-but-inspirational-robin-williams-genie-quotes-from-aladdin/)
+- [battling with depression quotes](https://teen.allwomenstalk.com/quotes-for-teens-battling-depression/)
 - [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
+- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
 - [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
 - [quotes tattoo about life](https://inspiration.allwomenstalk.com/inspiring-quote-tattoos-that-will-make-you-want-to-get-inked/)
-- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
-- [deepak chopra quotes on self love](https://inspiration.allwomenstalk.com/deepak-chopra-quotes-to-make-you-feel-more-centered/)
+- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
 - [alice sayings](https://inspiration.allwomenstalk.com/inspirational-alice-in-wonderland-quotes-thatll-make-you-think/)
 - [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
-- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
-- [battling with depression quotes](https://teen.allwomenstalk.com/quotes-for-teens-battling-depression/)
+- [deepak chopra quotes on self love](https://inspiration.allwomenstalk.com/deepak-chopra-quotes-to-make-you-feel-more-centered/)
 - [5 Secrets to Overcome Fear ...](https://twilight.allwomenstalk.com/5-secrets-to-overcome-fear/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

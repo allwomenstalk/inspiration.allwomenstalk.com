@@ -50,16 +50,16 @@ There are things you can do to build your confidence and in recognizing that it 
 
 ## Related Posts
 
-- [beautiful traits](https://beauty.allwomenstalk.com/quirky-physical-traits-that-make-you-beautiful/)
+- [how to get a nice body](https://fitness.allwomenstalk.com/steps-to-a-great-body/)
 - [how to look good in photographs](https://diy.allwomenstalk.com/easy-ways-to-look-good-in-photographs/)
-- [7 Essential Health Tips from Top Models ...](https://health.allwomenstalk.com/essential-health-tips-from-top-models/)
-- [sculpted shoulders](https://fitness.allwomenstalk.com/ways-to-get-sculpted-shoulders-like-the-celebrities/)
 - [you look fabulous](https://fashion.allwomenstalk.com/ways-to-look-fabulous-in-a-swimsuit/)
-- [how to be a pretty sleeper](https://beauty.allwomenstalk.com/ways-to-look-good-before-bed/)
 - [transforming your body](https://fitness.allwomenstalk.com/things-to-remember-when-transforming-your-body/)
+- [sculpted shoulders](https://fitness.allwomenstalk.com/ways-to-get-sculpted-shoulders-like-the-celebrities/)
+- [beautiful traits](https://beauty.allwomenstalk.com/quirky-physical-traits-that-make-you-beautiful/)
 - [kate middleton classy](https://celebs.allwomenstalk.com/ways-to-become-as-classy-as-kate-middleton/)
 - [how to look your best in 7 days](https://health.allwomenstalk.com/ways-to-look-and-feel-better-in-7-days/)
-- [how to get a nice body](https://fitness.allwomenstalk.com/steps-to-a-great-body/)
+- [7 Essential Health Tips from Top Models ...](https://health.allwomenstalk.com/essential-health-tips-from-top-models/)
+- [how to be a pretty sleeper](https://beauty.allwomenstalk.com/ways-to-look-good-before-bed/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Radiate Killer Confidence ...](https://lifestyle.allwomenstalk.com/ways-to-radiate-killer-confidence/)
 

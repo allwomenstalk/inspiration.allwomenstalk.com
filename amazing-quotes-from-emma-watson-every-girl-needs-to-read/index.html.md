@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many incredible quotes from
 
 ## Related Posts
 
-- [my first crush quotes](https://love.allwomenstalk.com/beautiful-first-love-quotes-that-will-make-you-feel-warm-inside/)
-- [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
-- [when you have exhausted all possibilities](https://inspiration.allwomenstalk.com/quotes-from-thomas-edison-for-when-you-need-encouragement/)
 - [famous quotes from comedians](https://funny.allwomenstalk.com/quotes-from-comedians-that-will-give-you-strength-to-be-happy/)
-- [kubler ross quotes](https://inspiration.allwomenstalk.com/best-quotes-from-elizabeth-kubler-ross/)
-- [disney kindness quotes](https://inspiration.allwomenstalk.com/quotes-from-walt-disney-to-inspire-and-motivate-you/)
+- [my first crush quotes](https://love.allwomenstalk.com/beautiful-first-love-quotes-that-will-make-you-feel-warm-inside/)
 - [book motivational quotes](https://books.allwomenstalk.com/motivational-quotes-from-books-that-celebrate-being-happy/)
-- [love quotes for long distance lovers](https://love.allwomenstalk.com/inspirational-long-distance-relationship-quotes-to-live-by/)
+- [when you have exhausted all possibilities](https://inspiration.allwomenstalk.com/quotes-from-thomas-edison-for-when-you-need-encouragement/)
+- [disney kindness quotes](https://inspiration.allwomenstalk.com/quotes-from-walt-disney-to-inspire-and-motivate-you/)
 - [inspirational bad day quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-to-read-after-youve-had-a-bad-day/)
+- [love quotes for long distance lovers](https://love.allwomenstalk.com/inspirational-long-distance-relationship-quotes-to-live-by/)
 - [quotes about comedians](https://funny.allwomenstalk.com/funny-love-quotes-from-comedians-that-will-cheer-you-up/)
+- [kubler ross quotes](https://inspiration.allwomenstalk.com/best-quotes-from-elizabeth-kubler-ross/)
+- [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 in-the-Know Books Every Woman Should Read ...](https://allwomenstalk.com/7-in-the-know-books-every-woman-should-read/)
 

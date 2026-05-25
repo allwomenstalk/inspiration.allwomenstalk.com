@@ -45,15 +45,15 @@ In order to keep all your friendships strong, try to actively nurture them. What
 
 ## Related Posts
 
-- [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
-- [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
-- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
-- [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
-- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
-- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
 - [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
 - [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
+- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
+- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
+- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
+- [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
 - [office rivalry](https://money.allwomenstalk.com/tips-on-how-to-deal-with-office-rivalry/)
+- [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
+- [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
 - [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [8 Ways to Encourage Your Friends ...](https://allwomenstalk.com/8-ways-to-encourage-your-friends/)

@@ -42,16 +42,16 @@ There are some things you should do and some things you shouldn’t when you are
 
 ## Related Posts
 
-- [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
+- [7 Words You Should Never Use at a Job Interview .....](https://money.allwomenstalk.com/words-you-should-never-use-at-a-job-interview/)
+- [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
+- [a bad driving habit you should avoid is:](https://travel.allwomenstalk.com/bad-driving-habits-you-should-avoid/)
+- [9 Things You Shouldnt do when Youre Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
+- [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
 - [Social Media: the Dos  Donts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
 - [25 Things to Dump before You Turn 30 ...](https://lifestyle.allwomenstalk.com/things-to-dump-before-you-turn-30/)
-- [7 Grammar Mistakes You Should Never Make Again ...](https://lifestyle.allwomenstalk.com/grammar-mistakes-you-should-never-make-again/)
-- [7 Things Your Boyfriend Should Never Make You do f...](https://love.allwomenstalk.com/things-your-boyfriend-should-never-make-you-do-for-him/)
-- [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
 - [7 Bad Money Moves to Avoid on a First Date ...](https://money.allwomenstalk.com/bad-money-moves-to-avoid-on-a-first-date/)
-- [9 Things You Shouldnt do when Youre Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
-- [a bad driving habit you should avoid is:](https://travel.allwomenstalk.com/bad-driving-habits-you-should-avoid/)
-- [7 Words You Should Never Use at a Job Interview .....](https://money.allwomenstalk.com/words-you-should-never-use-at-a-job-interview/)
+- [7 Things Not to do Right before You Graduate ...](https://teen.allwomenstalk.com/things-not-to-do-right-before-you-graduate/)
+- [7 Grammar Mistakes You Should Never Make Again ...](https://lifestyle.allwomenstalk.com/grammar-mistakes-you-should-never-make-again/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 

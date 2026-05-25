@@ -30,16 +30,16 @@ So yeah, ready set 2019… the year of overcoming!
 
 ## Related Posts
 
-- [7 Ways to Be Happier in 2019 than You Were in 2018...](https://inspiration.allwomenstalk.com/ways-to-be-happier-in-than-you-were-in/)
-- [How to Boost Your Financial Well Being in 2023 ...](https://money.allwomenstalk.com/how-to-boost-your-financial-well-being-in/)
-- [Step out of Your Comfort Zone One Foot at a Time ....](https://inspiration.allwomenstalk.com/step-out-of-your-comfort-zone-one-foot-at-a-time/)
-- [How to Conquer the Challenges of Life like a Super...](https://inspiration.allwomenstalk.com/how-to-conquer-the-challenges-of-life-like-a-superstar/)
-- [6 Things to Consider when Making New Years Resolut...](https://inspiration.allwomenstalk.com/things-to-consider-when-making-new-years-resolutions/)
 - [How to Have a Positive Perspective on Death ...](https://inspiration.allwomenstalk.com/how-to-have-a-positive-perspective-on-death/)
+- [6 Things to Consider when Making New Years Resolut...](https://inspiration.allwomenstalk.com/things-to-consider-when-making-new-years-resolutions/)
 - [life changing resolutions](https://inspiration.allwomenstalk.com/life-changing-resolutions-you-will-want-to-keep/)
-- [The Health Resolutions You Should Be Making in 201...](https://health.allwomenstalk.com/the-health-resolutions-you-should-be-making-in/)
-- [habits to start in your 20s](https://inspiration.allwomenstalk.com/habits-you-need-to-master-in-your-20s-for-an-awesome-future/)
+- [How to Conquer the Challenges of Life like a Super...](https://inspiration.allwomenstalk.com/how-to-conquer-the-challenges-of-life-like-a-superstar/)
 - [How to Apply Feng Shui for a Peaceful and Prospero...](https://lifestyle.allwomenstalk.com/how-to-apply-feng-shui-for-a-peaceful-and-prosperous-life/)
+- [7 Ways to Be Happier in 2019 than You Were in 2018...](https://inspiration.allwomenstalk.com/ways-to-be-happier-in-than-you-were-in/)
+- [The Health Resolutions You Should Be Making in 201...](https://health.allwomenstalk.com/the-health-resolutions-you-should-be-making-in/)
+- [Step out of Your Comfort Zone One Foot at a Time ....](https://inspiration.allwomenstalk.com/step-out-of-your-comfort-zone-one-foot-at-a-time/)
+- [habits to start in your 20s](https://inspiration.allwomenstalk.com/habits-you-need-to-master-in-your-20s-for-an-awesome-future/)
+- [How to Boost Your Financial Well Being in 2023 ...](https://money.allwomenstalk.com/how-to-boost-your-financial-well-being-in/)
 - [13 of the Most Inspiring Quotes for Overcoming a L...](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
 - [7 Cheery Quotes to Live by for the New Year ...](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
 

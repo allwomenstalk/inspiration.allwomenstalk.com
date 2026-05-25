@@ -56,16 +56,16 @@ What you are going through is definitely a struggle, but just know that you aren
 
 ## Related Posts
 
+- [your first kiss quotes](https://love.allwomenstalk.com/quotes-about-first-love-everyone-has-to-read/)
+- [amy schumer quotes](https://funny.allwomenstalk.com/quotes-from-amy-schumer-that-will-make-you-think/)
+- [eye opening quotes about love](https://love.allwomenstalk.com/eye-opening-quotes-about-the-psychology-of-love/)
+- [editography meaning](https://inspiration.allwomenstalk.com/these-encouraging-quotes-for-a-hard-day-will-make-you-feel-so-much-better/)
+- [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
+- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
 - [nail quotes sayings](https://travel.allwomenstalk.com/these-beachy-quotes-will-make-you-feel-like-youre-on-vacay-even-when-youre-not/)
-- [shes right you know](https://funny.allwomenstalk.com/shes-right-you-know-check-out-these-quotes-from-amy-poehler/)
 - [one day is good one day is bad](https://inspiration.allwomenstalk.com/read-these-quotes-after-a-really-rough-day/)
 - [big words for strong](https://lifestyle.allwomenstalk.com/strong-words-thatll-help-you-win-arguments/)
-- [your first kiss quotes](https://love.allwomenstalk.com/quotes-about-first-love-everyone-has-to-read/)
-- [eye opening quotes about love](https://love.allwomenstalk.com/eye-opening-quotes-about-the-psychology-of-love/)
-- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
-- [editography meaning](https://inspiration.allwomenstalk.com/these-encouraging-quotes-for-a-hard-day-will-make-you-feel-so-much-better/)
-- [amy schumer quotes](https://funny.allwomenstalk.com/quotes-from-amy-schumer-that-will-make-you-think/)
-- [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
+- [shes right you know](https://funny.allwomenstalk.com/shes-right-you-know-check-out-these-quotes-from-amy-poehler/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [7 Amazing and Inspirational Women That Every Girl ...](https://inspiration.allwomenstalk.com/amazing-and-inspirational-women-that-every-girl-can-look-up-to-in-todays-society/)
 

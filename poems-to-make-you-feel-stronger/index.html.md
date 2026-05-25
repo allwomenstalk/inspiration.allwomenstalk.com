@@ -42,16 +42,16 @@ These are my favorite poems which make me feel stronger. Which is your favorite?
 
 ## Related Posts
 
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [romantic passionate quotes](https://love.allwomenstalk.com/passionate-quotes-about-love/)
-- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
-- [budding picasso meaning](https://inspiration.allwomenstalk.com/inspirational-quotes-for-budding-artists/)
-- [working hard for something quotes](https://inspiration.allwomenstalk.com/motivational-quotes-about-hard-work/)
-- [amy poehler legs](https://inspiration.allwomenstalk.com/quotes-from-amy-poehler-to-inspire-you/)
-- [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
-- [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
 - [keira knightley quotes](https://celebs.allwomenstalk.com/celebrity-quotes-on-feminism-you-need-to-read/)
+- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
+- [working hard for something quotes](https://inspiration.allwomenstalk.com/motivational-quotes-about-hard-work/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
+- [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
+- [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
+- [budding picasso meaning](https://inspiration.allwomenstalk.com/inspirational-quotes-for-budding-artists/)
 - [you will inspire some and annoy others](https://funny.allwomenstalk.com/silly-words-of-wisdom-that-will-inspire-you-to-succeed/)
+- [amy poehler legs](https://inspiration.allwomenstalk.com/quotes-from-amy-poehler-to-inspire-you/)
 - [9 Inspirational Quotes to Help Build Your Self-Est...](https://inspiration.allwomenstalk.com/inspirational-quotes-to-help-build-your-self-esteem/)
 - [11 Uplifting Quotes to Make You Feel Better ...](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
 

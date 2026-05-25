@@ -42,16 +42,16 @@ These’re 7 sources of negativity that you may have in your life. Do you strugg
 
 ## Related Posts
 
-- [things lucky](https://inspiration.allwomenstalk.com/things-youre-lucky-to-have-in-your-life/)
-- [the king explodes this cool guy my gardener met ye...](https://lifestyle.allwomenstalk.com/wait-till-you-read-this-you-will-never-be-superstitious-again/)
-- [youll never know the importance of a person](https://inspiration.allwomenstalk.com/this-is-what-life-is-all-about/)
 - [being melodramatic](https://inspiration.allwomenstalk.com/dump-the-drama-melodramatic-traits-thatll-make-you-unpopular/)
-- [believe in uourself](https://inspiration.allwomenstalk.com/choose-pleasure-over-pain-unhealthy-habits-destroying-your-happiness/)
-- [weird paradoxes](https://lifestyle.allwomenstalk.com/weird-paradoxes-that-will-give-you-a-real-headache/)
-- [things that are more important than money](https://money.allwomenstalk.com/things-that-are-more-important-than-how-much-money-you-make/)
+- [things lucky](https://inspiration.allwomenstalk.com/things-youre-lucky-to-have-in-your-life/)
 - [personal flaw](https://inspiration.allwomenstalk.com/so-called-personality-flaws-that-will-create-success/)
+- [youll never know the importance of a person](https://inspiration.allwomenstalk.com/this-is-what-life-is-all-about/)
+- [weird paradoxes](https://lifestyle.allwomenstalk.com/weird-paradoxes-that-will-give-you-a-real-headache/)
+- [believe in uourself](https://inspiration.allwomenstalk.com/choose-pleasure-over-pain-unhealthy-habits-destroying-your-happiness/)
+- [things that are more important than money](https://money.allwomenstalk.com/things-that-are-more-important-than-how-much-money-you-make/)
 - [teenager pro tips](https://teen.allwomenstalk.com/the-best-bits-of-wisdom-for-teenagers-everywhere/)
 - [my mom my role model](https://lifestyle.allwomenstalk.com/im-living-proof-growing-up-with-a-single-mom-can-actually-be-great/)
+- [the king explodes this cool guy my gardener met ye...](https://lifestyle.allwomenstalk.com/wait-till-you-read-this-you-will-never-be-superstitious-again/)
 - [7 Negative Influences to Remove from Your Life ...](https://lifestyle.allwomenstalk.com/negative-influences-to-remove-from-your-life/)
 - [10 Things You Need to Stop Doing in Your Everyday ...](https://allwomenstalk.com/10-things-you-need-to-stop-doing-in-your-everyday-life/)
 

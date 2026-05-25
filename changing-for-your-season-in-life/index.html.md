@@ -32,16 +32,16 @@ Now, I’m not hearing voices or nothing, but that saying is true. Sometimes sea
 
 ## Related Posts
 
-- [5 Simple Yet Effective Ways to Make 2019 Your Year](https://inspiration.allwomenstalk.com/simple-yet-effective-ways-to-make-your-year/)
-- [6 Things to Consider when Making New Years Resolut...](https://inspiration.allwomenstalk.com/things-to-consider-when-making-new-years-resolutions/)
 - [Inspiration to Make 2019 the Year of Overcoming](https://inspiration.allwomenstalk.com/inspiration-to-make-the-year-of-overcoming/)
-- [5 Inspiring Ways to Be Content with What You Have ...](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-content-with-what-you-have/)
-- [How to Boost Your Financial Well Being in 2023 ...](https://money.allwomenstalk.com/how-to-boost-your-financial-well-being-in/)
-- [12 Smart  Decisions Youll Be Proud of This Time  N...](https://inspiration.allwomenstalk.com/smart-decisions-youll-be-proud-of-this-time-next-year/)
+- [5 Simple Yet Effective Ways to Make 2019 Your Year](https://inspiration.allwomenstalk.com/simple-yet-effective-ways-to-make-your-year/)
 - [9 Inspirational Ways to Live a Badass Life ...](https://inspiration.allwomenstalk.com/inspirational-ways-to-live-a-badass-life/)
+- [5 Inspiring Ways to Be Content with What You Have ...](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-content-with-what-you-have/)
+- [12 Smart  Decisions Youll Be Proud of This Time  N...](https://inspiration.allwomenstalk.com/smart-decisions-youll-be-proud-of-this-time-next-year/)
+- [6 Things to Consider when Making New Years Resolut...](https://inspiration.allwomenstalk.com/things-to-consider-when-making-new-years-resolutions/)
 - [7 Ways to Be Happier in 2019 than You Were in 2018...](https://inspiration.allwomenstalk.com/ways-to-be-happier-in-than-you-were-in/)
-- [How to Have a Positive Perspective on Death ...](https://inspiration.allwomenstalk.com/how-to-have-a-positive-perspective-on-death/)
 - [19 Goals to Make for 2019 ...](https://inspiration.allwomenstalk.com/goals-to-make-for/)
+- [How to Have a Positive Perspective on Death ...](https://inspiration.allwomenstalk.com/how-to-have-a-positive-perspective-on-death/)
+- [How to Boost Your Financial Well Being in 2023 ...](https://money.allwomenstalk.com/how-to-boost-your-financial-well-being-in/)
 - [About Life ...](https://allwomenstalk.com/about-life/)
 - [31 Ways to Change Your Life for the Better ...](https://allwomenstalk.com/ways-to-change-your-life-for-the-better/)
 

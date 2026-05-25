@@ -42,16 +42,16 @@ These are just a few key secrets of great athletes that we can all learn from. W
 
 ## Related Posts
 
-- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
+- [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
 - [joan collins marriages](https://celebs.allwomenstalk.com/important-life-lessons-to-learn-from-joan-collins/)
-- [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
-- [you dont have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
 - [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
+- [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
 - [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
+- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
+- [you dont have to be ashamed](https://lifestyle.allwomenstalk.com/things-you-should-not-be-ashamed-of/)
+- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
 - [principles of kwanzaa](https://lifestyle.allwomenstalk.com/essential-principles-of-kwanzaa-that-you-should-know-about/)
 - [moms teachus](https://parenting.allwomenstalk.com/valuable-life-lessons-my-mother-taught-me/)
-- [kelly and jane mcgonigal](https://lifestyle.allwomenstalk.com/ted-talks-you-should-definitely-check-out/)
-- [people with glasses on](https://lifestyle.allwomenstalk.com/things-only-people-with-glasses-can-relate-to/)
 - [7 Simple Secrets of Success ...](https://lifestyle.allwomenstalk.com/simple-secrets-of-success/)
 - [7 Tips from My Personal Trainer ...](https://allwomenstalk.com/7-tips-from-my-personal-trainer/)
 

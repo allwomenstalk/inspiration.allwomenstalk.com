@@ -56,16 +56,16 @@ If you have a tendency to worry, put these quotes on your wall or dressing room 
 
 ## Related Posts
 
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
-- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
-- [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
 - [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
-- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
-- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
-- [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
 - [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
-- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
 - [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
+- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
+- [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
+- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
+- [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
+- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
+- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [7 Ways to Stop Being Obsessive ...](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
 - [7 Ways to Prevent Procrastination ...](https://allwomenstalk.com/7-ways-to-prevent-procrastination/)
 

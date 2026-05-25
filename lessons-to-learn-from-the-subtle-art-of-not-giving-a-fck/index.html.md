@@ -48,16 +48,16 @@ It might sound morbid, but the fact of the matter is that we are all on the same
 
 ## Related Posts
 
-- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
-- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
-- [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
-- [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
-- [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
-- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
 - [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
-- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
+- [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
 - [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
+- [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
+- [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
+- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
+- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
+- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
+- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 - [9 Ways to Stay True to Yourself ...](https://allwomenstalk.com/9-ways-to-stay-true-to-yourself/)
 - [9 Steps to Mature Behaviour ...](https://allwomenstalk.com/9-steps-to-mature-behaviour/)
 

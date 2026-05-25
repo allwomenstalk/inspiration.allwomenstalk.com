@@ -43,15 +43,15 @@ Do you have a self-absorbed person in your life? How do you deal? Please share y
 ## Related Posts
 
 - [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
-- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
+- [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
 - [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
-- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
 - [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
 - [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
 - [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
-- [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
+- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
 - [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
+- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
 - [Clever Ways to Survive an Awkward Situation ...](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
 - [Dealing with Passive Aggressive Family Friends and...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
 

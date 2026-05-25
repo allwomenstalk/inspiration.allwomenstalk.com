@@ -52,16 +52,16 @@ Are you a confirmed loner or would you prefer to be part of a couple?
 
 ## Related Posts
 
-- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
 - [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
 - [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
+- [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
 - [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
 - [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
-- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
-- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
-- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
+- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
 - [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
-- [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
+- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
 - [7 Reasons Why Alone Time is Important ...](https://allwomenstalk.com/reasons-why-alone-time-is-important/)
 - [7 Awesome Benefits of Living the Single Life ...](https://love.allwomenstalk.com/awesome-benefits-of-living-the-single-life/)
 

@@ -128,16 +128,16 @@ This article was updated by Sabrina Yates.
 
 ## Related Posts
 
-- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
-- [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
-- [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
-- [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
-- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
-- [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
-- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
-- [elegant female movie characters](https://movies.allwomenstalk.com/fierce-female-movie-characters-who-dont-need-to-be-rescued/)
-- [denise key and peele actress](https://funny.allwomenstalk.com/hilarious-women-who-are-killing-the-comedy-game/)
 - [feminist pop songs](https://music.allwomenstalk.com/fierce-feminist-anthems-for-when-you-want-to-feel-empowered/)
+- [denise key and peele actress](https://funny.allwomenstalk.com/hilarious-women-who-are-killing-the-comedy-game/)
+- [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
+- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
+- [elegant female movie characters](https://movies.allwomenstalk.com/fierce-female-movie-characters-who-dont-need-to-be-rescued/)
+- [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
+- [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
+- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
+- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
+- [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
 - [8 Female Bond Villains ...](https://movies.allwomenstalk.com/female-bond-villains/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

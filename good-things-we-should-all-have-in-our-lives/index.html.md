@@ -42,16 +42,16 @@ There are tons of things to be grateful for like friends and family, food and gr
 
 ## Related Posts
 
-- [8 Things to Learn to Notice Again ...](https://inspiration.allwomenstalk.com/things-to-learn-to-notice-again/)
-- [7 Characteristics to Be Successful in Life ...](https://inspiration.allwomenstalk.com/characteristics-to-be-successful-in-life/)
-- [7 Defense Mechanisms You May Be Using without Real...](https://health.allwomenstalk.com/defense-mechanisms-you-may-be-unconsciously-using/)
-- [20 social media etiquette](https://lifestyle.allwomenstalk.com/rules-of-social-media-etiquette-every-generation-should-be-aware-of/)
-- [7 Life Lessons from F.R.I.E.N.D.S That Are Valuabl...](https://movies.allwomenstalk.com/life-lessons-from-f-r-i-e-n-d-s-that-are-valuable-and-true/)
 - [7 Developmental Psychologists and What They Have t...](https://health.allwomenstalk.com/developmental-psychologists-and-what-they-have-to-say/)
-- [9 Important Environmental Choices We Make Every Si...](https://lifestyle.allwomenstalk.com/important-environmental-choices-we-make-every-single-day/)
+- [7 Life Lessons from F.R.I.E.N.D.S That Are Valuabl...](https://movies.allwomenstalk.com/life-lessons-from-f-r-i-e-n-d-s-that-are-valuable-and-true/)
+- [7 Essentials of Happiness We Forget as We Age ...](https://inspiration.allwomenstalk.com/important-things-about-happiness-we-forget-as-we-age/)
 - [le stylo smoky eye unforgettable lilac](https://lifestyle.allwomenstalk.com/things-you-dont-have-to-try-when-youre-young/)
 - [7 Powerful Lessons from Beyonce That You Simply Ca...](https://celebs.allwomenstalk.com/powerful-lessons-from-beyonce-that-you-simply-cant-ignore/)
-- [7 Essentials of Happiness We Forget as We Age ...](https://inspiration.allwomenstalk.com/important-things-about-happiness-we-forget-as-we-age/)
+- [7 Defense Mechanisms You May Be Using without Real...](https://health.allwomenstalk.com/defense-mechanisms-you-may-be-unconsciously-using/)
+- [7 Characteristics to Be Successful in Life ...](https://inspiration.allwomenstalk.com/characteristics-to-be-successful-in-life/)
+- [8 Things to Learn to Notice Again ...](https://inspiration.allwomenstalk.com/things-to-learn-to-notice-again/)
+- [9 Important Environmental Choices We Make Every Si...](https://lifestyle.allwomenstalk.com/important-environmental-choices-we-make-every-single-day/)
+- [20 social media etiquette](https://lifestyle.allwomenstalk.com/rules-of-social-media-etiquette-every-generation-should-be-aware-of/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 - [5 Things to do for a Healthy Life ...](https://allwomenstalk.com/things-to-do-for-healthy-life/)
 

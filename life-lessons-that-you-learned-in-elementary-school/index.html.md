@@ -42,15 +42,15 @@ There are many things you learned in elementary school that translate to real li
 
 ## Related Posts
 
-- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
-- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
-- [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
 - [similarities and differences between generations](https://inspiration.allwomenstalk.com/differences-between-generations-that-we-cant-seem-to-accept/)
-- [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
+- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
 - [you have enough](https://lifestyle.allwomenstalk.com/things-we-never-seem-to-have-enough-of/)
+- [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
+- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
+- [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
+- [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
 - [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
 - [what are the things that keep you from living up t...](https://inspiration.allwomenstalk.com/things-that-are-stopping-you-from-reaching-your-full-potential/)
-- [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
 - [7 Life Lessons to Teach Your Son ...](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
 - [8 Life Lessons They Should Teach in School ...](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [7 Things to Teach Your Children ...](https://allwomenstalk.com/7-things-to-teach-your-children/)

@@ -42,16 +42,16 @@ Is being too dependent on others something you struggle with? Has this article o
 
 ## Related Posts
 
-- [office rivalry](https://money.allwomenstalk.com/tips-on-how-to-deal-with-office-rivalry/)
-- [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
-- [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
-- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
-- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
-- [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
-- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
-- [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
-- [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
 - [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
+- [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
+- [office rivalry](https://money.allwomenstalk.com/tips-on-how-to-deal-with-office-rivalry/)
+- [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
+- [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
+- [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
+- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
+- [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
+- [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
 - [7 Ways to Stop Being Obsessive ...](https://lifestyle.allwomenstalk.com/ways-to-stop-being-obsessive/)
 - [7 Ways to Deal with Insecurity ...](https://allwomenstalk.com/7-ways-to-deal-with-insecurity/)
 

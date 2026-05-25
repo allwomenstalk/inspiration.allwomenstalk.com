@@ -42,16 +42,16 @@ You’re amazing, no matter what you look like or how you behave. Are there any 
 
 ## Related Posts
 
-- [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
 - [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
-- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
-- [similarities and differences between generations](https://inspiration.allwomenstalk.com/differences-between-generations-that-we-cant-seem-to-accept/)
-- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
 - [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
-- [what are the things that keep you from living up t...](https://inspiration.allwomenstalk.com/things-that-are-stopping-you-from-reaching-your-full-potential/)
+- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
 - [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
-- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
+- [what are the things that keep you from living up t...](https://inspiration.allwomenstalk.com/things-that-are-stopping-you-from-reaching-your-full-potential/)
 - [not a teen anymore](https://teen.allwomenstalk.com/things-not-to-stress-about-anymore/)
+- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
+- [similarities and differences between generations](https://inspiration.allwomenstalk.com/differences-between-generations-that-we-cant-seem-to-accept/)
+- [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
 - [8 Reasons Not to Be Influenced by Media Images ...](https://allwomenstalk.com/8-reasons-not-to-be-influenced-by-media-images/)
 - [7 Conversation Killers You Must Avoid ...](https://allwomenstalk.com/7-conversation-killers-you-must-avoid/)
 

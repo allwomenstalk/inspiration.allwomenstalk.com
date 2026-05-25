@@ -127,15 +127,15 @@ Look, you don't owe anyone an explanation (or an apology) for there only being 2
 ## Related Posts
 
 - [things to consider cheating](https://love.allwomenstalk.com/these-things-arent-actually-considered-cheating/)
-- [worst first date spots](https://love.allwomenstalk.com/the-absolute-worst-places-for-a-first-date/)
-- [7 Things You Should Never Ever do before Sex ...](https://love.allwomenstalk.com/things-you-should-never-ever-do-before-sex/)
-- [17 Things You Say That Your Man Hates Hearing ...](https://love.allwomenstalk.com/things-your-boyfriend-hates-to-hear/)
 - [911 selfie](https://travel.allwomenstalk.com/places-you-should-never-take-a-selfie/)
-- [donts after tattoo](https://beauty.allwomenstalk.com/things-not-to-do-when-you-have-a-new-tattoo/)
-- [things i have done](https://funny.allwomenstalk.com/mean-things-most-of-us-have-done/)
-- [if couples were 100 honest](https://love.allwomenstalk.com/times-you-shouldnt-be-100-honest-with-him/)
-- [insecure teenager](https://teen.allwomenstalk.com/teens-shouldnt-be-insecure-about-these-things/)
 - [taking naps with contacts](https://lifestyle.allwomenstalk.com/never-do-these-things-while-wearing-contacts/)
+- [donts after tattoo](https://beauty.allwomenstalk.com/things-not-to-do-when-you-have-a-new-tattoo/)
+- [7 Things You Should Never Ever do before Sex ...](https://love.allwomenstalk.com/things-you-should-never-ever-do-before-sex/)
+- [worst first date spots](https://love.allwomenstalk.com/the-absolute-worst-places-for-a-first-date/)
+- [things i have done](https://funny.allwomenstalk.com/mean-things-most-of-us-have-done/)
+- [17 Things You Say That Your Man Hates Hearing ...](https://love.allwomenstalk.com/things-your-boyfriend-hates-to-hear/)
+- [insecure teenager](https://teen.allwomenstalk.com/teens-shouldnt-be-insecure-about-these-things/)
+- [if couples were 100 honest](https://love.allwomenstalk.com/times-you-shouldnt-be-100-honest-with-him/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [10 Things You Should Never Admit to Anyone ...](https://allwomenstalk.com/10-things-you-should-never-admit-to-anyone/)
 

@@ -36,16 +36,16 @@ Don’t feel like you need to meet attendance obligations like you are at school
 
 ## Related Posts
 
-- [std singles](https://allwomenstalk.com/positive-singles-dating/)
-- [difference in lust and love](https://love.allwomenstalk.com/ways-to-tell-the-difference-between-lust-and-love/)
-- [Relationship Terminators](https://allwomenstalk.com/relationship-terminators/)
 - [modern dating terms](https://love.allwomenstalk.com/modern-dating-terms-you-need-to-know-in/)
-- [pros and cons of being single](https://lifestyle.allwomenstalk.com/the-awesome-untold-advantages-of-being-single/)
+- [Relationship Terminators](https://allwomenstalk.com/relationship-terminators/)
+- [how to turn love into friendship](https://love.allwomenstalk.com/the-pros-and-cons-of-turning-a-friendship-into-romantic-love/)
 - [dating culture in usa](https://love.allwomenstalk.com/differences-of-dating-in-the-uk-vs-the-us/)
+- [difference in lust and love](https://love.allwomenstalk.com/ways-to-tell-the-difference-between-lust-and-love/)
+- [am i in love or just infatuated](https://love.allwomenstalk.com/answer-these-questions-to-understand-if-you-are-in-love-or-just-infatuated/)
+- [pros and cons of being single](https://lifestyle.allwomenstalk.com/the-awesome-untold-advantages-of-being-single/)
 - [dating in your 30s as a woman](https://love.allwomenstalk.com/the-keys-to-dating-success-in-your-30s-a-guide-for-women/)
 - [10 things happy couples do](https://love.allwomenstalk.com/things-happy-couples-say-to-each-other-all-the-time/)
-- [am i in love or just infatuated](https://love.allwomenstalk.com/answer-these-questions-to-understand-if-you-are-in-love-or-just-infatuated/)
-- [how to turn love into friendship](https://love.allwomenstalk.com/the-pros-and-cons-of-turning-a-friendship-into-romantic-love/)
+- [std singles](https://allwomenstalk.com/positive-singles-dating/)
 - [7 Ways to Survive the Holiday Stress as a Couple ....](https://love.allwomenstalk.com/ways-to-survive-the-holiday-stress-as-a-couple/)
 - [8 Ways to Deal with Being Newly Single ...](https://love.allwomenstalk.com/ways-to-deal-with-being-newly-single/)
 

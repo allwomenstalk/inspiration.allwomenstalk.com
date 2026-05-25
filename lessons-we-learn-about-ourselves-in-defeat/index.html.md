@@ -40,16 +40,16 @@ The most important lesson is simply to continue. A single defeat doesn't dictate
 
 ## Related Posts
 
-- [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
-- [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
 - [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
+- [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
+- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
+- [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
 - [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
 - [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
 - [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
-- [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
-- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
 - [7 Lessons to Learn from Losing Your Job ...](https://allwomenstalk.com/7-lessons-to-learn-from-losing-your-job/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 

@@ -42,16 +42,16 @@ Have you ever encountered a negative person in your close circle of friends or f
 
 ## Related Posts
 
+- [how to deal with a short tempered person](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-a-hot-tempered-boss/)
+- [how to help a friend with bipolar](https://health.allwomenstalk.com/ways-to-be-a-good-friend-to-someone-with-bipolar-disorder/)
+- [how to deal with social media jealousy](https://lifestyle.allwomenstalk.com/ways-to-deal-with-social-media-jealousy/)
+- [how to write an angry letter examples](https://lifestyle.allwomenstalk.com/steps-to-writing-an-angry-letter-and-moving-on/)
 - [earn their respect](https://teen.allwomenstalk.com/ways-to-earn-the-respect-of-your-peers/)
+- [what makes a good conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist/)
 - [aw qward situation](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
 - [dealing with a controlling wife](https://love.allwomenstalk.com/very-useful-tips-on-how-to-deal-with-a-controlling-spouse/)
-- [put someone in their place](https://lifestyle.allwomenstalk.com/polite-ways-to-put-pretentious-people-in-their-place/)
 - [parents cut me off financially](https://teen.allwomenstalk.com/tips-for-how-to-survive-when-your-parents-cut-you-off/)
-- [how to deal with a short tempered person](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-a-hot-tempered-boss/)
-- [what makes a good conversationalist](https://inspiration.allwomenstalk.com/tips-for-handling-a-bad-conversationalist/)
-- [how to help a friend with bipolar](https://health.allwomenstalk.com/ways-to-be-a-good-friend-to-someone-with-bipolar-disorder/)
-- [how to write an angry letter examples](https://lifestyle.allwomenstalk.com/steps-to-writing-an-angry-letter-and-moving-on/)
-- [how to deal with social media jealousy](https://lifestyle.allwomenstalk.com/ways-to-deal-with-social-media-jealousy/)
+- [put someone in their place](https://lifestyle.allwomenstalk.com/polite-ways-to-put-pretentious-people-in-their-place/)
 - [7 Ways to Cope when You Cant Get along with Someon...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)
 - [7 Ways to Deal with Snobby People ...](https://allwomenstalk.com/7-ways-to-deal-with-snobby-people/)
 

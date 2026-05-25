@@ -42,16 +42,16 @@ Most of these things should be done more than once a week, but you should feel g
 
 ## Related Posts
 
-- [how to spread positivity](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
-- [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
+- [riot rose name meaning](https://gardening.allwomenstalk.com/january-to-december-months-of-birth-flowers-whats-yours/)
 - [how to have a happy wife](https://love.allwomenstalk.com/habits-of-very-happy-wives/)
 - [a lady should be two things](https://inspiration.allwomenstalk.com/things-women-should-take-more-pride-in-to-be-happier/)
-- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
 - [aeroplane girl](https://travel.allwomenstalk.com/ways-to-be-a-lady-on-a-plane/)
-- [riot rose name meaning](https://gardening.allwomenstalk.com/january-to-december-months-of-birth-flowers-whats-yours/)
-- [single gifs](https://funny.allwomenstalk.com/gifs-that-only-single-ladies-will-understand/)
 - [feminine skills to learn](https://lifestyle.allwomenstalk.com/traditionally-female-skills-you-dont-actually-need-to-have/)
 - [deruking classy lady](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
+- [single gifs](https://funny.allwomenstalk.com/gifs-that-only-single-ladies-will-understand/)
+- [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
+- [how to spread positivity](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
+- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
 - [10 Routines Every Woman and Even Every Man Should ...](https://allwomenstalk.com/10-routines-every-woman-and-even-every-man-should-have/)
 - [7 Things Every Woman Should Put on Her Bucket List...](https://inspiration.allwomenstalk.com/things-every-woman-should-put-on-her-bucket-list-for/)
 

@@ -42,16 +42,16 @@ I hope that whatever you are facing does not get the best of you. I hope that yo
 
 ## Related Posts
 
-- [7 Simple Ways to Boost Your Independence ...](https://inspiration.allwomenstalk.com/simple-ways-to-boost-your-independence/)
-- [7 Ways Artists Can Find Inspiration when Life is M...](https://inspiration.allwomenstalk.com/ways-artists-can-find-inspiration-when-life-is-mundane/)
-- [thinking positive benefits](https://inspiration.allwomenstalk.com/benefits-of-positive-thinking/)
-- [7 Important Habits That Will Make Your Life Simple...](https://inspiration.allwomenstalk.com/important-habits-that-will-make-your-life-simpler/)
+- [7 Little Things to Remember to Raise Your Confiden...](https://inspiration.allwomenstalk.com/little-things-to-remember-to-raise-your-confidence/)
 - [9 Interesting Tricks to Make Your New Habits Stick...](https://inspiration.allwomenstalk.com/interesting-tricks-to-make-your-new-habits-stick/)
+- [7 Important Habits That Will Make Your Life Simple...](https://inspiration.allwomenstalk.com/important-habits-that-will-make-your-life-simpler/)
+- [7 Ways Artists Can Find Inspiration when Life is M...](https://inspiration.allwomenstalk.com/ways-artists-can-find-inspiration-when-life-is-mundane/)
 - [7 Stupendous Ways to Live a Better Life ...](https://inspiration.allwomenstalk.com/stupendous-ways-to-live-a-better-life/)
 - [change for a better life](https://inspiration.allwomenstalk.com/ways-to-change-to-your-life-for-the-better/)
 - [7 Ways to Feel Younger Every Single Day ...](https://health.allwomenstalk.com/ways-to-feel-younger-every-single-day/)
-- [7 Little Things to Remember to Raise Your Confiden...](https://inspiration.allwomenstalk.com/little-things-to-remember-to-raise-your-confidence/)
+- [7 Simple Ways to Boost Your Independence ...](https://inspiration.allwomenstalk.com/simple-ways-to-boost-your-independence/)
 - [7 Running Rules I Live by and so Should You ...](https://running.allwomenstalk.com/running-rules-i-live-by-and-so-should-you/)
+- [thinking positive benefits](https://inspiration.allwomenstalk.com/benefits-of-positive-thinking/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 - [7 Ways to Take Control of Your Life ...](https://lifestyle.allwomenstalk.com/ways-to-take-control-of-your-life-2/)
 

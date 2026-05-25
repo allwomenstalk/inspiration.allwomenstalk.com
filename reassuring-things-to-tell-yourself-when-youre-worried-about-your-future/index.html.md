@@ -42,16 +42,16 @@ Instead of sitting around worrying about your future, enjoy your day. There's no
 
 ## Related Posts
 
-- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
-- [as the year draws to a close](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
-- [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
-- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
-- [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
-- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
-- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
 - [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
+- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
+- [as the year draws to a close](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
+- [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
+- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
+- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 

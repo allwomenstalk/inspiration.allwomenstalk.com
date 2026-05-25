@@ -42,16 +42,16 @@ You can't always control your emotions, so don't feel silly if you cry over one 
 
 ## Related Posts
 
-- [7 Icky Things That Lurk in Locker Rooms ...](https://health.allwomenstalk.com/icky-things-that-lurk-in-locker-rooms/)
-- [7 Times Its Best to Avoid Social Media ...](https://lifestyle.allwomenstalk.com/times-its-best-to-avoid-social-media/)
-- [7 Activities to Avoid to Live a Healthier Life ...](https://health.allwomenstalk.com/activities-to-avoid-to-live-a-healthier-life/)
-- [12 Foods Never to Eat on a Date ...](https://food.allwomenstalk.com/foods-never-to-eat-on-a-date/)
-- [7 Cars Men Should Never Ever Drive ...](https://funny.allwomenstalk.com/cars-men-should-never-ever-drive/)
-- [7 Things You Shouldnt Say at an Office Party ...](https://money.allwomenstalk.com/things-you-shouldnt-say-at-an-office-party/)
-- [teen talking apps](https://teen.allwomenstalk.com/apps-teenagers-shouldnt-download/)
-- [7 Items You Should Not Include on Your Resume ...](https://money.allwomenstalk.com/items-you-should-not-include-on-your-resume/)
-- [9 Things to Avoid Doing when Youre Super Stressed ...](https://health.allwomenstalk.com/things-to-avoid-doing-when-youre-super-stressed/)
 - [7 Words to Avoid when Youre Flirting ...](https://love.allwomenstalk.com/words-to-avoid-when-youre-flirting/)
+- [7 Icky Things That Lurk in Locker Rooms ...](https://health.allwomenstalk.com/icky-things-that-lurk-in-locker-rooms/)
+- [teen talking apps](https://teen.allwomenstalk.com/apps-teenagers-shouldnt-download/)
+- [9 Things to Avoid Doing when Youre Super Stressed ...](https://health.allwomenstalk.com/things-to-avoid-doing-when-youre-super-stressed/)
+- [7 Cars Men Should Never Ever Drive ...](https://funny.allwomenstalk.com/cars-men-should-never-ever-drive/)
+- [7 Times Its Best to Avoid Social Media ...](https://lifestyle.allwomenstalk.com/times-its-best-to-avoid-social-media/)
+- [12 Foods Never to Eat on a Date ...](https://food.allwomenstalk.com/foods-never-to-eat-on-a-date/)
+- [7 Things You Shouldnt Say at an Office Party ...](https://money.allwomenstalk.com/things-you-shouldnt-say-at-an-office-party/)
+- [7 Activities to Avoid to Live a Healthier Life ...](https://health.allwomenstalk.com/activities-to-avoid-to-live-a-healthier-life/)
+- [7 Items You Should Not Include on Your Resume ...](https://money.allwomenstalk.com/items-you-should-not-include-on-your-resume/)
 - [7 Things to Never do in a Relationship ...](https://love.allwomenstalk.com/things-to-never-do-in-a-relationship/)
 - [8 Things You Should Never Tolerate in a Relationsh...](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship/)
 

@@ -42,16 +42,16 @@ These are some of my favorite quotes about writing and there are many others. Wh
 
 ## Related Posts
 
-- [noahs poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
-- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
-- [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
 - [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
-- [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
-- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
-- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
 - [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
-- [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
+- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
+- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [great gatsby quotes about gatsby](https://inspiration.allwomenstalk.com/touching-quotes-from-the-great-gatsby/)
+- [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
+- [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
+- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
+- [noahs poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
+- [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [8 Tips for a Freelance Writer ...](https://allwomenstalk.com/8-tips-for-a-freelance-writer/)
 

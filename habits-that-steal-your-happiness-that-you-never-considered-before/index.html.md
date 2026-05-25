@@ -46,16 +46,16 @@ Happiness is the key to living a successful life and you shouldn’t let anythin
 
 ## Related Posts
 
-- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
 - [successful athlete](https://inspiration.allwomenstalk.com/secrets-of-successful-athletes-we-can-all-learn-from/)
 - [what would i tell my 15 years old self](https://teen.allwomenstalk.com/things-i-wish-i-could-tell-my-15-year-old-self/)
-- [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
+- [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
 - [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
-- [how to get magical powers](https://lifestyle.allwomenstalk.com/times-when-you-think-you-might-just-have-magical-powers/)
 - [principles of kwanzaa](https://lifestyle.allwomenstalk.com/essential-principles-of-kwanzaa-that-you-should-know-about/)
-- [small charities that need help](https://lifestyle.allwomenstalk.com/lesser-known-charities-youll-want-to-be-a-part-of/)
-- [joan collins marriages](https://celebs.allwomenstalk.com/important-life-lessons-to-learn-from-joan-collins/)
+- [how to get magical powers](https://lifestyle.allwomenstalk.com/times-when-you-think-you-might-just-have-magical-powers/)
+- [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
 - [moms teachus](https://parenting.allwomenstalk.com/valuable-life-lessons-my-mother-taught-me/)
+- [joan collins marriages](https://celebs.allwomenstalk.com/important-life-lessons-to-learn-from-joan-collins/)
+- [small charities that need help](https://lifestyle.allwomenstalk.com/lesser-known-charities-youll-want-to-be-a-part-of/)
 - [7 Foods That Make You Happy ...](https://allwomenstalk.com/7-foods-that-make-you-happy/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 

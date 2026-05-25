@@ -48,16 +48,16 @@ It can be hard to love your body, but you should, because it is yours and it is 
 
 ## Related Posts
 
-- [7 Bold Ways to Face Your Fears This Year ...](https://inspiration.allwomenstalk.com/bold-ways-to-face-your-fears-this-year/)
-- [9 Essential Habits for Success That You Should Dev...](https://inspiration.allwomenstalk.com/essential-habits-for-success-that-you-should-develop-too/)
-- [7 Ways to Be an Interesting Person ...](https://inspiration.allwomenstalk.com/ways-to-be-an-interesting-person/)
-- [7 Simple Ways to Feel Happier in 2014 ...](https://health.allwomenstalk.com/simple-ways-to-feel-happier-in/)
-- [11 Changes to Make Today for Better Health Tomorro...](https://health.allwomenstalk.com/changes-to-make-today-for-better-health-tomorrow/)
-- [9 Detox Lifestyle Principles to Add to Your Life T...](https://health.allwomenstalk.com/detox-lifestyle-principles-to-add-to-your-life-today/)
 - [7 Simple Ways to Find Joy in Everyday Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-find-joy-in-everyday-life/)
+- [9 Essential Habits for Success That You Should Dev...](https://inspiration.allwomenstalk.com/essential-habits-for-success-that-you-should-develop-too/)
+- [7 Simple Ways to Feel Happier in 2014 ...](https://health.allwomenstalk.com/simple-ways-to-feel-happier-in/)
+- [9 Detox Lifestyle Principles to Add to Your Life T...](https://health.allwomenstalk.com/detox-lifestyle-principles-to-add-to-your-life-today/)
+- [11 Changes to Make Today for Better Health Tomorro...](https://health.allwomenstalk.com/changes-to-make-today-for-better-health-tomorrow/)
+- [7 Ways to Be an Interesting Person ...](https://inspiration.allwomenstalk.com/ways-to-be-an-interesting-person/)
+- [7 Ways to Exercise Your Brain and Keep It Young .....](https://health.allwomenstalk.com/ways-to-exercise-your-brain-and-keep-it-young/)
 - [how to strengthen your spirit](https://inspiration.allwomenstalk.com/ways-to-strengthen-your-spirit/)
 - [7 Morning Rituals to Improve Your Mind ...](https://health.allwomenstalk.com/morning-rituals-to-improve-your-mind/)
-- [7 Ways to Exercise Your Brain and Keep It Young .....](https://health.allwomenstalk.com/ways-to-exercise-your-brain-and-keep-it-young/)
+- [7 Bold Ways to Face Your Fears This Year ...](https://inspiration.allwomenstalk.com/bold-ways-to-face-your-fears-this-year/)
 - [8 Ways to Get a Hot Hollywood Body ...](https://weightloss.allwomenstalk.com/ways-to-get-a-hot-hollywood-body/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 

@@ -42,16 +42,16 @@ Even when you think you spent your day doing nothing worthwhile, you actually ac
 
 ## Related Posts
 
-- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
-- [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
-- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
-- [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
-- [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
-- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
 - [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
-- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
+- [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
+- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
+- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
+- [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
 - [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
+- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
+- [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
 - [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
+- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
 - [10 Things You Should do Every Day ...](https://allwomenstalk.com/10-things-you-should-do-every-day/)
 - [7 Ways to Raise Your Self-Esteem ...](https://allwomenstalk.com/7-ways-to-raise-your-self-esteem/)
 

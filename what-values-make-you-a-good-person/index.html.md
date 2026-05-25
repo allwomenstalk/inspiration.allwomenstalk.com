@@ -42,15 +42,15 @@ So now it's your turn to let me know what values you judge yourself against and 
 
 ## Related Posts
 
-- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
-- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
-- [major emotions](https://lifestyle.allwomenstalk.com/what-are-the-major-emotions/)
 - [what type of reader am i](https://books.allwomenstalk.com/what-type-of-reader-are-you/)
-- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
-- [lady gaga heart engagement ring](https://jewelry.allwomenstalk.com/which-of-these-celebrity-engagement-rings-you-would-say-yes-to/)
+- [hitguys](https://love.allwomenstalk.com/hot-guys-which-one-is-your-type/)
+- [major emotions](https://lifestyle.allwomenstalk.com/what-are-the-major-emotions/)
 - [newlywed show questions](https://love.allwomenstalk.com/can-you-and-your-bf-answer-these-newlywed-show-questions/)
-- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
 - [capsule wardrobe books](https://fashion.allwomenstalk.com/what-on-earth-is-a-capsule-wardrobe-and-why-do-you-need-to-try-it-asap/)
+- [what to do when the girl you like is taken](https://love.allwomenstalk.com/what-do-you-do-when-your-crush-is-taken/)
+- [lady gaga heart engagement ring](https://jewelry.allwomenstalk.com/which-of-these-celebrity-engagement-rings-you-would-say-yes-to/)
+- [cutting hair shorter](https://hair.allwomenstalk.com/is-it-time-to-cut-your-hair-short/)
+- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
 - [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [How Good is Good](https://allwomenstalk.com/how-good-is-good/)

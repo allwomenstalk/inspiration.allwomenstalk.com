@@ -56,16 +56,16 @@ These are just a few of my favorite quotes about the future. Which are yours and
 
 ## Related Posts
 
+- [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
+- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
+- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
+- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
+- [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
 - [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
 - [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
-- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
 - [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
-- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
-- [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
-- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
-- [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
 - [ayn rand atlas shrugged quotes](https://inspiration.allwomenstalk.com/ayn-rand-quotes-to-inspire-your-inner-objectivist/)
-- [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
 - [8 Tips for Forgetting the past ...](https://love.allwomenstalk.com/tips-for-forgetting-the-past/)
 - [9 Tips to Stop Chronic Worrying ...](https://allwomenstalk.com/9-tips-to-stop-chronic-worrying/)
 

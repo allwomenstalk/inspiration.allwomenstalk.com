@@ -135,16 +135,16 @@ What's your favorite Snape moment? Give it up in the comments!
 
 ## Related Posts
 
-- [intelligence mantras](https://inspiration.allwomenstalk.com/everyday-mantras-of-intelligent-people/)
-- [most awe inspiring quotes](https://lifestyle.allwomenstalk.com/awe-inspiring-quotes-from-the-dnc-rnc-conventions-that-every-woman-can-relate-to/)
-- [quotes from pixar](https://movies.allwomenstalk.com/the-most-inspirational-and-life-affirming-quotes-from-pixar-movies/)
 - [feels like a weight has been lifted quotes](https://fitness.allwomenstalk.com/quotes-for-all-the-weight-lifting-lovers-out-there/)
 - [ronald reagan quotes marines](https://lifestyle.allwomenstalk.com/phenomenal-memorial-day-quotes-that-will-remind-you-what-the-holiday-is-really-about/)
-- [beautiful black woman quotes](https://inspiration.allwomenstalk.com/quotes-about-black-women-that-will-make-you-love-your-melanin/)
-- [i dont love anymore quotes](https://love.allwomenstalk.com/i-dont-love-him-anymore-quotes-to-help-you-let-go-and-move-on/)
-- [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
-- [girl move on quotes](https://inspiration.allwomenstalk.com/motivational-life-changing-quotes-for-girls-who-are-stuck-in-a-rut-but-want-to-change/)
+- [most awe inspiring quotes](https://lifestyle.allwomenstalk.com/awe-inspiring-quotes-from-the-dnc-rnc-conventions-that-every-woman-can-relate-to/)
+- [intelligence mantras](https://inspiration.allwomenstalk.com/everyday-mantras-of-intelligent-people/)
 - [make it through quotes](https://inspiration.allwomenstalk.com/inspiration-quotes-to-get-you-through-it-all/)
+- [beautiful black woman quotes](https://inspiration.allwomenstalk.com/quotes-about-black-women-that-will-make-you-love-your-melanin/)
+- [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
+- [quotes from pixar](https://movies.allwomenstalk.com/the-most-inspirational-and-life-affirming-quotes-from-pixar-movies/)
+- [girl move on quotes](https://inspiration.allwomenstalk.com/motivational-life-changing-quotes-for-girls-who-are-stuck-in-a-rut-but-want-to-change/)
+- [i dont love anymore quotes](https://love.allwomenstalk.com/i-dont-love-him-anymore-quotes-to-help-you-let-go-and-move-on/)
 - [5 Reasons to Love Edward ...](https://twilight.allwomenstalk.com/5-reasons-to-love-edward/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 

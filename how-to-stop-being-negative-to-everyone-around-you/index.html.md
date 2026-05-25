@@ -114,16 +114,16 @@ Lastly, admit you are a negative person and own it. It'll feel better in the end
 
 ## Related Posts
 
-- [how to use 48 laws of power](https://lifestyle.allwomenstalk.com/how-to-win-an-argument-with-someone-who-is-never-wrong/)
-- [how to leave your friend group](https://inspiration.allwomenstalk.com/ways-to-handle-a-friendship-thats-falling-apart/)
-- [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
-- [losing it rn bestie](https://lifestyle.allwomenstalk.com/ways-to-deal-when-you-and-your-bestie-arent-friends-anymore/)
-- [what to say to bride to be](https://wedding.allwomenstalk.com/how-to-say-no-to-the-bride-without-pissing-her-off/)
-- [musculing](https://love.allwomenstalk.com/ways-to-cope-when-your-bfs-bromance-is-musculing-in-on-your-relationship/)
-- [why do men never approach me](https://lifestyle.allwomenstalk.com/ways-to-discourage-people-from-approaching-you-in-public/)
-- [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
 - [the secret of friendship](https://lifestyle.allwomenstalk.com/the-secret-to-making-friends-without-really-trying/)
+- [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
+- [what to say to bride to be](https://wedding.allwomenstalk.com/how-to-say-no-to-the-bride-without-pissing-her-off/)
+- [losing it rn bestie](https://lifestyle.allwomenstalk.com/ways-to-deal-when-you-and-your-bestie-arent-friends-anymore/)
+- [why do men never approach me](https://lifestyle.allwomenstalk.com/ways-to-discourage-people-from-approaching-you-in-public/)
+- [how to use 48 laws of power](https://lifestyle.allwomenstalk.com/how-to-win-an-argument-with-someone-who-is-never-wrong/)
 - [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
+- [musculing](https://love.allwomenstalk.com/ways-to-cope-when-your-bfs-bromance-is-musculing-in-on-your-relationship/)
+- [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
+- [how to leave your friend group](https://inspiration.allwomenstalk.com/ways-to-handle-a-friendship-thats-falling-apart/)
 - [10 Ways to Deal with Negative People ...](https://allwomenstalk.com/10-ways-to-deal-with-negative-people/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 

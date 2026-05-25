@@ -70,16 +70,16 @@ Written in collaboration with editor Vladlena Lee.
 
 ## Related Posts
 
-- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
-- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
-- [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
-- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
 - [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
-- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
-- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
-- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
 - [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
+- [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
 - [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
+- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
+- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
+- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
+- [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
+- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
+- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
 - [8 Types of People You Should Avoid ...](https://allwomenstalk.com/8-types-of-people-you-should-avoid/)
 - [11 Popular Myths about Marriage You Should Ignore ...](https://love.allwomenstalk.com/popular-myths-about-marriage-you-should-ignore/)
 

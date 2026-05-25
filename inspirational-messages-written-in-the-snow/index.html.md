@@ -56,16 +56,16 @@ Have you ever seen a sweet letter in the snow?
 
 ## Related Posts
 
-- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
-- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
-- [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
-- [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
-- [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
 - [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
-- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
-- [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
+- [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
 - [powerful toni morrison quotes](https://inspiration.allwomenstalk.com/powerful-toni-morrison-quotes-to-push-you-through-life/)
+- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
+- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
+- [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
+- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
 - [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
+- [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
+- [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
 - [7 Fun Outdoor Activities to Try This Winter ...](https://health.allwomenstalk.com/fun-outdoor-activities-to-try-this-winter/)
 - [8 Fun Things to do in the Snow with Kids ...](https://parenting.allwomenstalk.com/fun-things-to-do-in-the-snow-with-kids/)
 

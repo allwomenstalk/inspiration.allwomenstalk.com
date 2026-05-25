@@ -72,16 +72,16 @@ Sometimes one of the **reasons we don’t change** is because we try and take bi
 
 ## Related Posts
 
-- [how to pick yourself up when feeling low](https://inspiration.allwomenstalk.com/brilliant-ways-to-pick-yourself-up-when-youre-feeling-down/)
-- [brilliant ways](https://inspiration.allwomenstalk.com/brilliant-ways-to-be-happier/)
-- [live luxuriously](https://lifestyle.allwomenstalk.com/how-to-live-a-luxurious-life-every-day/)
-- [inspiring happiness](https://inspiration.allwomenstalk.com/inspiring-steps-to-happiness/)
-- [tigers den meaning](https://inspiration.allwomenstalk.com/chinese-proverbs-that-will-help-you-live-a-better-life/)
-- [sunday habits](https://lifestyle.allwomenstalk.com/sunday-habits-to-prepare-for-the-week-ahead/)
-- [ikigai 10 regeln](https://health.allwomenstalk.com/the-rules-of-ikigai-to-lead-a-long-and-happy-life/)
-- [prepared for everything](https://inspiration.allwomenstalk.com/how-to-be-prepared-for-anything-life-throws-at-you/)
 - [tips for better study habits](https://teen.allwomenstalk.com/genius-tips-on-how-to-create-good-study-habits/)
+- [tigers den meaning](https://inspiration.allwomenstalk.com/chinese-proverbs-that-will-help-you-live-a-better-life/)
+- [inspiring happiness](https://inspiration.allwomenstalk.com/inspiring-steps-to-happiness/)
+- [brilliant ways](https://inspiration.allwomenstalk.com/brilliant-ways-to-be-happier/)
+- [sunday habits](https://lifestyle.allwomenstalk.com/sunday-habits-to-prepare-for-the-week-ahead/)
 - [how do i feel alive](https://inspiration.allwomenstalk.com/inspiring-ways-to-feel-alive-and-not-just-exist/)
+- [how to pick yourself up when feeling low](https://inspiration.allwomenstalk.com/brilliant-ways-to-pick-yourself-up-when-youre-feeling-down/)
+- [ikigai 10 regeln](https://health.allwomenstalk.com/the-rules-of-ikigai-to-lead-a-long-and-happy-life/)
+- [live luxuriously](https://lifestyle.allwomenstalk.com/how-to-live-a-luxurious-life-every-day/)
+- [prepared for everything](https://inspiration.allwomenstalk.com/how-to-be-prepared-for-anything-life-throws-at-you/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 - [5 Things to Make You Happy ...](https://allwomenstalk.com/5-things-to-make-you-happy/)
 

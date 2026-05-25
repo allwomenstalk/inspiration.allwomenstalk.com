@@ -42,16 +42,16 @@ Asking yourself thought-provoking questions gives you the opportunity to get to 
 
 ## Related Posts
 
-- [the wealthy barber review](https://money.allwomenstalk.com/lessons-to-memorize-from-the-wealthy-barber-returns/)
-- [totally for teens](https://teen.allwomenstalk.com/things-teens-should-never-be-ashamed-of/)
-- [things i need to let go of](https://inspiration.allwomenstalk.com/useless-things-you-need-to-let-go-of-in-your-life-if-you-want-to-be-happy/)
-- [head tilt body language](https://lifestyle.allwomenstalk.com/messages-people-receive-from-your-body-language/)
-- [things that frustrate you at work](https://lifestyle.allwomenstalk.com/frustrating-things-that-come-with-a-leadership-position/)
 - [how to ignore negative criticism](https://inspiration.allwomenstalk.com/reasons-to-ignore-peoples-negative-criticism/)
-- [describe hermione](https://books.allwomenstalk.com/of-hermione-grangers-traits-that-you-should-steal/)
-- [benefit of constructive criticism](https://inspiration.allwomenstalk.com/very-good-reasons-you-should-learn-to-take-constructive-criticism/)
-- [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
 - [how to think effectively](https://inspiration.allwomenstalk.com/surprising-things-you-never-knew-on-how-to-think-effectively/)
+- [things i need to let go of](https://inspiration.allwomenstalk.com/useless-things-you-need-to-let-go-of-in-your-life-if-you-want-to-be-happy/)
+- [things that frustrate you at work](https://lifestyle.allwomenstalk.com/frustrating-things-that-come-with-a-leadership-position/)
+- [the wealthy barber review](https://money.allwomenstalk.com/lessons-to-memorize-from-the-wealthy-barber-returns/)
+- [benefit of constructive criticism](https://inspiration.allwomenstalk.com/very-good-reasons-you-should-learn-to-take-constructive-criticism/)
+- [describe hermione](https://books.allwomenstalk.com/of-hermione-grangers-traits-that-you-should-steal/)
+- [head tilt body language](https://lifestyle.allwomenstalk.com/messages-people-receive-from-your-body-language/)
+- [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
+- [totally for teens](https://teen.allwomenstalk.com/things-teens-should-never-be-ashamed-of/)
 - [5 Questions to Ponder...](https://allwomenstalk.com/5-questions-to-ponder/)
 - [9 Ways to Stay True to Yourself ...](https://allwomenstalk.com/9-ways-to-stay-true-to-yourself/)
 

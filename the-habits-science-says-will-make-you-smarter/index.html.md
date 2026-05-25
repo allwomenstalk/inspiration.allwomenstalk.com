@@ -48,16 +48,16 @@ Sources:
 
 ## Related Posts
 
-- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
-- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
-- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
-- [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
 - [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
-- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
-- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
-- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
 - [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
+- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
+- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
+- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
 - [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
+- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
+- [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
+- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
+- [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
 - [7 Foods to Make You Smarter ...](https://allwomenstalk.com/7-foods-to-make-you-smarter/)
 - [9 Habits That Can Change Your Life ...](https://allwomenstalk.com/habits-that-can-change-your-life/)
 

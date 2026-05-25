@@ -42,15 +42,15 @@ Hopefully these tips on what to say during an awkward silence (as well as how to
 
 ## Related Posts
 
+- [7 Ridiculous Words Added to the 2014 Websters Dict...](https://funny.allwomenstalk.com/ridiculous-words-added-to-the-websters-dictionary/)
+- [9 Funny Chat up Lines for Women ...](https://love.allwomenstalk.com/funny-chat-up-lines-for-women/)
+- [7 Things Vegetarians Hear All the Time ...](https://funny.allwomenstalk.com/things-vegetarians-hear-all-the-time/)
+- [9 Funny One-liners to Make You Laugh ...](https://funny.allwomenstalk.com/funny-one-liners-to-make-you-laugh/)
 - [People Who Lack Confidence Use These Words - do Yo...](https://lifestyle.allwomenstalk.com/words-people-who-are-not-confident-always-use/)
 - [9 Hilarious Memes Taking over the Net ...](https://7fun.net/hilarious-memes-taking-over-the-net/)
-- [9 Funny Chat up Lines for Women ...](https://love.allwomenstalk.com/funny-chat-up-lines-for-women/)
+- [paris le shadow primped previous](https://funny.allwomenstalk.com/whats-the-worst-thing-youve-heard-mommy-say/)
 - [7 of the Funniest and Strangest Things Teachers Ar...](https://funny.allwomenstalk.com/of-the-funniest-and-strangest-things-teachers-are-asked-by-highschool-kids/)
 - [haert tattoo](https://bodyart.allwomenstalk.com/frustrating-comments-people-with-tattoos-have-heard-at-some-point/)
-- [paris le shadow primped previous](https://funny.allwomenstalk.com/whats-the-worst-thing-youve-heard-mommy-say/)
-- [7 Ridiculous Words Added to the 2014 Websters Dict...](https://funny.allwomenstalk.com/ridiculous-words-added-to-the-websters-dictionary/)
-- [9 Funny One-liners to Make You Laugh ...](https://funny.allwomenstalk.com/funny-one-liners-to-make-you-laugh/)
-- [7 Things Vegetarians Hear All the Time ...](https://funny.allwomenstalk.com/things-vegetarians-hear-all-the-time/)
 - [13 Silly Pieces of Useless Trivia That You Can Bra...](https://funny.allwomenstalk.com/silly-pieces-of-useless-trivia-that-you-can-brag-about-knowing/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)
 - [7 Ways to Deal with an Awkward First Date ...](https://allwomenstalk.com/7-ways-to-deal-with-an-awkward-first-date/)

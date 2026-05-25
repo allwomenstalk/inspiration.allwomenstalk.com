@@ -42,16 +42,16 @@ I'm not normally one for sugary sweet posts, but I'm sick of barging past each o
 
 ## Related Posts
 
-- [when he doesnt call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
-- [indian single girl near me](https://love.allwomenstalk.com/perfect-responses-for-indian-girls-to-why-are-you-still-single/)
-- [funny excuses for not going to work](https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/)
-- [i dont want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
-- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
 - [the risk of love](https://love.allwomenstalk.com/reasons-relationships-are-worth-the-risk-of-getting-hurt/)
-- [why you shouldnt compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-not-to-compare-yourself-with-others/)
+- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
+- [funny excuses for not going to work](https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/)
 - [will i ever find my soulmate](https://love.allwomenstalk.com/reasons-its-smart-not-to-hold-out-for-a-soulmate/)
-- [i lied about my age by 5 years](https://lifestyle.allwomenstalk.com/why-do-people-lie-about-their-age-here-are-reasons/)
 - [its ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
+- [indian single girl near me](https://love.allwomenstalk.com/perfect-responses-for-indian-girls-to-why-are-you-still-single/)
+- [i lied about my age by 5 years](https://lifestyle.allwomenstalk.com/why-do-people-lie-about-their-age-here-are-reasons/)
+- [why you shouldnt compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-not-to-compare-yourself-with-others/)
+- [i dont want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
+- [when he doesnt call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Make a Difference in Someones Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)
 

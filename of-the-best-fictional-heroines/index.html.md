@@ -68,16 +68,16 @@ There’s something wonderful about finding a fictional character you can truly 
 
 ## Related Posts
 
-- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
+- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
 - [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
 - [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
 - [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
-- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
-- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
+- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
+- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
+- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

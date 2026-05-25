@@ -42,15 +42,15 @@ No one wants to think of themselves as broken, but I say it's something you shou
 
 ## Related Posts
 
-- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
-- [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
-- [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
+- [dont fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
 - [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
+- [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
+- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
+- [love is no excuse](https://love.allwomenstalk.com/things-love-is-not-an-excuse-for/)
+- [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
 - [why do i keep doing bad things](https://lifestyle.allwomenstalk.com/psychological-reasons-why-good-people-sometimes-do-bad-things/)
 - [i aint even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
-- [dont fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
 - [the longer you postpone working for your dreams](https://inspiration.allwomenstalk.com/reasons-you-might-be-delaying-pursuing-your-dreams/)
-- [love is no excuse](https://love.allwomenstalk.com/things-love-is-not-an-excuse-for/)
 - [15 Benefits of a Relationship Break ...](https://love.allwomenstalk.com/benefits-of-a-relationship-break/)
 - [9 Things Its Okay to do after a Breakup ...](https://allwomenstalk.com/9-things-its-okay-to-do-after-a-breakup/)
 - [7 Positive Things to Take from a Break-up ...](https://love.allwomenstalk.com/positive-things-to-take-from-a-break-up/)

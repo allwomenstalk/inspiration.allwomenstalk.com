@@ -68,16 +68,16 @@ If it were not for this amazing group of women throughout our history, we would 
 
 ## Related Posts
 
-- [the wild swans movie 1994](https://movies.allwomenstalk.com/fairytale-princesses-who-dont-have-disney-movies/)
-- [7 traits of a high-value woman](https://lifestyle.allwomenstalk.com/common-traits-among-women-from-all-cultures-of-the-world/)
-- [good gospel music](https://music.allwomenstalk.com/of-the-greatest-female-vocalists-of-all-time/)
 - [quotes for womens history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
+- [when is the vmas 2023](https://music.allwomenstalk.com/fabulous-female-singers-who-have-won-a-grammy/)
+- [good gospel music](https://music.allwomenstalk.com/of-the-greatest-female-vocalists-of-all-time/)
+- [7 traits of a high-value woman](https://lifestyle.allwomenstalk.com/common-traits-among-women-from-all-cultures-of-the-world/)
 - [most fashionable women](https://celebs.allwomenstalk.com/most-stylish-women-to-emulate/)
 - [best female autobiographies](https://books.allwomenstalk.com/awesome-irreverent-memoirs-by-hilarious-women/)
+- [the wild swans movie 1994](https://movies.allwomenstalk.com/fairytale-princesses-who-dont-have-disney-movies/)
 - [greek.goddess](https://lifestyle.allwomenstalk.com/greek-goddesses-you-will-want-to-get-to-know/)
-- [brittany should have won project runway](https://celebs.allwomenstalk.com/smart-supermodels-who-have-proven-that-intelligence-is-sexy/)
 - [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
-- [when is the vmas 2023](https://music.allwomenstalk.com/fabulous-female-singers-who-have-won-a-grammy/)
+- [brittany should have won project runway](https://celebs.allwomenstalk.com/smart-supermodels-who-have-proven-that-intelligence-is-sexy/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 

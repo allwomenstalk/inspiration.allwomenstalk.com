@@ -60,16 +60,16 @@ Organization is the key to a well-ordered life and a well-ordered mind. Using th
 
 ## Related Posts
 
+- [start a clean slate](https://apps.allwomenstalk.com/ways-to-get-a-clean-digital-slate/)
 - [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
-- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
+- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
 - [loreal paris riche le stylo eye avant azure](https://inspiration.allwomenstalk.com/finding-where-my-passion-lies/)
+- [bullet journal ideas netflix](https://books.allwomenstalk.com/bullet-journal-spreads-to-inspire-your-own-journal/)
+- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [new years bullet journal ideas](https://inspiration.allwomenstalk.com/bullet-journal-inspo-for-all-your-new-years-resolutions/)
 - [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
 - [site:allwomenstalk.com](https://inspiration.allwomenstalk.com/plan-to-make-the-best-of/)
-- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
-- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
-- [bullet journal ideas netflix](https://books.allwomenstalk.com/bullet-journal-spreads-to-inspire-your-own-journal/)
-- [new years bullet journal ideas](https://inspiration.allwomenstalk.com/bullet-journal-inspo-for-all-your-new-years-resolutions/)
-- [start a clean slate](https://apps.allwomenstalk.com/ways-to-get-a-clean-digital-slate/)
+- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
 - [8 Super Effective Organizing Tips You Will Love .....](https://lifestyle.allwomenstalk.com/super-effective-organizing-tips-you-will-love/)
 - [8 Ways Ive Discovered to Organize Life ...](https://allwomenstalk.com/8-ways-ive-discovered-to-organize-life/)
 

@@ -44,16 +44,16 @@ Here is a list of **intentions to set yourself.**
 
 ## Related Posts
 
-- [How to Build Confidence from a Base of Zero 0 ...](https://inspiration.allwomenstalk.com/how-to-build-confidence-from-a-base-of-zero-0/)
-- [habit of thinking](https://inspiration.allwomenstalk.com/how-to-build-the-thinking-habit/)
-- [5 Simple Ways to Be Happier in Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-be-happier-2/)
-- [5 Effective Habits of Positive People We All Shoul...](https://inspiration.allwomenstalk.com/effective-habits-of-positive-people/)
 - [Exceptional Tips on How to Forgive Yourself ...](https://inspiration.allwomenstalk.com/exceptional-tips-on-how-to-forgive-yourself/)
-- [jocelyn peck wipeout](https://inspiration.allwomenstalk.com/get-up-and-keep-going/)
+- [habit of thinking](https://inspiration.allwomenstalk.com/how-to-build-the-thinking-habit/)
 - [Brilliant Ideas on Causes of Low Self-Esteem and H...](https://inspiration.allwomenstalk.com/causes-of-low-self-esteem/)
-- [Tried and True Ways to Stop Being so Self-Judgment...](https://inspiration.allwomenstalk.com/tried-and-true-ways-to-stop-being-so-self-judgmental/)
-- [Awesome Ways to Keep Your Creative Juices Flowing ...](https://inspiration.allwomenstalk.com/ways-to-keep-your-creative-juices-flowing/)
+- [5 Effective Habits of Positive People We All Shoul...](https://inspiration.allwomenstalk.com/effective-habits-of-positive-people/)
 - [Things That Will Make You a Better Person ...](https://inspiration.allwomenstalk.com/things-that-will-make-you-a-better-person-2/)
+- [jocelyn peck wipeout](https://inspiration.allwomenstalk.com/get-up-and-keep-going/)
+- [Awesome Ways to Keep Your Creative Juices Flowing ...](https://inspiration.allwomenstalk.com/ways-to-keep-your-creative-juices-flowing/)
+- [5 Simple Ways to Be Happier in Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-be-happier-2/)
+- [Tried and True Ways to Stop Being so Self-Judgment...](https://inspiration.allwomenstalk.com/tried-and-true-ways-to-stop-being-so-self-judgmental/)
+- [How to Build Confidence from a Base of Zero 0 ...](https://inspiration.allwomenstalk.com/how-to-build-confidence-from-a-base-of-zero-0/)
 - [7 Reasons to Be the Best You Can Be ...](https://inspiration.allwomenstalk.com/reasons-to-be-the-best-you-can-be/)
 - [11 Essential Tips for Redefining Yourself ...](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
 

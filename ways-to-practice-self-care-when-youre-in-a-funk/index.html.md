@@ -114,16 +114,16 @@ If all else fails and you cannot do any of the self-care techniques listed above
 
 ## Related Posts
 
-- [5 Ways to Ease the Stress of the Holiday Season .....](https://health.allwomenstalk.com/ways-to-ease-the-pressure-of-the-holidays/)
 - [Exceptional Ways to Take Your Mind off the Stress ...](https://inspiration.allwomenstalk.com/ways-to-take-your-mind-off-the-stress-of-christmas/)
-- [30 Simple Ways to Practice Self-Care Right Now  .....](https://health.allwomenstalk.com/simple-ways-to-practice-self-care/)
-- [Perfect Ways to Cope when You Feel Overwhelmed ...](https://inspiration.allwomenstalk.com/ways-to-cope-when-youre-overwhelmed/)
-- [It Only Takes a Minute to Turn a Negative Mood aro...](https://inspiration.allwomenstalk.com/easy-ways-to-adopt-a-positive-attitude/)
-- [Exceptional Ways to Avoid Stress to Stick to Your ...](https://inspiration.allwomenstalk.com/ways-to-avoid-stress-so-you-can-stick-to-your-goals/)
-- [9 Survival Tips for Staying Sane over the Holiday ...](https://inspiration.allwomenstalk.com/tips-for-staying-sane-during-the-holidays/)
-- [Exceptional Ways to Perk up Your Meditation Routin...](https://health.allwomenstalk.com/ways-to-perk-up-your-meditation-routine/)
 - [Perfect Ways to Manage Holiday Stress ...](https://lifestyle.allwomenstalk.com/how-to-manage-holiday-stress/)
 - [Little Things That Can Make You Feel Better even o...](https://inspiration.allwomenstalk.com/little-things-that-make-a-bad-day-better/)
+- [Exceptional Ways to Avoid Stress to Stick to Your ...](https://inspiration.allwomenstalk.com/ways-to-avoid-stress-so-you-can-stick-to-your-goals/)
+- [It Only Takes a Minute to Turn a Negative Mood aro...](https://inspiration.allwomenstalk.com/easy-ways-to-adopt-a-positive-attitude/)
+- [Exceptional Ways to Perk up Your Meditation Routin...](https://health.allwomenstalk.com/ways-to-perk-up-your-meditation-routine/)
+- [5 Ways to Ease the Stress of the Holiday Season .....](https://health.allwomenstalk.com/ways-to-ease-the-pressure-of-the-holidays/)
+- [Perfect Ways to Cope when You Feel Overwhelmed ...](https://inspiration.allwomenstalk.com/ways-to-cope-when-youre-overwhelmed/)
+- [9 Survival Tips for Staying Sane over the Holiday ...](https://inspiration.allwomenstalk.com/tips-for-staying-sane-during-the-holidays/)
+- [30 Simple Ways to Practice Self-Care Right Now  .....](https://health.allwomenstalk.com/simple-ways-to-practice-self-care/)
 - [10 Ways to Cheer Yourself up ...](https://allwomenstalk.com/10-ways-to-cheer-yourself-up/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 

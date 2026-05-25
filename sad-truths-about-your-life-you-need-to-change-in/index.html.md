@@ -86,16 +86,16 @@ Which of these things are you hoping to change in 2022?
 
 ## Related Posts
 
-- [19 Experiences Youll Recognize if Your Drunk Self ...](https://funny.allwomenstalk.com/experiences-youll-recognize-if-your-drunk-self-is-a-jerk/)
 - [bad things to do](https://lifestyle.allwomenstalk.com/dont-feel-bad-adult-things-were-all-bad-at-doing/)
-- [people pleaser memes](https://funny.allwomenstalk.com/the-daily-problems-only-people-pleasers-can-relate-to/)
-- [no one will understand](https://love.allwomenstalk.com/things-no-one-will-ever-be-able-to-understand-about-love/)
-- [things that are reckless](https://lifestyle.allwomenstalk.com/reckless-things-that-are-actually-healthy-for-you-to-do/)
-- [quarter life crisis meme](https://funny.allwomenstalk.com/what-its-really-like-to-suffer-from-a-quarter-life-crisis/)
-- [paris riche stylo bottomless](https://inspiration.allwomenstalk.com/these-questions-can-lead-to-unlimited-happiness/)
 - [you could have any superpower which one would you ...](https://lifestyle.allwomenstalk.com/things-you-never-knew-about-body-language-and-gestures/)
 - [you say lyrics meaning](https://lifestyle.allwomenstalk.com/body-language-associated-with-all-the-different-emotions/)
+- [people pleaser memes](https://funny.allwomenstalk.com/the-daily-problems-only-people-pleasers-can-relate-to/)
+- [no one will understand](https://love.allwomenstalk.com/things-no-one-will-ever-be-able-to-understand-about-love/)
+- [quarter life crisis meme](https://funny.allwomenstalk.com/what-its-really-like-to-suffer-from-a-quarter-life-crisis/)
+- [things that are reckless](https://lifestyle.allwomenstalk.com/reckless-things-that-are-actually-healthy-for-you-to-do/)
+- [19 Experiences Youll Recognize if Your Drunk Self ...](https://funny.allwomenstalk.com/experiences-youll-recognize-if-your-drunk-self-is-a-jerk/)
 - [pms clumsy](https://funny.allwomenstalk.com/this-is-what-life-feels-like-when-youre-clumsy-af-on-pms/)
+- [paris riche stylo bottomless](https://inspiration.allwomenstalk.com/these-questions-can-lead-to-unlimited-happiness/)
 - [10 Reasons Why Your Life is Not What You Want It t...](https://health.allwomenstalk.com/reasons-why-your-life-is-not-what-you-want-it-to-be/)
 - [Impeccable Ideas to Turn Your Life around ...](https://inspiration.allwomenstalk.com/energizing-ideas-for-turning-your-life-around/)
 

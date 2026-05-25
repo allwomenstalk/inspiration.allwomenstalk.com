@@ -44,14 +44,14 @@ There are many things to love about being a Pisces. If you’re a Pisces, are so
 
 - [are leos faithful in relationships](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-leo/)
 - [sagittarius personality](https://inspiration.allwomenstalk.com/challenging-sagittarius-traits-and-how-to-overcome-them/)
-- [the best horoscope site](https://lifestyle.allwomenstalk.com/best-websites-for-checking-your-horoscope/)
+- [are aries quiet](https://inspiration.allwomenstalk.com/challenging-aries-traits-and-how-to-overcome-them/)
+- [scorpio woman jealous of friends](https://inspiration.allwomenstalk.com/challenging-scorpio-traits-and-how-to-overcome-them/)
 - [virgo moody](https://inspiration.allwomenstalk.com/challenging-virgo-traits-and-how-to-overcome-them/)
 - [what do capricorns like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-capricorn/)
-- [is capricorn selfish](https://inspiration.allwomenstalk.com/challenging-capricorn-traits-and-how-to-overcome-them/)
+- [the best horoscope site](https://lifestyle.allwomenstalk.com/best-websites-for-checking-your-horoscope/)
 - [what do scorpios like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-scorpio/)
-- [scorpio woman jealous of friends](https://inspiration.allwomenstalk.com/challenging-scorpio-traits-and-how-to-overcome-them/)
 - [are aquarius indecisive](https://inspiration.allwomenstalk.com/challenging-libra-traits-and-how-to-overcome-them/)
-- [are aries quiet](https://inspiration.allwomenstalk.com/challenging-aries-traits-and-how-to-overcome-them/)
+- [is capricorn selfish](https://inspiration.allwomenstalk.com/challenging-capricorn-traits-and-how-to-overcome-them/)
 - [5 Reasons I like Koi Fish ...](https://gardening.allwomenstalk.com/5-reasons-i-like-koi-fish/)
 - [10 Things to Love about Leonardo DiCaprio ...](https://allwomenstalk.com/10-things-to-love-about-leonardo-dicaprio/)
 

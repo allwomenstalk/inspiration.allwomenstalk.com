@@ -42,16 +42,16 @@ Swap your negative thoughts for positive ones, and your days will feel a lot bri
 
 ## Related Posts
 
-- [7 Distracted Driving Habits That You Need to End N...](https://lifestyle.allwomenstalk.com/distracted-driving-habits-that-you-need-to-end-now/)
-- [7 Fashion Mistakes You Should Avoid at All Costs ....](https://fashion.allwomenstalk.com/fashion-mistakes-you-should-avoid-at-all-costs/)
-- [7 Items You Should Never Buy Used No Matter What ....](https://lifestyle.allwomenstalk.com/items-you-should-never-buy-used-no-matter-what/)
-- [highbrow hound](https://funny.allwomenstalk.com/highbrow-things-its-okay-to-hate/)
-- [things to avoid on first date](https://love.allwomenstalk.com/things-to-avoid-on-a-first-date/)
-- [what not to do in a fight](https://love.allwomenstalk.com/things-you-should-never-do-during-a-fight-with-your-guy/)
-- [7 Unsightly Things to Avoid when It Comes to Your ...](https://beauty.allwomenstalk.com/unsightly-things-to-avoid-when-it-comes-to-your-appearance/)
 - [7 Foods You Should Not Keep in the Fridge ...](https://food.allwomenstalk.com/foods-you-should-not-keep-in-the-fridge/)
-- [11 Internet Behaviors to Watch out for ...](https://lifestyle.allwomenstalk.com/internet-behaviors-to-watch-out-for/)
+- [highbrow hound](https://funny.allwomenstalk.com/highbrow-things-its-okay-to-hate/)
 - [7 Worst Things for Your Mortgage Closing ...](https://money.allwomenstalk.com/worst-things-for-your-mortgage-closing/)
+- [7 Unsightly Things to Avoid when It Comes to Your ...](https://beauty.allwomenstalk.com/unsightly-things-to-avoid-when-it-comes-to-your-appearance/)
+- [what not to do in a fight](https://love.allwomenstalk.com/things-you-should-never-do-during-a-fight-with-your-guy/)
+- [7 Distracted Driving Habits That You Need to End N...](https://lifestyle.allwomenstalk.com/distracted-driving-habits-that-you-need-to-end-now/)
+- [7 Items You Should Never Buy Used No Matter What ....](https://lifestyle.allwomenstalk.com/items-you-should-never-buy-used-no-matter-what/)
+- [11 Internet Behaviors to Watch out for ...](https://lifestyle.allwomenstalk.com/internet-behaviors-to-watch-out-for/)
+- [things to avoid on first date](https://love.allwomenstalk.com/things-to-avoid-on-a-first-date/)
+- [7 Fashion Mistakes You Should Avoid at All Costs ....](https://fashion.allwomenstalk.com/fashion-mistakes-you-should-avoid-at-all-costs/)
 - [10 Negative Things You Should Stop Saying ...](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [5 Things You Want to Avoid ...](https://allwomenstalk.com/5-things-you-want-to-avoid/)
 

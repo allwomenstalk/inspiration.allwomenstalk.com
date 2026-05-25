@@ -60,16 +60,16 @@ This post was written in collaboration with editor Heather Jensen.
 
 ## Related Posts
 
-- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
-- [letting your guard down in a relationship](https://love.allwomenstalk.com/ways-to-let-your-guard-down-while-avoiding-getting-hurt/)
-- [not feeling yourself](https://inspiration.allwomenstalk.com/ways-to-feel-like-yourself-again/)
-- [how to keep busy yourself](https://lifestyle.allwomenstalk.com/ways-to-keep-yourself-busy-and-productive/)
-- [physical activities that reduce stress](https://fitness.allwomenstalk.com/activities-that-reduce-stress-and-give-you-exercise/)
-- [how do i free my mind](https://inspiration.allwomenstalk.com/ways-to-free-your-mind-immediately-that-really-do-work/)
-- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
-- [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
-- [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
 - [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
+- [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
+- [how do i free my mind](https://inspiration.allwomenstalk.com/ways-to-free-your-mind-immediately-that-really-do-work/)
+- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
+- [not feeling yourself](https://inspiration.allwomenstalk.com/ways-to-feel-like-yourself-again/)
+- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
+- [how to keep busy yourself](https://lifestyle.allwomenstalk.com/ways-to-keep-yourself-busy-and-productive/)
+- [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
+- [letting your guard down in a relationship](https://love.allwomenstalk.com/ways-to-let-your-guard-down-while-avoiding-getting-hurt/)
+- [physical activities that reduce stress](https://fitness.allwomenstalk.com/activities-that-reduce-stress-and-give-you-exercise/)
 - [7 Techniques to Help You Get through a Difficult D...](https://lifestyle.allwomenstalk.com/techniques-to-help-you-get-through-a-difficult-day/)
 - [9 Quotes to Help You Get through the Day ...](https://inspiration.allwomenstalk.com/quotes-to-help-you-get-through-the-day/)
 

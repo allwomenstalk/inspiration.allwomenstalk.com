@@ -29,15 +29,15 @@ Life offers so many wonderful gifts. Every moment serves as an opportunity to be
 ## Related Posts
 
 - [happy life rules](https://inspiration.allwomenstalk.com/rules-to-live-by-for-a-happier-life/)
-- [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
 - [how to value myself](https://inspiration.allwomenstalk.com/ways-to-start-to-value-yourself/)
-- [small things that can make a big difference](https://inspiration.allwomenstalk.com/little-things-that-can-make-a-big-difference-in-your-life/)
-- [setback and relax](https://inspiration.allwomenstalk.com/ways-to-turn-a-setback-into-success/)
 - [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
-- [tigers den meaning](https://inspiration.allwomenstalk.com/chinese-proverbs-that-will-help-you-live-a-better-life/)
 - [brilliant ways](https://inspiration.allwomenstalk.com/brilliant-ways-to-be-happier/)
-- [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
+- [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
+- [setback and relax](https://inspiration.allwomenstalk.com/ways-to-turn-a-setback-into-success/)
+- [tigers den meaning](https://inspiration.allwomenstalk.com/chinese-proverbs-that-will-help-you-live-a-better-life/)
 - [tune into your intuition](https://inspiration.allwomenstalk.com/genius-ways-to-tune-into-your-intuition/)
+- [small things that can make a big difference](https://inspiration.allwomenstalk.com/little-things-that-can-make-a-big-difference-in-your-life/)
+- [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
 - [7 Unbelievably Simple but Highly Effective Tips on...](https://beauty.allwomenstalk.com/unbelievably-simple-but-highly-effective-tips-on-how-to-be-party-ready-in-a-flash/)
 - [Little Known Ways to Stand out at a Party](https://allwomenstalk.com/little-known-ways-to-stand-out-at-a-party/)
 

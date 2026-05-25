@@ -76,16 +76,16 @@ I know that even despite reading this, plenty of you are still sitting there sha
 
 ## Related Posts
 
-- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
-- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
-- [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
-- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
-- [growing up in a small town](https://lifestyle.allwomenstalk.com/things-you-learn-growing-up-in-a-small-town/)
-- [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
-- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
 - [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
-- [20 things](https://inspiration.allwomenstalk.com/totally-important-things-for-20-somethings-to-remember-when-life-hits-hard/)
+- [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
+- [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
+- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
+- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
+- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
+- [growing up in a small town](https://lifestyle.allwomenstalk.com/things-you-learn-growing-up-in-a-small-town/)
 - [you wont regret it no no](https://inspiration.allwomenstalk.com/choices-to-make-in-life-that-you-wont-regret-10-years-from-now/)
+- [20 things](https://inspiration.allwomenstalk.com/totally-important-things-for-20-somethings-to-remember-when-life-hits-hard/)
+- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
 - [Things I Hate about Me ...](https://allwomenstalk.com/things-i-hate-about-me/)
 - [8 Reasons Not to Focus on Imperfections ...](https://allwomenstalk.com/8-reasons-not-to-focus-on-imperfections/)
 

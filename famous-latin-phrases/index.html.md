@@ -107,16 +107,16 @@ While I know this isn't nearly all the Latin phrases ever uttered, these are a s
 
 ## Related Posts
 
-- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
 - [spicy memes for couples](https://funny.allwomenstalk.com/spicy-memes/)
-- [bad dark jokes](https://funny.allwomenstalk.com/dark-humor-jokes/)
-- [memes about being drunk](https://funny.allwomenstalk.com/drunk-memes/)
 - [cheezy pick up](https://funny.allwomenstalk.com/cheesy-pick-up-lines/)
 - [funny and dirty memes](https://funny.allwomenstalk.com/naughty-memes/)
 - [memes to make you laugh](https://funny.allwomenstalk.com/relatable-memes/)
-- [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
-- [The Instinctiv Application Anticipates What You Wa...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
+- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
+- [memes about being drunk](https://funny.allwomenstalk.com/drunk-memes/)
 - [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
+- [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
+- [bad dark jokes](https://funny.allwomenstalk.com/dark-humor-jokes/)
+- [The Instinctiv Application Anticipates What You Wa...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
 - [Liven up Your Conversations with the Silliest Soun...](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
 - [The Wisest Sayings from Mothers Everywhere ...](https://funny.allwomenstalk.com/wise-mom-sayings-that-you-cant-disagree-with/)
 

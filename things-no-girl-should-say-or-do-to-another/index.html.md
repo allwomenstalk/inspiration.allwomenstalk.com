@@ -42,16 +42,16 @@ Women have to stick together instead of competing with each other. It'll make yo
 
 ## Related Posts
 
-- [7 Things Every Girl Should Check before She Leaves...](https://funny.allwomenstalk.com/things-every-girl-should-check-before-she-leaves-the-house/)
-- [7 Ways for Women to Protect Themselves against Dan...](https://health.allwomenstalk.com/ways-for-women-to-protect-themselves-against-danger/)
-- [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
-- [7 Psychotic Things Women do That Are Actually Heal...](https://lifestyle.allwomenstalk.com/psychotic-things-women-do-that-are-actually-healthy/)
-- [Poor Service Get Complaining Girl - Heres How ...](https://money.allwomenstalk.com/tips-for-complaining-about-poor-service/)
-- [7 Things No Woman Should Be Shamed for ...](https://inspiration.allwomenstalk.com/things-no-woman-should-be-shamed-for/)
 - [ten commandments ups lady](https://inspiration.allwomenstalk.com/commandments-for-being-a-fabulous-female/)
+- [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
+- [Poor Service Get Complaining Girl - Heres How ...](https://money.allwomenstalk.com/tips-for-complaining-about-poor-service/)
 - [7 Ways to Feel like an Empowered Woman ...](https://inspiration.allwomenstalk.com/ways-to-feel-like-an-empowered-woman/)
 - [Single Ladies Rejoice Heres How to Make 2015 Our Y...](https://love.allwomenstalk.com/single-ladies-rejoice-heres-how-to-make-our-year/)
+- [7 Psychotic Things Women do That Are Actually Heal...](https://lifestyle.allwomenstalk.com/psychotic-things-women-do-that-are-actually-healthy/)
+- [7 Things Every Girl Should Check before She Leaves...](https://funny.allwomenstalk.com/things-every-girl-should-check-before-she-leaves-the-house/)
 - [These Great Gifs Perfectly Describe How Periods Fe...](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-how-periods-feel/)
+- [7 Things No Woman Should Be Shamed for ...](https://inspiration.allwomenstalk.com/things-no-woman-should-be-shamed-for/)
+- [7 Ways for Women to Protect Themselves against Dan...](https://health.allwomenstalk.com/ways-for-women-to-protect-themselves-against-danger/)
 - [8 Things to Avoid Saying during Sex ...](https://allwomenstalk.com/8-things-to-avoid-saying-during-sex/)
 - [9 Important Things Every Woman Should Stop Doing ....](https://inspiration.allwomenstalk.com/important-things-every-woman-should-stop-doing/)
 

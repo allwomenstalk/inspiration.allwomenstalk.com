@@ -44,16 +44,16 @@ What characteristic “word” would you like to live up to?
 
 ## Related Posts
 
-- [breakfast at tiffanys cat](https://movies.allwomenstalk.com/so-you-want-to-be-holly-golightly-heres-how/)
-- [unclassy](https://love.allwomenstalk.com/unclassy-things-that-are-actually-attractive/)
-- [what does mama look like](https://beauty.allwomenstalk.com/how-to-look-like-one-hot-mamabeauty/)
-- [how to be sexier](https://beauty.allwomenstalk.com/forget-beautiful-heres-how-to-feel-sexy/)
 - [how to naturally look prettier](https://beauty.allwomenstalk.com/how-to-look-prettier-in-only-one-minute/)
-- [how to fix resting b face](https://beauty.allwomenstalk.com/how-to-make-your-resting-bitch-face-more-appealing/)
-- [mirror reflection quotes](https://beauty.allwomenstalk.com/how-to-be-happy-with-your-reflection/)
 - [i want to be prettier](https://beauty.allwomenstalk.com/how-to-feel-prettier-in-under-five-minutes/)
-- [how to feel beautiful when youre not](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-on-bad-days/)
+- [unclassy](https://love.allwomenstalk.com/unclassy-things-that-are-actually-attractive/)
+- [how to be sexier](https://beauty.allwomenstalk.com/forget-beautiful-heres-how-to-feel-sexy/)
+- [breakfast at tiffanys cat](https://movies.allwomenstalk.com/so-you-want-to-be-holly-golightly-heres-how/)
+- [how to fix resting b face](https://beauty.allwomenstalk.com/how-to-make-your-resting-bitch-face-more-appealing/)
+- [what does mama look like](https://beauty.allwomenstalk.com/how-to-look-like-one-hot-mamabeauty/)
 - [how to appear slimmer in photos](https://beauty.allwomenstalk.com/how-to-look-slimmer-in-photographs/)
+- [mirror reflection quotes](https://beauty.allwomenstalk.com/how-to-be-happy-with-your-reflection/)
+- [how to feel beautiful when youre not](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-on-bad-days/)
 - [10 Little Tips on How to Be Nice to People ...](https://lifestyle.allwomenstalk.com/little-tips-on-how-to-be-nice-to-people/)
 - [7 Tips for Meeting New People That Anyone Can Use ...](https://lifestyle.allwomenstalk.com/tips-for-meeting-new-people-that-anyone-can-use-in-life/)
 

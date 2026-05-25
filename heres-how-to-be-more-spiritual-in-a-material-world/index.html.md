@@ -42,15 +42,15 @@ How do you stay spiritual in a material world? Or is it something you thing you 
 
 ## Related Posts
 
-- [how to stop slacking off at work](https://inspiration.allwomenstalk.com/how-to-stop-slacking-and-get-out-of-your-slump/)
 - [sharpest nose](https://health.allwomenstalk.com/adopt-these-habits-if-you-want-the-sharpest-brain/)
-- [bucket list of life goals](https://inspiration.allwomenstalk.com/bye-bye-bucket-list-how-to-make-a-goals-list-instead/)
+- [how to stop slacking off at work](https://inspiration.allwomenstalk.com/how-to-stop-slacking-and-get-out-of-your-slump/)
 - [fortune cookie quotes motivational](https://inspiration.allwomenstalk.com/motivational-fortune-cookies-thatll-help-you-succeed/)
 - [challenges of writing](https://lifestyle.allwomenstalk.com/see-if-you-can-complete-these-writing-challenges/)
 - [how to become more emotionally stable](https://inspiration.allwomenstalk.com/ways-to-be-confidently-and-emotionally-stable/)
 - [how to be happy poor](https://money.allwomenstalk.com/ways-to-be-happy-even-when-youre-broke/)
-- [jean hacks](https://fashion.allwomenstalk.com/jean-hacks-that-you-can-try-out-today/)
 - [how to be a good adult](https://inspiration.allwomenstalk.com/how-to-become-better-at-being-an-adult/)
+- [bucket list of life goals](https://inspiration.allwomenstalk.com/bye-bye-bucket-list-how-to-make-a-goals-list-instead/)
+- [jean hacks](https://fashion.allwomenstalk.com/jean-hacks-that-you-can-try-out-today/)
 - [life hacks funny](https://funny.allwomenstalk.com/common-sense-life-hacks-thatll-make-you-laugh/)
 - [10 Simple Ways to Have Meaning in Your Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-have-meaning-in-your-life/)
 - [7 Inspiring Ways to Be Happier with Life ...](https://inspiration.allwomenstalk.com/inspiring-ways-to-be-happier-with-life/)

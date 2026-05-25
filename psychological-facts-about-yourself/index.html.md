@@ -76,16 +76,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
-- [facts about the great lakes](https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/)
-- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
 - [the river amazon facts](https://travel.allwomenstalk.com/awesome-facts-about-the-amazon-river-and-basin/)
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
 - [victoria beckham never smile](https://celebs.allwomenstalk.com/less-known-facts-about-victoria-beckham/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
-- [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
 - [how do you say yves saint laurent](https://fashion.allwomenstalk.com/amazing-facts-about-yves-saint-laurent-you-didnt-know/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
+- [why cant you split the pole](https://lifestyle.allwomenstalk.com/of-the-most-interesting-and-common-superstitions/)
 - [harry potter cast facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-movies/)
+- [facts about the great lakes](https://travel.allwomenstalk.com/amazing-facts-about-the-great-lakes/)
+- [how long does flaxseed meal last](https://food.allwomenstalk.com/fast-facts-about-flax-you-should-know/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/facts-about-bras/)
+- [christian dior information](https://fashion.allwomenstalk.com/interesting-facts-about-christian-dior-you-didnt-know/)
 - [4 Facts about Coffee You Did Not Know ...](https://allwomenstalk.com/7-facts-about-coffee-you-do-not-know/)
 - [10 Things You Never Knew about Orgasms ...](https://allwomenstalk.com/10-things-you-never-knew-about-orgasms/)
 

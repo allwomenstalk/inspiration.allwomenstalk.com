@@ -56,16 +56,16 @@ What's your favorite quote of all time?
 
 ## Related Posts
 
+- [stories about dreams](https://love.allwomenstalk.com/the-short-story-thatll-urge-you-to-follow-your-dreams/)
 - [quotes to help with a breakup](https://love.allwomenstalk.com/pinterest-quotes-to-help-you-through-your-breakup/)
-- [tattoo keep going](https://beauty.allwomenstalk.com/these-motivational-tattoos-will-make-you-go-after-your-goals/)
+- [writing in snow](https://inspiration.allwomenstalk.com/inspirational-messages-written-in-the-snow/)
+- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
 - [confusion quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-when-youre-feeling-confused/)
 - [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
-- [stories about dreams](https://love.allwomenstalk.com/the-short-story-thatll-urge-you-to-follow-your-dreams/)
+- [tattoo keep going](https://beauty.allwomenstalk.com/these-motivational-tattoos-will-make-you-go-after-your-goals/)
 - [harper lee quotes](https://celebs.allwomenstalk.com/inspirational-harper-lee-quotes-you-should-remember-her-by/)
-- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
 - [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
 - [powerful toni morrison quotes](https://inspiration.allwomenstalk.com/powerful-toni-morrison-quotes-to-push-you-through-life/)
-- [writing in snow](https://inspiration.allwomenstalk.com/inspirational-messages-written-in-the-snow/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

@@ -62,14 +62,14 @@ jhendor.hubpages.com_
 
 - [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
 - [christmas together quotes](https://love.allwomenstalk.com/quotes-about-christmas-love-and-cheer/)
-- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
+- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
+- [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
 - [dont get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
 - [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
 - [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
-- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
-- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
-- [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
+- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
 - [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
+- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 - [21 Inspirational Celebrity Quotes That Will Change...](https://inspiration.allwomenstalk.com/inspirational-celebrity-quotes/)
 

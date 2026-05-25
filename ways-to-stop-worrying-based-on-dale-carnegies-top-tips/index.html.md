@@ -44,16 +44,16 @@ This book is great and I have it by my bedside to re-read whenever I feel the ne
 
 ## Related Posts
 
+- [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
+- [post honeymoon blues](https://wedding.allwomenstalk.com/easy-ways-to-beat-the-post-honeymoon-blues/)
 - [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
 - [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
-- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
-- [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
-- [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
-- [stress free living](https://lifestyle.allwomenstalk.com/incredible-ways-to-live-stress-free-in-the-city/)
-- [how to focus without adderall](https://lifestyle.allwomenstalk.com/ways-to-get-through-a-study-session-that-dont-involve-adderall/)
-- [how to control your temper](https://lifestyle.allwomenstalk.com/tips-on-how-to-control-your-temper/)
-- [post honeymoon blues](https://wedding.allwomenstalk.com/easy-ways-to-beat-the-post-honeymoon-blues/)
 - [oktoberfest drunk fails](https://travel.allwomenstalk.com/ways-to-survive-oktoberfest-to-avoid-burnout/)
+- [how to focus without adderall](https://lifestyle.allwomenstalk.com/ways-to-get-through-a-study-session-that-dont-involve-adderall/)
+- [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
+- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
+- [stress free living](https://lifestyle.allwomenstalk.com/incredible-ways-to-live-stress-free-in-the-city/)
+- [how to control your temper](https://lifestyle.allwomenstalk.com/tips-on-how-to-control-your-temper/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 - [10 Ways to Stop Stress ...](https://allwomenstalk.com/10-ways-to-stop-stress/)
 

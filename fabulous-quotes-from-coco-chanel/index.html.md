@@ -56,16 +56,16 @@ Coco Chanel lived a very full and exciting life. She was a successful woman, who
 
 ## Related Posts
 
-- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
-- [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
 - [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
+- [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
+- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
+- [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
 - [jane austen quote](https://books.allwomenstalk.com/expressive-quotes-from-jane-austen/)
 - [great gatsby quotes about gatsby](https://inspiration.allwomenstalk.com/touching-quotes-from-the-great-gatsby/)
-- [the best thing one can do when its raining is to l...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
-- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
-- [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
+- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
 - [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
-- [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
+- [the best thing one can do when its raining is to l...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
+- [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
 - [Fashion Icons - 7 Things You Should Know about Coc...](https://allwomenstalk.com/fashion-icons-ae-7-things-what-you-should-know-about-coco-chanel/)
 - [7 Must Know Fashion Tips ...](https://allwomenstalk.com/7-must-know-fashion-tips/)
 

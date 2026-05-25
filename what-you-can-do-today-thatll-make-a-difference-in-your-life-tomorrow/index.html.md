@@ -42,16 +42,16 @@ Small changes can make a big difference very quickly, so start the new you today
 
 ## Related Posts
 
-- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
-- [free spirit lifestyle](https://inspiration.allwomenstalk.com/live-a-happier-life-with-these-tips-for-turning-into-a-free-spirit/)
-- [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
-- [to be in touch with your emotions](https://inspiration.allwomenstalk.com/how-to-get-in-touch-with-your-emotions-and-live-a-happier-life/)
-- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
-- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
-- [something you should be proud of](https://inspiration.allwomenstalk.com/be-proud-of-yourself-for-accomplishing-these-things-every-single-day/)
-- [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
-- [you wont regret it](https://inspiration.allwomenstalk.com/how-to-live-a-life-you-wont-regret-when-youre-old-and-grey/)
 - [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
+- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
+- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
+- [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
+- [something you should be proud of](https://inspiration.allwomenstalk.com/be-proud-of-yourself-for-accomplishing-these-things-every-single-day/)
+- [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
+- [free spirit lifestyle](https://inspiration.allwomenstalk.com/live-a-happier-life-with-these-tips-for-turning-into-a-free-spirit/)
+- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
+- [to be in touch with your emotions](https://inspiration.allwomenstalk.com/how-to-get-in-touch-with-your-emotions-and-live-a-happier-life/)
+- [you wont regret it](https://inspiration.allwomenstalk.com/how-to-live-a-life-you-wont-regret-when-youre-old-and-grey/)
 - [31 Ways to Change Your Life for the Better ...](https://allwomenstalk.com/ways-to-change-your-life-for-the-better/)
 - [10 Ways to Change Your Life in 30 Days ...](https://allwomenstalk.com/10-ways-to-change-your-life-in-30-days/)
 

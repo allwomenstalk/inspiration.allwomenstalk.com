@@ -44,16 +44,16 @@ To be fair, phones come in handy for several obvious reasons. With the developme
 
 ## Related Posts
 
-- [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
-- [26 and still single](https://love.allwomenstalk.com/reasons-why-you-are-still-single/)
-- [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
-- [why is he rude to me for no reason](https://teen.allwomenstalk.com/reasons-why-a-girl-is-mean-to-you/)
 - [never start smoking](https://health.allwomenstalk.com/reasons-why-you-should-never-start-smoking/)
-- [benefits of being single funny](https://funny.allwomenstalk.com/funny-but-true-reasons-being-single-is-great/)
+- [why is he rude to me for no reason](https://teen.allwomenstalk.com/reasons-why-a-girl-is-mean-to-you/)
 - [what is not airbrushing](https://beauty.allwomenstalk.com/reasons-not-to-be-influenced-by-airbrushed-images/)
 - [a good friend should be honest](https://inspiration.allwomenstalk.com/reasons-to-be-an-honest-friend/)
+- [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
 - [ditch the gym](https://fitness.allwomenstalk.com/reasons-to-ditch-the-gym/)
+- [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
+- [benefits of being single funny](https://funny.allwomenstalk.com/funny-but-true-reasons-being-single-is-great/)
 - [why does body want to bring the phone home](https://lifestyle.allwomenstalk.com/reasons-to-leave-your-phone-at-home/)
+- [26 and still single](https://love.allwomenstalk.com/reasons-why-you-are-still-single/)
 - [8 Reasons to Quit Your Job ...](https://allwomenstalk.com/8-reasons-to-quit-your-job/)
 - [8 Compelling Reasons to Switch off Your Phone ...](https://allwomenstalk.com/8-compelling-reasons-to-switch-off-your-phone/)
 

@@ -50,15 +50,15 @@ What did you think about AleXsandro's collection? You can check out more of his 
 
 ## Related Posts
 
-- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
-- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
-- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
-- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
-- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
-- [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
-- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
 - [shake it and it will be better](https://music.allwomenstalk.com/11-year-old-dance-star-proves-she-can-shake-it-off-way-better-than-i-ever-could/)
 - [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
+- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
+- [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
+- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
+- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
+- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
+- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
+- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
 - [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
 - [Girl Project by Creative Imaginations](https://allwomenstalk.com/girl-project-by-creative-imaginations/)
 - [Miley Cyrus Celebrates 16th Birthday at Disneys .....](https://allwomenstalk.com/miley-cyrus-celebrates-16th-birthday-at-disneys/)

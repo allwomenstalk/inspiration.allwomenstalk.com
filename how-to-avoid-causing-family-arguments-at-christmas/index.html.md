@@ -58,16 +58,16 @@ If the tensions of the day are starting to get on top of you, there is no shame 
 
 ## Related Posts
 
-- [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
-- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
 - [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
-- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
-- [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
-- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
 - [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
-- [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
+- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
+- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
 - [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
+- [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
+- [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
+- [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
 - [7 Tips on Protecting Your Family ...](https://parenting.allwomenstalk.com/7-tips-on-protecting-your-family/)
 - [8 Tips on Resolving Fights between Your Children ....](https://parenting.allwomenstalk.com/8-tips-on-resolving-fights-between-your-children/)
 

@@ -44,16 +44,16 @@ Being in any type of relationship is tough, but if you learn how to be a good fr
 
 ## Related Posts
 
-- [are flings bad](https://love.allwomenstalk.com/the-difference-between-a-serious-relationship-and-a-fling/)
-- [dating in 20s](https://love.allwomenstalk.com/the-difference-between-dating-in-your-teens-and-20s/)
 - [What Happens when a Neat Freak and a Slob Fall in ...](https://love.allwomenstalk.com/what-happens-when-a-neat-freak-and-a-slob-fall-in-love/)
+- [find time for me](https://love.allwomenstalk.com/make-time-for-me-time-how-to-find-time-for-yourself-without-neglecting-your-mate/)
+- [are flings bad](https://love.allwomenstalk.com/the-difference-between-a-serious-relationship-and-a-fling/)
 - [moving too quickly in a relationship](https://love.allwomenstalk.com/relationship-moving-too-fast-heres-ways-to-bring-it-down-a-notch/)
+- [your love is life changing](https://love.allwomenstalk.com/how-falling-in-love-can-change-your-entire-life/)
 - [date with stranger](https://love.allwomenstalk.com/its-best-to-become-friends-first-the-dangers-of-dating-a-stranger/)
 - [rushing into a relationship quotes](https://love.allwomenstalk.com/sometimes-slow-is-good-why-you-shouldnt-rush-your-relationship/)
-- [find time for me](https://love.allwomenstalk.com/make-time-for-me-time-how-to-find-time-for-yourself-without-neglecting-your-mate/)
-- [living together relationship](https://love.allwomenstalk.com/readerknows-how-living-together-will-change-your-relationship/)
-- [your love is life changing](https://love.allwomenstalk.com/how-falling-in-love-can-change-your-entire-life/)
+- [dating in 20s](https://love.allwomenstalk.com/the-difference-between-dating-in-your-teens-and-20s/)
 - [marriage balance](https://love.allwomenstalk.com/balance-in-marriage-is-a-good-thing-and-heres-how-to-find-it/)
+- [living together relationship](https://love.allwomenstalk.com/readerknows-how-living-together-will-change-your-relationship/)
 - [11 Secrets for a Successful Relationship ...](https://allwomenstalk.com/10-secrets-for-a-successful-relationship/)
 - [8 Signs That You Are Perfect Girlfriend Material ....](https://allwomenstalk.com/8-signs-that-you-are-perfect-girlfriend-material/)
 

@@ -42,16 +42,16 @@ These are just a few questions you may want to ask yourself as the year draws to
 
 ## Related Posts
 
-- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
-- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
-- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
 - [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
 - [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
-- [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
-- [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
+- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
+- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
 - [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
+- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
+- [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [5 Questions to Ponder...](https://allwomenstalk.com/5-questions-to-ponder/)
 

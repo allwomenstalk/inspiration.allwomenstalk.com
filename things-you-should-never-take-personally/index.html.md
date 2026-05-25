@@ -43,15 +43,15 @@ So when you feel that something is personally directed at you, stop and consider
 ## Related Posts
 
 - [Never do These Things to Try and Impress a Man ...](https://love.allwomenstalk.com/never-do-these-things-to-impress-a-man/)
-- [7 Things Your BF Will Never do if He Really Wants ...](https://love.allwomenstalk.com/things-you-need-to-believe-your-bf-would-never-do/)
-- [goodside grocery](https://food.allwomenstalk.com/heres-what-most-people-do-wrong-at-the-grocery-store/)
-- [9 Abusive Things You Should Never Let Your Partner...](https://love.allwomenstalk.com/abusive-things-you-should-never-let-your-partner-say-or-do/)
 - [7 Things to Avoid when Youre on Your Period ...](https://health.allwomenstalk.com/things-to-avoid-when-youre-on-your-period/)
 - [loreal color riche le stylo eye always pearly](https://love.allwomenstalk.com/things-your-man-should-never-say-to-you/)
 - [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
-- [Most Terrible Meals to Skip from Your Favorite Cha...](https://diet.allwomenstalk.com/never-order-these-meals-from-chain-resaurants/)
+- [7 Things Your BF Will Never do if He Really Wants ...](https://love.allwomenstalk.com/things-you-need-to-believe-your-bf-would-never-do/)
 - [avoid crush](https://love.allwomenstalk.com/avoid-these-things-when-texting-your-crush/)
+- [goodside grocery](https://food.allwomenstalk.com/heres-what-most-people-do-wrong-at-the-grocery-store/)
+- [Most Terrible Meals to Skip from Your Favorite Cha...](https://diet.allwomenstalk.com/never-order-these-meals-from-chain-resaurants/)
 - [Self-Respecting Women Will Never Deal with THESE ....](https://love.allwomenstalk.com/things-no-self-respecting-woman-should-put-up-with/)
+- [9 Abusive Things You Should Never Let Your Partner...](https://love.allwomenstalk.com/abusive-things-you-should-never-let-your-partner-say-or-do/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Things You Should Not Share ...](https://allwomenstalk.com/7-things-you-should-not-share/)
 

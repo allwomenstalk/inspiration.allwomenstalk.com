@@ -74,16 +74,16 @@ Complimenting others is a great way to start a conversation and to get to know s
 
 ## Related Posts
 
-- [guy fall](https://love.allwomenstalk.com/steps-to-make-any-guy-fall-for-you/)
-- [when a guy listens to everything you say](https://love.allwomenstalk.com/ways-to-make-your-guy-listen-to-anything-you-say/)
-- [cara hibur cowok](https://love.allwomenstalk.com/ways-to-bring-your-man-out-of-a-bad-mood/)
-- [how to get his interest back](https://love.allwomenstalk.com/small-but-sure-ways-to-test-his-interest/)
-- [how to get a guy to buy you a drink](https://love.allwomenstalk.com/tips-on-how-to-get-a-guy-to-buy-you-a-drink/)
 - [husband plays video games all day](https://lifestyle.allwomenstalk.com/sure-fire-ways-to-distract-your-boyfriend-from-his-games-console/)
-- [important questions to ask on the first date](https://love.allwomenstalk.com/important-questions-to-ask-on-a-first-date/)
-- [how to show him you love him](https://love.allwomenstalk.com/simple-and-fun-ways-to-show-him-you-are-the-one/)
+- [when a guy listens to everything you say](https://love.allwomenstalk.com/ways-to-make-your-guy-listen-to-anything-you-say/)
 - [man watching football](https://lifestyle.allwomenstalk.com/things-to-do-when-your-guy-is-watching-football/)
+- [cara hibur cowok](https://love.allwomenstalk.com/ways-to-bring-your-man-out-of-a-bad-mood/)
+- [how to get a guy to buy you a drink](https://love.allwomenstalk.com/tips-on-how-to-get-a-guy-to-buy-you-a-drink/)
+- [how to show him you love him](https://love.allwomenstalk.com/simple-and-fun-ways-to-show-him-you-are-the-one/)
 - [torn between two lovers advice](https://love.allwomenstalk.com/tips-on-how-to-choose-between-two-guys/)
+- [how to get his interest back](https://love.allwomenstalk.com/small-but-sure-ways-to-test-his-interest/)
+- [important questions to ask on the first date](https://love.allwomenstalk.com/important-questions-to-ask-on-a-first-date/)
+- [guy fall](https://love.allwomenstalk.com/steps-to-make-any-guy-fall-for-you/)
 - [25 Ways to Tell if a Girl Likes You ...](https://allwomenstalk.com/12-ways-to-tell-if-a-girl-likes-you/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)
 

@@ -42,16 +42,16 @@ Knitting teaches you timeless lessons about life that are important to pay atten
 
 ## Related Posts
 
+- [dont let what youre good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
+- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
-- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
-- [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
 - [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
 - [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
+- [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
+- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
 - [people in your life](https://inspiration.allwomenstalk.com/types-of-people-you-need-in-your-life-to-make-you-happy/)
-- [dont let what youre good at define who you are](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-emotional-baggage-so-it-doesnt-define-you/)
 - [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
-- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
-- [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
 - [7 Accessories I Could Never Give up ...](https://fashion.allwomenstalk.com/7-accessories-i-could-never-give-up/)
 - [7 Fuzzy Winter Knits ...](https://fashion.allwomenstalk.com/fuzzy-winter-knits/)
 

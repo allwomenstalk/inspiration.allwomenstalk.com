@@ -33,16 +33,16 @@ How do you deal with this kind of woman?
 
 ## Related Posts
 
-- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
-- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
-- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
-- [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
-- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
 - [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
+- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
 - [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
 - [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
+- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
+- [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
 - [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
+- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
+- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
 - [Real World Tips for Girls to Help Them Survive Har...](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-harsh-criticism/)
 - [Heres How a True Lady Can Remain Classy While Drun...](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
 

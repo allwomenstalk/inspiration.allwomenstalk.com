@@ -43,15 +43,15 @@ Are you a badass or is she inside screaming to be set free?
 
 ## Related Posts
 
+- [50 ways to reduce stress](https://health.allwomenstalk.com/ways-to-reduce-stress-and-relax/)
 - [i sleep all day on my days off](https://lifestyle.allwomenstalk.com/soothing-ways-to-spend-your-day-off/)
-- [busy women](https://lifestyle.allwomenstalk.com/become-less-busy-with-these-simple-strategies/)
-- [i can t study](https://lifestyle.allwomenstalk.com/how-to-put-yourself-in-the-mood-to-study/)
 - [zara barrie divorce](https://inspiration.allwomenstalk.com/how-can-you-improve-your-mental-health/)
+- [sea view dpz](https://lifestyle.allwomenstalk.com/stop-making-these-complaints-to-feel-happier/)
+- [busy women](https://lifestyle.allwomenstalk.com/become-less-busy-with-these-simple-strategies/)
+- [iceberg stress](https://health.allwomenstalk.com/how-to-stop-yourself-from-experiencing-iceberg-stress/)
 - [turn your anger into motivation quotes](https://inspiration.allwomenstalk.com/turn-your-anger-into-positive-energy-with-these-tips/)
 - [find your sanctuary](https://lifestyle.allwomenstalk.com/places-to-get-sanctuary-from-your-stressful-life/)
-- [iceberg stress](https://health.allwomenstalk.com/how-to-stop-yourself-from-experiencing-iceberg-stress/)
-- [50 ways to reduce stress](https://health.allwomenstalk.com/ways-to-reduce-stress-and-relax/)
-- [sea view dpz](https://lifestyle.allwomenstalk.com/stop-making-these-complaints-to-feel-happier/)
+- [i can t study](https://lifestyle.allwomenstalk.com/how-to-put-yourself-in-the-mood-to-study/)
 - [How to Perk Yourself up when Youre Having a Bad Da...](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
 - [How to Reinvent Yourself after Failure ...](https://inspiration.allwomenstalk.com/ways-to-reinvent-yourself-after-failure/)
 - [How to Keep Your Cool when Things Are Not Going as...](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-things-are-not-going-as-planned/)

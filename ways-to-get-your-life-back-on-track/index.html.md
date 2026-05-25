@@ -42,16 +42,16 @@ Don't settle for mediocre when you could be living a fabulous life. You have the
 
 ## Related Posts
 
+- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
+- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
+- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
+- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
+- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
+- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
+- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
+- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
 - [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
 - [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
-- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
-- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
-- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
-- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
-- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
-- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
-- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
-- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
 - [7 Ways You Can Motivate Yourself ...](https://allwomenstalk.com/7-ways-you-can-motivate-yourself/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 

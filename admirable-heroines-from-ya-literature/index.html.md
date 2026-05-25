@@ -56,16 +56,16 @@ It's important to find worthwhile role models in literature – of all ages. The
 
 ## Related Posts
 
-- [9 Heroic Women from World War I and II ...](https://celebs.allwomenstalk.com/heroic-women-from-world-war-i-and-ii/)
-- [9 Amazing Biographical Movies about Women ...](https://movies.allwomenstalk.com/amazing-biographical-movies-about-women/)
-- [Girl Power: Taylor Swifts Cutest BFF Photos ...](https://celebs.allwomenstalk.com/girl-power-taylor-swifts-cutest-bff-photos/)
-- [7 Stereotypes about Women That Are Actually True ....](https://lifestyle.allwomenstalk.com/stereotypes-about-women-that-are-actually-true/)
-- [These Choices WIll Make You a Role Model to Women ...](https://inspiration.allwomenstalk.com/ways-to-be-a-good-role-model/)
+- [9 Firsts for Women in Politics in the USA ...](https://lifestyle.allwomenstalk.com/firsts-for-women-in-politics-in-the-usa/)
 - [9 Fun Facts about Tina Fey and Amy Poehlers Epic F...](https://7fun.net/fun-facts-about-tina-fey-and-amy-poehlers-epic-friendship/)
 - [famous female aviation pioneers](https://celebs.allwomenstalk.com/amazing-pioneers-of-female-aviation/)
-- [9 Firsts for Women in Politics in the USA ...](https://lifestyle.allwomenstalk.com/firsts-for-women-in-politics-in-the-usa/)
+- [9 Heroic Women from World War I and II ...](https://celebs.allwomenstalk.com/heroic-women-from-world-war-i-and-ii/)
+- [7 Stereotypes about Women That Are Actually True ....](https://lifestyle.allwomenstalk.com/stereotypes-about-women-that-are-actually-true/)
 - [7 Things to Love about Girl Meets Worlds Leading L...](https://celebs.allwomenstalk.com/things-to-love-about-girl-meets-worlds-leading-ladies/)
+- [These Choices WIll Make You a Role Model to Women ...](https://inspiration.allwomenstalk.com/ways-to-be-a-good-role-model/)
+- [9 Amazing Biographical Movies about Women ...](https://movies.allwomenstalk.com/amazing-biographical-movies-about-women/)
 - [joan trumpauer mulholland husband](https://movies.allwomenstalk.com/movies-that-empower-women/)
+- [Girl Power: Taylor Swifts Cutest BFF Photos ...](https://celebs.allwomenstalk.com/girl-power-taylor-swifts-cutest-bff-photos/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

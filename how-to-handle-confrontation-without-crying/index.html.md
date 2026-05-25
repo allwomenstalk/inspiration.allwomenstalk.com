@@ -42,16 +42,16 @@ Unfortunately, confrontations are a part of life, which is why you should prepar
 
 ## Related Posts
 
-- [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
 - [sometimes all you need are your friends](https://teen.allwomenstalk.com/how-do-you-handle-being-left-out-by-friends/)
-- [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
-- [its not you its me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
-- [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
-- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
-- [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
-- [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
-- [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
 - [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
+- [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
+- [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
+- [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
+- [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
+- [love 911 drama queen](https://inspiration.allwomenstalk.com/ways-to-get-over-your-drama-queen-tendencies-for-good/)
+- [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
+- [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
+- [its not you its me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
 - [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
 - [7 Ways to Stop Insulting Yourself when Youre Upset...](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
 

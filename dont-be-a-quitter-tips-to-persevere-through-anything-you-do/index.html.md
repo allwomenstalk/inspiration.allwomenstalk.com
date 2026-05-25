@@ -42,16 +42,16 @@ These are 7 tips to help you not be a quitter. Has being a quitter been a strugg
 
 ## Related Posts
 
-- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
 - [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
-- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
-- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
-- [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
-- [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
-- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
-- [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
-- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
 - [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
+- [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
+- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
+- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
+- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
+- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
+- [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
+- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
+- [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
 - [8 Ways to Encourage Yourself That Will Never Fail ...](https://inspiration.allwomenstalk.com/ways-to-encourage-yourself/)
 - [Life Tip: Heres How to Stay Hopeful Even in a Hope...](https://inspiration.allwomenstalk.com/life-tip-heres-how-to-stay-hopeful-even-in-a-hopeless-situation/)
 

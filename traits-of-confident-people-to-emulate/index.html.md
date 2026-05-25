@@ -42,16 +42,16 @@ Confidence is something anyone can work toward growing stronger at in their life
 
 ## Related Posts
 
-- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
+- [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
 - [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
 - [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
-- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
-- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
-- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
-- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
-- [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
 - [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
+- [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
+- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
+- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
+- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
+- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
+- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
 - [7 Reasons to Feel Good about Yourself ...](https://health.allwomenstalk.com/reasons-to-feel-good-about-yourself/)
 - [7 Reasons to Believe Youre a Winner ...](https://weightloss.allwomenstalk.com/reasons-to-believe-youre-a-winner/)
 

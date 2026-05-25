@@ -42,16 +42,16 @@ So…what will 2015 really be like? What do you think?
 
 ## Related Posts
 
+- [serving the people](https://money.allwomenstalk.com/reasons-to-be-nice-to-people-serving-you/)
+- [ballerina tumblr](https://fitness.allwomenstalk.com/reasons-youre-never-too-old-for-ballet/)
+- [why visit luxembourg](https://travel.allwomenstalk.com/reasons-to-visit-luxembourg/)
+- [benefits of living in the south](https://lifestyle.allwomenstalk.com/advantages-of-living-in-the-south-v-life-in-the-north/)
 - [new new haircut](https://hair.allwomenstalk.com/reasons-to-get-a-great-new-haircut/)
 - [writing thank you cards](https://lifestyle.allwomenstalk.com/wonderful-benefits-of-writing-thank-you-notes/)
 - [go out on your own](https://inspiration.allwomenstalk.com/advantages-of-going-out-by-yourself/)
-- [is solo travel fun](https://travel.allwomenstalk.com/reasons-why-solo-travel-is-fun/)
-- [why visit luxembourg](https://travel.allwomenstalk.com/reasons-to-visit-luxembourg/)
 - [get excited and make things](https://lifestyle.allwomenstalk.com/reasons-to-get-excited-for-february/)
-- [ballerina tumblr](https://fitness.allwomenstalk.com/reasons-youre-never-too-old-for-ballet/)
-- [serving the people](https://money.allwomenstalk.com/reasons-to-be-nice-to-people-serving-you/)
+- [is solo travel fun](https://travel.allwomenstalk.com/reasons-why-solo-travel-is-fun/)
 - [are online relationships as valuable as in-person ...](https://love.allwomenstalk.com/benefits-of-internet-relationships/)
-- [benefits of living in the south](https://lifestyle.allwomenstalk.com/advantages-of-living-in-the-south-v-life-in-the-north/)
 - [10 Cities to Visit This Year ...](https://travel.allwomenstalk.com/10-cities-to-visit-this-year/)
 - [10 Reasons to Visit Australia ...](https://travel.allwomenstalk.com/reasons-to-visit-australia/)
 

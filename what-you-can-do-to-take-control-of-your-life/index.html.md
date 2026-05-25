@@ -56,16 +56,16 @@ You have the power to take control of your life, so stop making excuses and crea
 
 ## Related Posts
 
-- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
-- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
-- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
-- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
-- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
 - [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
+- [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
+- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
+- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
+- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
+- [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
+- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
 - [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
 - [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
-- [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
-- [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
+- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
 - [7 Reasons to Never Give up on Life or Yourself ...](https://inspiration.allwomenstalk.com/reasons-to-never-give-up-on-life-or-yourself/)
 - [Heres How to Avoid Losing Hope so You Can Live a L...](https://inspiration.allwomenstalk.com/heres-how-to-avoid-losing-hope-so-you-can-live-a-life-you-love/)
 

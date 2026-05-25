@@ -42,16 +42,16 @@ Have you struggled with receiving compliments? It is actually very common to do 
 
 ## Related Posts
 
-- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
-- [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
-- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
-- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
 - [office rivalry](https://money.allwomenstalk.com/tips-on-how-to-deal-with-office-rivalry/)
+- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
 - [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
 - [when someone lectures you](https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/)
-- [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
-- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
+- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
 - [how to get on your teachers good side](https://teen.allwomenstalk.com/tips-on-how-to-get-on-your-professors-good-side/)
+- [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
+- [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
+- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
+- [how to stand up to peer pressure](https://teen.allwomenstalk.com/tips-on-how-to-stand-up-to-peer-pressure/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [7 Thoughtful Ways to Tell Someone Thank You ...](https://allwomenstalk.com/7-ways-to-say-thank-you/)
 

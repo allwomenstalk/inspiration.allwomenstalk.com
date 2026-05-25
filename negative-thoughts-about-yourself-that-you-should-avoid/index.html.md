@@ -42,16 +42,16 @@ Once you stop telling yourself the things listed above, you’ll be happier. The
 
 ## Related Posts
 
-- [7 Things You Shouldnt Say in the Beginning of a Ne...](https://love.allwomenstalk.com/things-you-shouldnt-say-in-the-beginning-of-a-new-relationship/)
-- [7 Things You Shouldnt Buy Used for Your Children ....](https://parenting.allwomenstalk.com/things-you-shouldnt-buy-used-for-your-children/)
-- [7 Worst Foods to Eat on a First Date ...](https://love.allwomenstalk.com/worst-foods-to-eat-on-a-first-date-2/)
-- [9 Remarkably Annoying Guy Habits That We Simply Ca...](https://love.allwomenstalk.com/remarkably-annoying-guy-habits-that-we-simply-cannot-stand/)
-- [crummy day](https://lifestyle.allwomenstalk.com/crummy-events-that-can-ruin-your-day/)
-- [7 Things to Never do on Facebook when Youre in a R...](https://love.allwomenstalk.com/things-to-never-do-on-facebook-when-youre-in-a-relationship/)
-- [9 Important Things Every Woman Should Stop Doing ....](https://inspiration.allwomenstalk.com/important-things-every-woman-should-stop-doing/)
-- [what to say to a woman who miscarried](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-woman-whos-had-a-miscarriage/)
-- [things to do as single woman](https://love.allwomenstalk.com/things-not-to-say-to-a-single-woman/)
 - [7 Things That Are Not Worth Your Jealousy ...](https://lifestyle.allwomenstalk.com/things-that-are-not-worth-your-jealousy/)
+- [7 Things You Shouldnt Say in the Beginning of a Ne...](https://love.allwomenstalk.com/things-you-shouldnt-say-in-the-beginning-of-a-new-relationship/)
+- [7 Things to Never do on Facebook when Youre in a R...](https://love.allwomenstalk.com/things-to-never-do-on-facebook-when-youre-in-a-relationship/)
+- [7 Worst Foods to Eat on a First Date ...](https://love.allwomenstalk.com/worst-foods-to-eat-on-a-first-date-2/)
+- [what to say to a woman who miscarried](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-woman-whos-had-a-miscarriage/)
+- [crummy day](https://lifestyle.allwomenstalk.com/crummy-events-that-can-ruin-your-day/)
+- [7 Things You Shouldnt Buy Used for Your Children ....](https://parenting.allwomenstalk.com/things-you-shouldnt-buy-used-for-your-children/)
+- [things to do as single woman](https://love.allwomenstalk.com/things-not-to-say-to-a-single-woman/)
+- [9 Important Things Every Woman Should Stop Doing ....](https://inspiration.allwomenstalk.com/important-things-every-woman-should-stop-doing/)
+- [9 Remarkably Annoying Guy Habits That We Simply Ca...](https://love.allwomenstalk.com/remarkably-annoying-guy-habits-that-we-simply-cannot-stand/)
 - [10 Negative Things You Should Stop Saying ...](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [5 Things You Want to Avoid ...](https://allwomenstalk.com/5-things-you-want-to-avoid/)
 

@@ -38,16 +38,16 @@ What will you write down on your list?
 
 ## Related Posts
 
-- [10 things make you happy](https://lifestyle.allwomenstalk.com/stellar-things-to-make-you-happy-in-life/)
+- [love yourself respect yourself](https://inspiration.allwomenstalk.com/how-to-love-yourself-without-social-media/)
 - [exceptional motivation](https://inspiration.allwomenstalk.com/why-you-should-love-what-you-do-and-do-what-you-love/)
-- [new years bullet journal ideas](https://inspiration.allwomenstalk.com/bullet-journal-inspo-for-all-your-new-years-resolutions/)
 - [bucket list for self](https://lifestyle.allwomenstalk.com/things-to-put-on-your-bucket-list-2/)
 - [how to keep your motivation high](https://inspiration.allwomenstalk.com/ways-to-keep-your-motivation-high/)
-- [4 bad habits happy people avoid](https://inspiration.allwomenstalk.com/bad-habits-to-break/)
-- [site:allwomenstalk.com](https://inspiration.allwomenstalk.com/plan-to-make-the-best-of/)
-- [love yourself respect yourself](https://inspiration.allwomenstalk.com/how-to-love-yourself-without-social-media/)
-- [hope when you feel hopeless](https://inspiration.allwomenstalk.com/ways-to-find-hope-when-you-feel-hopeless/)
 - [organize your life into categories](https://inspiration.allwomenstalk.com/organize-your-life-with-lists/)
+- [new years bullet journal ideas](https://inspiration.allwomenstalk.com/bullet-journal-inspo-for-all-your-new-years-resolutions/)
+- [10 things make you happy](https://lifestyle.allwomenstalk.com/stellar-things-to-make-you-happy-in-life/)
+- [site:allwomenstalk.com](https://inspiration.allwomenstalk.com/plan-to-make-the-best-of/)
+- [hope when you feel hopeless](https://inspiration.allwomenstalk.com/ways-to-find-hope-when-you-feel-hopeless/)
+- [4 bad habits happy people avoid](https://inspiration.allwomenstalk.com/bad-habits-to-break/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [5 Things to Add to Your to-do List ...](https://allwomenstalk.com/5-things-to-add-to-your-to-do-list/)
 

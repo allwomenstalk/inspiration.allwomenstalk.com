@@ -58,16 +58,16 @@ While some may consider his business practices hard nosed, no one can deny that 
 
 ## Related Posts
 
-- [riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
-- [what others think of you quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
-- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
-- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
-- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
-- [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
 - [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
 - [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
+- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
+- [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [what others think of you quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
+- [riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
+- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [7 Motivational Quotes for Runners ...](https://allwomenstalk.com/7-motivational-quotes-for-runners/)
 - [7 Motivational Workout Quotes That Will Change You...](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
 

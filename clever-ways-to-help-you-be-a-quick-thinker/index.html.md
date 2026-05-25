@@ -132,16 +132,16 @@ Taking up a new skill or sport? A recent joint study from UC Santa Barbara, Univ
 
 ## Related Posts
 
-- [invest in yourself](https://inspiration.allwomenstalk.com/ways-to-invest-in-yourself/)
-- [dope beauty](https://lifestyle.allwomenstalk.com/ways-to-be-dope/)
-- [learn one thing a day](https://inspiration.allwomenstalk.com/fascinating-ways-to-learn-more-about-life-every-single-day/)
-- [coming back from rock bottom](https://inspiration.allwomenstalk.com/ways-to-climb-back-up-when-youve-hit-rock-bottom/)
 - [how to attract someone psychologically](https://inspiration.allwomenstalk.com/mind-blowing-psychological-tips-to-use-if-you-want-to-attract-all-types-of-people/)
-- [paris la maximalist eyeshadow avant azure](https://inspiration.allwomenstalk.com/how-to-find-the-hero-inside-yourself/)
-- [ways of self reflection](https://inspiration.allwomenstalk.com/important-tips-to-help-you-do-self-reflection-the-right-way/)
-- [better yourself](https://inspiration.allwomenstalk.com/tips-on-how-to-better-yourself/)
-- [smart ladki ka photo](https://inspiration.allwomenstalk.com/smart-girl-tips-to-always-livea-positive-life/)
+- [learn one thing a day](https://inspiration.allwomenstalk.com/fascinating-ways-to-learn-more-about-life-every-single-day/)
 - [being like no other](https://travel.allwomenstalk.com/ways-to-travel-differently-for-people-wanting-more-from-life/)
+- [dope beauty](https://lifestyle.allwomenstalk.com/ways-to-be-dope/)
+- [better yourself](https://inspiration.allwomenstalk.com/tips-on-how-to-better-yourself/)
+- [paris la maximalist eyeshadow avant azure](https://inspiration.allwomenstalk.com/how-to-find-the-hero-inside-yourself/)
+- [invest in yourself](https://inspiration.allwomenstalk.com/ways-to-invest-in-yourself/)
+- [ways of self reflection](https://inspiration.allwomenstalk.com/important-tips-to-help-you-do-self-reflection-the-right-way/)
+- [smart ladki ka photo](https://inspiration.allwomenstalk.com/smart-girl-tips-to-always-livea-positive-life/)
+- [coming back from rock bottom](https://inspiration.allwomenstalk.com/ways-to-climb-back-up-when-youve-hit-rock-bottom/)
 - [9 Tips on How to Become Smarter ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-smarter/)
 - [10 Great Ways to Avoid Procrastination ...](https://lifestyle.allwomenstalk.com/great-ways-to-avoid-procrastination/)
 

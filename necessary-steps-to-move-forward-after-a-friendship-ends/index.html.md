@@ -43,16 +43,16 @@ At the end of a friendship, you won't feel your best and you may find yourself f
 
 ## Related Posts
 
-- [Stop Crying 7 Things That Wont Help You Get over H...](https://love.allwomenstalk.com/stop-crying-things-that-wont-help-you-get-over-him/)
-- [Let It Go: 7 Steps to Forgiving Yourself ...](https://inspiration.allwomenstalk.com/let-it-go-steps-to-forgiving-yourself/)
-- [7 Questions to Ask Yourself before Breaking up ...](https://love.allwomenstalk.com/questions-to-ask-yourself-before-breaking-up/)
-- [What Should You do when You Fancy Your Friends Ex ...](https://love.allwomenstalk.com/tips-for-when-you-fancy-your-friends-ex/)
-- [7 Tips on Dating Again after Being Heartbroken ...](https://love.allwomenstalk.com/tips-on-dating-again-after-being-heartbroken/)
-- [7 Lessons about Love You Learn from a Break up ...](https://love.allwomenstalk.com/lessons-about-love-your-learn-from-a-break-up/)
-- [Have You Told Your Partner These Important Things ...](https://love.allwomenstalk.com/things-you-should-always-tell-your-partner-about-your-ex/)
 - [7 Lessons Learned from Ex-boyfriends ...](https://love.allwomenstalk.com/lessons-learned-from-ex-boyfriends/)
-- [7 Ways to Cope with a Crush when Youre Committed ....](https://love.allwomenstalk.com/ways-to-cope-with-a-crush-when-youre-committed/)
+- [7 Lessons about Love You Learn from a Break up ...](https://love.allwomenstalk.com/lessons-about-love-your-learn-from-a-break-up/)
+- [7 Questions to Ask Yourself before Breaking up ...](https://love.allwomenstalk.com/questions-to-ask-yourself-before-breaking-up/)
+- [Have You Told Your Partner These Important Things ...](https://love.allwomenstalk.com/things-you-should-always-tell-your-partner-about-your-ex/)
+- [Let It Go: 7 Steps to Forgiving Yourself ...](https://inspiration.allwomenstalk.com/let-it-go-steps-to-forgiving-yourself/)
 - [7 Healthy Ways to Get Back at an Ex ...](https://love.allwomenstalk.com/healthy-ways-to-get-back-at-an-ex/)
+- [7 Ways to Cope with a Crush when Youre Committed ....](https://love.allwomenstalk.com/ways-to-cope-with-a-crush-when-youre-committed/)
+- [7 Tips on Dating Again after Being Heartbroken ...](https://love.allwomenstalk.com/tips-on-dating-again-after-being-heartbroken/)
+- [Stop Crying 7 Things That Wont Help You Get over H...](https://love.allwomenstalk.com/stop-crying-things-that-wont-help-you-get-over-him/)
+- [What Should You do when You Fancy Your Friends Ex ...](https://love.allwomenstalk.com/tips-for-when-you-fancy-your-friends-ex/)
 - [7 Ways to Move past a Breakup ...](https://love.allwomenstalk.com/ways-to-move-past-a-breakup/)
 - [8 Steps to a Clean Break up ...](https://allwomenstalk.com/8-steps-to-a-clean-break-up/)
 

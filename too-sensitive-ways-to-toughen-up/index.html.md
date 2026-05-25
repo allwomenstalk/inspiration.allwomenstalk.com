@@ -44,16 +44,16 @@ Do you think you are mentally tough enough for today’s challenges?
 
 ## Related Posts
 
-- [how to handle flaky friends](https://lifestyle.allwomenstalk.com/how-should-you-deal-with-flaky-friends/)
-- [peace offering ideas](https://love.allwomenstalk.com/how-to-apologize-without-actually-saying-youre-sorry/)
-- [shutting people out](https://lifestyle.allwomenstalk.com/ways-youre-accidentally-shutting-others-out/)
-- [if you dont want to](https://love.allwomenstalk.com/things-to-say-when-you-dont-want-the-convo-to-end/)
-- [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
-- [friends sabotaging relationships](https://lifestyle.allwomenstalk.com/ways-youre-sabotaging-your-friendships/)
 - [genuinely sweet](https://love.allwomenstalk.com/genuinely-sweet-ways-to-apologize/)
-- [i get along with people](https://lifestyle.allwomenstalk.com/how-to-handle-someone-you-just-cant-get-along-with/)
-- [how to handle a coworker who doesnt like you](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-coworker-who-hates-you/)
 - [other ways of saying am fine](https://funny.allwomenstalk.com/alternatives-to-saying-im-fine-when-youre-upset/)
+- [if you dont want to](https://love.allwomenstalk.com/things-to-say-when-you-dont-want-the-convo-to-end/)
+- [friends sabotaging relationships](https://lifestyle.allwomenstalk.com/ways-youre-sabotaging-your-friendships/)
+- [how to handle flaky friends](https://lifestyle.allwomenstalk.com/how-should-you-deal-with-flaky-friends/)
+- [shutting people out](https://lifestyle.allwomenstalk.com/ways-youre-accidentally-shutting-others-out/)
+- [how to handle a coworker who doesnt like you](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-coworker-who-hates-you/)
+- [peace offering ideas](https://love.allwomenstalk.com/how-to-apologize-without-actually-saying-youre-sorry/)
+- [i get along with people](https://lifestyle.allwomenstalk.com/how-to-handle-someone-you-just-cant-get-along-with/)
+- [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
 - [7 Simple Things to Tell Yourself when the Going Ge...](https://inspiration.allwomenstalk.com/simple-things-to-tell-yourself-when-the-going-gets-tough/)
 - [7 Ways to Stop Insulting Yourself when Youre Upset...](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
 

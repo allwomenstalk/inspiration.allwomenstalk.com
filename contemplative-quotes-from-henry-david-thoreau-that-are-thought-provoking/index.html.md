@@ -59,15 +59,15 @@ Thoreau had many words of wisdom, all of which are thought provoking. His words 
 ## Related Posts
 
 - [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
-- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
-- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
-- [quotes about accomplishing goals](https://inspiration.allwomenstalk.com/quotes-to-help-you-accomplish-your-goals-and-dreams/)
 - [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
-- [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
-- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
-- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
-- [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
+- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
 - [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
+- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
+- [quotes about accomplishing goals](https://inspiration.allwomenstalk.com/quotes-to-help-you-accomplish-your-goals-and-dreams/)
+- [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
+- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
+- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
+- [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

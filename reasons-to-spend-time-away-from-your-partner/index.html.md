@@ -42,16 +42,16 @@ How did you handle spending time alone? Or are you afraid to take this step?
 
 ## Related Posts
 
-- [when he doesnt call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
-- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
 - [do guys prefer makeup or no makeup](https://love.allwomenstalk.com/reasons-not-to-worry-about-your-partner-seeing-you-without-makeup/)
-- [its ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
-- [the risk of love](https://love.allwomenstalk.com/reasons-relationships-are-worth-the-risk-of-getting-hurt/)
-- [i dont want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
-- [funny excuses for not going to work](https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/)
-- [be considerate quotes](https://inspiration.allwomenstalk.com/reasons-you-should-be-more-considerate-of-others/)
-- [indian single girl near me](https://love.allwomenstalk.com/perfect-responses-for-indian-girls-to-why-are-you-still-single/)
 - [why you shouldnt compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-not-to-compare-yourself-with-others/)
+- [indian single girl near me](https://love.allwomenstalk.com/perfect-responses-for-indian-girls-to-why-are-you-still-single/)
+- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
+- [when he doesnt call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
+- [be considerate quotes](https://inspiration.allwomenstalk.com/reasons-you-should-be-more-considerate-of-others/)
+- [its ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
+- [i dont want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
+- [the risk of love](https://love.allwomenstalk.com/reasons-relationships-are-worth-the-risk-of-getting-hurt/)
+- [funny excuses for not going to work](https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/)
 - [7 Reasons to Love Single Life ...](https://lifestyle.allwomenstalk.com/reasons-to-love-single-life/)
 - [7 Reasons to Not Be Married ...](https://allwomenstalk.com/7-reasons-to-not-be-married/)
 

@@ -42,16 +42,16 @@ These are 7 things to love about being an Aquarius. Are some of them true for yo
 
 ## Related Posts
 
+- [sagittarius personality](https://inspiration.allwomenstalk.com/challenging-sagittarius-traits-and-how-to-overcome-them/)
 - [things pisces like](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-pisces/)
+- [what do scorpios like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-scorpio/)
 - [virgo moody](https://inspiration.allwomenstalk.com/challenging-virgo-traits-and-how-to-overcome-them/)
 - [are aquarius indecisive](https://inspiration.allwomenstalk.com/challenging-libra-traits-and-how-to-overcome-them/)
 - [what do capricorns like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-capricorn/)
-- [the best horoscope site](https://lifestyle.allwomenstalk.com/best-websites-for-checking-your-horoscope/)
-- [sagittarius personality](https://inspiration.allwomenstalk.com/challenging-sagittarius-traits-and-how-to-overcome-them/)
-- [scorpio woman jealous of friends](https://inspiration.allwomenstalk.com/challenging-scorpio-traits-and-how-to-overcome-them/)
-- [questions to ask a gemini](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-gemini/)
-- [what do scorpios like to do for fun](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-scorpio/)
 - [are leos faithful in relationships](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-leo/)
+- [questions to ask a gemini](https://inspiration.allwomenstalk.com/things-to-love-about-being-a-gemini/)
+- [the best horoscope site](https://lifestyle.allwomenstalk.com/best-websites-for-checking-your-horoscope/)
+- [scorpio woman jealous of friends](https://inspiration.allwomenstalk.com/challenging-scorpio-traits-and-how-to-overcome-them/)
 - [8 Reasons I Love Animals ...](https://allwomenstalk.com/8-reasons-i-love-animals/)
 - [7 Best Characteristics of Pisces ...](https://lifestyle.allwomenstalk.com/best-characteristics-of-pisces/)
 

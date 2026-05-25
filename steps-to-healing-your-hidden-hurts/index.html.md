@@ -56,16 +56,16 @@ These are some steps to help you heal from hidden hurts. I truly hope they offer
 
 ## Related Posts
 
-- [girls should be](https://lifestyle.allwomenstalk.com/things-a-girl-should-carry-with-her-at-all-times/)
-- [7 Things You Shouldnt Be Ashamed of as a Woman ...](https://inspiration.allwomenstalk.com/things-you-shouldnt-be-ashamed-of-as-a-woman/)
-- [life lessons song](https://music.allwomenstalk.com/lessons-for-women-from-colbie-caillats-try/)
-- [being the only girl with brothers quotes](https://lifestyle.allwomenstalk.com/things-you-can-get-away-with-as-the-only-girl/)
-- [things people love about fall](https://lifestyle.allwomenstalk.com/things-us-girls-love-about-autumn/)
-- [raising girls](https://parenting.allwomenstalk.com/things-you-need-to-know-about-raising-girls/)
-- [how to be an attitude girl](https://inspiration.allwomenstalk.com/empowering-attitudes-every-girl-should-have/)
 - [skin problems and emotions](https://money.allwomenstalk.com/ways-to-control-your-emotions-when-dealing-with-money-problems/)
-- [its hard to be a woman](https://funny.allwomenstalk.com/relatable-jokes-about-how-difficult-it-is-to-be-a-woman/)
+- [raising girls](https://parenting.allwomenstalk.com/things-you-need-to-know-about-raising-girls/)
 - [but for girls](https://funny.allwomenstalk.com/sensational-research-all-girls-with-big-derriers-must-read-now/)
+- [how to be an attitude girl](https://inspiration.allwomenstalk.com/empowering-attitudes-every-girl-should-have/)
+- [its hard to be a woman](https://funny.allwomenstalk.com/relatable-jokes-about-how-difficult-it-is-to-be-a-woman/)
+- [life lessons song](https://music.allwomenstalk.com/lessons-for-women-from-colbie-caillats-try/)
+- [girls should be](https://lifestyle.allwomenstalk.com/things-a-girl-should-carry-with-her-at-all-times/)
+- [being the only girl with brothers quotes](https://lifestyle.allwomenstalk.com/things-you-can-get-away-with-as-the-only-girl/)
+- [7 Things You Shouldnt Be Ashamed of as a Woman ...](https://inspiration.allwomenstalk.com/things-you-shouldnt-be-ashamed-of-as-a-woman/)
+- [things people love about fall](https://lifestyle.allwomenstalk.com/things-us-girls-love-about-autumn/)
 - [Empowering Steps for Girls Who Want to Be More Min...](https://inspiration.allwomenstalk.com/steps-to-mindfulness-that-will-make-you-feel-amazing/)
 - [Life-Changing Tips for Girls Fighting for Their In...](https://lifestyle.allwomenstalk.com/little-ways-to-feel-more-independent-right-now/)
 

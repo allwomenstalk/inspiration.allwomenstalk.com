@@ -44,16 +44,16 @@ What are other ways to be in total control of your mind?
 
 ## Related Posts
 
-- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
-- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
-- [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
-- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
-- [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
-- [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
-- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
 - [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
+- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
+- [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
 - [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
 - [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
+- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
+- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
+- [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
+- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
+- [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
 - [Finding Peace of Mind ...](https://allwomenstalk.com/finding-peace-of-mind-in-2021/)
 - [15 Ways to Declutter Your Mind ...](https://allwomenstalk.com/15-ways-to-declutter-your-mind/)
 

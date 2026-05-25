@@ -42,16 +42,16 @@ The key to making boring tasks fun is a subtle balance between achievement and d
 
 ## Related Posts
 
-- [activities that dont involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
-- [soxy scrabble](https://funny.allwomenstalk.com/funny-creative-games-to-play-with-your-boyfriend/)
-- [fruit tips](https://food.allwomenstalk.com/fabulous-things-to-do-with-fruit/)
+- [host a game night](https://lifestyle.allwomenstalk.com/reasons-to-host-a-game-night-with-your-friends/)
 - [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
+- [fruit tips](https://food.allwomenstalk.com/fabulous-things-to-do-with-fruit/)
+- [activities that dont involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
 - [world teachers day gifts](https://inspiration.allwomenstalk.com/different-ways-to-celebrate-world-teachers-day/)
 - [ideas for festival activities](https://diy.allwomenstalk.com/diy-carnival-games-for-a-rockin-party/)
 - [fun activities for singles](https://lifestyle.allwomenstalk.com/exciting-things-to-try-while-youre-still-single/)
-- [host a game night](https://lifestyle.allwomenstalk.com/reasons-to-host-a-game-night-with-your-friends/)
 - [connect with nature activities](https://fitness.allwomenstalk.com/activities-that-help-you-become-more-connected-to-nature/)
 - [budget party](https://money.allwomenstalk.com/ways-to-host-a-low-budget-party-with-friends/)
+- [soxy scrabble](https://funny.allwomenstalk.com/funny-creative-games-to-play-with-your-boyfriend/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 - [7 Ways to Show Your Creativity ...](https://allwomenstalk.com/7-ways-to-show-your-creativity/)
 

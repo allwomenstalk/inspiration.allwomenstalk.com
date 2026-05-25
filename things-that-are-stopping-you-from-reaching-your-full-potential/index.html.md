@@ -42,16 +42,16 @@ You’re in complete control of your life, which means you get to choose what pa
 
 ## Related Posts
 
-- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
-- [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
-- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
 - [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
-- [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
-- [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
 - [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
-- [similarities and differences between generations](https://inspiration.allwomenstalk.com/differences-between-generations-that-we-cant-seem-to-accept/)
 - [not a teen anymore](https://teen.allwomenstalk.com/things-not-to-stress-about-anymore/)
+- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
+- [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
+- [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
+- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
+- [similarities and differences between generations](https://inspiration.allwomenstalk.com/differences-between-generations-that-we-cant-seem-to-accept/)
 - [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
 - [10 Things You Need to Stop Doing in Your Everyday ...](https://allwomenstalk.com/10-things-you-need-to-stop-doing-in-your-everyday-life/)
 - [8 Things That Could Be Holding You Back ...](https://allwomenstalk.com/8-things-that-could-be-holding-you-back/)
 

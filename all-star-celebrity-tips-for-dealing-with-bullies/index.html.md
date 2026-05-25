@@ -46,15 +46,15 @@ Do you have any amazing strategies for dealing with bullies? Have you ever heard
 
 ## Related Posts
 
-- [how to stop gossip about you](https://lifestyle.allwomenstalk.com/when-people-gossip-about-you-do-these-things/)
-- [how to handle having less money than your friends](https://money.allwomenstalk.com/how-to-handle-being-the-poor-one-in-your-friend-group/)
-- [how can i get rid of jealousy](https://love.allwomenstalk.com/these-tricks-will-get-rid-of-your-jealousy/)
-- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
 - [what if partner doesnt like engagement ring](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
-- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
-- [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
 - [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
+- [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
+- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
+- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
 - [ignore negative people](https://inspiration.allwomenstalk.com/tips-for-ignoring-the-negative-people-in-your-life/)
+- [how can i get rid of jealousy](https://love.allwomenstalk.com/these-tricks-will-get-rid-of-your-jealousy/)
+- [how to handle having less money than your friends](https://money.allwomenstalk.com/how-to-handle-being-the-poor-one-in-your-friend-group/)
+- [how to stop gossip about you](https://lifestyle.allwomenstalk.com/when-people-gossip-about-you-do-these-things/)
 - [cattiness at work](https://lifestyle.allwomenstalk.com/meow-hiss-how-to-deal-with-catty-women-at-work/)
 - [8 Ways to Help Your Child Deal with Bullies ...](https://parenting.allwomenstalk.com/ways-to-help-your-child-deal-with-bullies/)
 - [8 Ways of Dealing with Stress at School ...](https://lifestyle.allwomenstalk.com/ways-of-dealing-with-stress-at-school/)

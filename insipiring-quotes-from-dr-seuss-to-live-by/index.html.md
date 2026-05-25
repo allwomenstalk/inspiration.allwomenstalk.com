@@ -42,16 +42,16 @@ Looking for some inspiring words to live by? Which of these Dr. Seuss quotes do 
 
 ## Related Posts
 
-- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
-- [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
+- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
 - [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
 - [ones dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
-- [quotes himym](https://inspiration.allwomenstalk.com/inspirational-quotes-from-how-i-met-your-mother/)
-- [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
-- [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
-- [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
 - [inspirational quotes for a tough day](https://inspiration.allwomenstalk.com/inspirational-quotes-to-get-you-through-a-tough-day/)
-- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
+- [quotes himym](https://inspiration.allwomenstalk.com/inspirational-quotes-from-how-i-met-your-mother/)
+- [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
+- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
+- [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
+- [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
+- [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
 - [7 Daily Inspirations ...](https://allwomenstalk.com/7-daily-inspirations/)
 - [7 Celebrity Quotes We Should Actually Live by ...](https://celebs.allwomenstalk.com/celebrity-quotes-we-should-actually-live-by/)
 

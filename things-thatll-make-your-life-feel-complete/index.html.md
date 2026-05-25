@@ -56,16 +56,16 @@ Once you discover all of these different things, you should be able to say that 
 
 ## Related Posts
 
+- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
 - [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
-- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
 - [how to get smarter overnight](https://inspiration.allwomenstalk.com/the-habits-science-says-will-make-you-smarter/)
-- [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
-- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
-- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
 - [riche le stylo eye primped and previous](https://lifestyle.allwomenstalk.com/do-these-things-tonight-for-a-better-tomorrow/)
 - [embracing my own self worth](https://inspiration.allwomenstalk.com/how-to-realize-and-embrace-your-self-worth/)
-- [moderate things](https://health.allwomenstalk.com/moderate-these-things-to-live-a-healthy-life/)
+- [inspire the uninspired](https://inspiration.allwomenstalk.com/feeling-uninspired-find-inspiration-in-these-things/)
+- [boring life](https://lifestyle.allwomenstalk.com/tips-to-stop-living-a-boring-life/)
+- [beginner chakra](https://health.allwomenstalk.com/the-beginners-guide-to-the-chakras/)
 - [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
+- [how to live a happy life alone](https://inspiration.allwomenstalk.com/how-to-be-happy-being-alone/)
 - [About Life ...](https://allwomenstalk.com/about-life/)
 - [40 Tips for a Happy Life ...](https://allwomenstalk.com/40-tips-for-a-happy-life/)
 

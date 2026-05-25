@@ -42,16 +42,16 @@ Sometimes being dishonest with people is the right way to go, especially when yo
 
 ## Related Posts
 
-- [redhead hair scrunchies](https://hair.allwomenstalk.com/reasons-to-ignore-teasing-about-being-a-redhead/)
 - [is a- bad](https://teen.allwomenstalk.com/reasons-not-to-freak-out-if-you-get-a-bad-grade/)
-- [ditch the gym](https://fitness.allwomenstalk.com/reasons-to-ditch-the-gym/)
-- [is silence attractive](https://love.allwomenstalk.com/reasons-to-date-a-quiet-guy/)
 - [cant wait to love you](https://love.allwomenstalk.com/reasons-why-you-shouldnt-wait-to-say-i-love-you/)
-- [is it important to be friends before lovers](https://love.allwomenstalk.com/reasons-to-be-friends-before-lovers/)
-- [do you think rooming with old friends is a good id...](https://money.allwomenstalk.com/reasons-not-to-room-with-your-best-friend/)
+- [ditch the gym](https://fitness.allwomenstalk.com/reasons-to-ditch-the-gym/)
+- [signs a friend is pushing you away](https://love.allwomenstalk.com/reasons-to-quit-pushing-your-single-friends-to-date/)
 - [why is he rude to me for no reason](https://teen.allwomenstalk.com/reasons-why-a-girl-is-mean-to-you/)
 - [i am popular](https://teen.allwomenstalk.com/reasons-not-to-worry-if-youre-not-popular-at-high-school/)
-- [signs a friend is pushing you away](https://love.allwomenstalk.com/reasons-to-quit-pushing-your-single-friends-to-date/)
+- [redhead hair scrunchies](https://hair.allwomenstalk.com/reasons-to-ignore-teasing-about-being-a-redhead/)
+- [do you think rooming with old friends is a good id...](https://money.allwomenstalk.com/reasons-not-to-room-with-your-best-friend/)
+- [is it important to be friends before lovers](https://love.allwomenstalk.com/reasons-to-be-friends-before-lovers/)
+- [is silence attractive](https://love.allwomenstalk.com/reasons-to-date-a-quiet-guy/)
 - [8 Reasons to Be Nice to Your Neighbours ...](https://allwomenstalk.com/8-reasons-to-be-nice-to-your-neighbours/)
 - [7 Amazing Advantages of Having Friends ...](https://lifestyle.allwomenstalk.com/amazing-advantages-of-having-friends/)
 

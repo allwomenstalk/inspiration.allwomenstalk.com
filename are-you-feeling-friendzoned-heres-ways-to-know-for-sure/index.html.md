@@ -50,16 +50,16 @@ A lot of people start out as friends and then along the way realize they’re pe
 
 ## Related Posts
 
-- [decoding men](https://love.allwomenstalk.com/decoding-your-man-how-to-figure-out-what-he-wants-from-you/)
-- [Here Are the 7 Things You Should Be Happy to do fo...](https://love.allwomenstalk.com/here-are-the-things-you-should-be-happy-to-do-for-your-bf/)
 - [how to find dates online](https://love.allwomenstalk.com/how-to-find-a-great-date-online/)
+- [Is He Good Enough for You Date Etiquette a Real Ge...](https://love.allwomenstalk.com/is-he-good-enough-for-you-date-etiquette-a-real-gentleman-should-always-follow/)
+- [Body Language Thatll Make Him Assume You Dont like...](https://love.allwomenstalk.com/body-language-thatll-make-him-assume-you-dont-like-him/)
+- [laser tag hacks](https://love.allwomenstalk.com/rules-of-attraction-what-to-know-to-land-your-crush/)
+- [Here Are the 7 Things You Should Be Happy to do fo...](https://love.allwomenstalk.com/here-are-the-things-you-should-be-happy-to-do-for-your-bf/)
+- [decoding men](https://love.allwomenstalk.com/decoding-your-man-how-to-figure-out-what-he-wants-from-you/)
 - [Make Your Mates Morning Easier with These Sweet Ti...](https://love.allwomenstalk.com/make-your-mates-morning-easier-with-these-sweet-tips/)
 - [Strut Your Stuff - 7 Ways to Get Your Boyfriends A...](https://love.allwomenstalk.com/strut-your-stuff-ways-to-get-your-boyfriends-attention/)
-- [Is He Good Enough for You Date Etiquette a Real Ge...](https://love.allwomenstalk.com/is-he-good-enough-for-you-date-etiquette-a-real-gentleman-should-always-follow/)
-- [Tell What Hes Thinking Just by Looking at His Pupi...](https://love.allwomenstalk.com/tell-what-hes-thinking-just-by-looking-at-his-pupils/)
 - [7 Silly Ways to Let Him down Easy ...](https://funny.allwomenstalk.com/silly-ways-to-let-him-down-easy/)
-- [laser tag hacks](https://love.allwomenstalk.com/rules-of-attraction-what-to-know-to-land-your-crush/)
-- [Body Language Thatll Make Him Assume You Dont like...](https://love.allwomenstalk.com/body-language-thatll-make-him-assume-you-dont-like-him/)
+- [Tell What Hes Thinking Just by Looking at His Pupi...](https://love.allwomenstalk.com/tell-what-hes-thinking-just-by-looking-at-his-pupils/)
 - [9 Easy Ways to Ask a Guy out ...](https://love.allwomenstalk.com/easy-ways-to-ask-a-guy-out/)
 - [15 Ways to Be Completely Sure a Guy is into You .....](https://allwomenstalk.com/12-ways-to-be-completely-sure-a-guy-likes-you/)
 

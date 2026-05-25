@@ -56,15 +56,15 @@ I'm sure you hear the word love thrown around constantly. We love our coffee, we
 
 ## Related Posts
 
-- [a friend for lifetime](https://lifestyle.allwomenstalk.com/ways-to-improve-your-friendships-so-that-they-last-a-lifetime/)
-- [up friends](https://love.allwomenstalk.com/ways-to-set-up-your-friends/)
 - [serious things to talk about](https://love.allwomenstalk.com/things-to-talk-about-in-a-serious-relationship/)
 - [how to become a better listener in a relationship](https://inspiration.allwomenstalk.com/effective-ways-to-become-a-better-listener-and-enhance-your-relationships/)
-- [learn to love yourself before you love others](https://love.allwomenstalk.com/ways-to-love-yourself-before-you-can-love-someone-else/)
-- [long distance feeling disconnected](https://love.allwomenstalk.com/ways-to-keep-your-long-distance-relationship-strong/)
-- [a new relationship](https://love.allwomenstalk.com/best-things-about-a-new-relationship-that-we-adore/)
-- [best ways to connect with your partner](https://travel.allwomenstalk.com/ways-to-connect-with-your-partner-on-family-vacations/)
 - [myths of marriage](https://wedding.allwomenstalk.com/popular-myths-about-marriage-that-arent-true/)
+- [learn to love yourself before you love others](https://love.allwomenstalk.com/ways-to-love-yourself-before-you-can-love-someone-else/)
+- [best ways to connect with your partner](https://travel.allwomenstalk.com/ways-to-connect-with-your-partner-on-family-vacations/)
+- [up friends](https://love.allwomenstalk.com/ways-to-set-up-your-friends/)
+- [a new relationship](https://love.allwomenstalk.com/best-things-about-a-new-relationship-that-we-adore/)
+- [a friend for lifetime](https://lifestyle.allwomenstalk.com/ways-to-improve-your-friendships-so-that-they-last-a-lifetime/)
+- [long distance feeling disconnected](https://love.allwomenstalk.com/ways-to-keep-your-long-distance-relationship-strong/)
 - [has beyonce dated anyone else](https://celebs.allwomenstalk.com/love-lessons-we-can-all-learn-from-beyonce-and-jay-z/)
 - [7 Ways to Be a Good Girlfriend ...](https://love.allwomenstalk.com/ways-to-be-a-good-girlfriend/)
 - [7 Tips on How to Be a Better Girlfriend ...](https://love.allwomenstalk.com/tips-on-how-to-be-a-better-girlfriend/)

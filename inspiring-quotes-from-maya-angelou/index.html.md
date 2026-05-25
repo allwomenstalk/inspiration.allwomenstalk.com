@@ -40,16 +40,16 @@ It is up to you to take care of all areas of your life.
 
 ## Related Posts
 
-- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
 - [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
-- [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
-- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
-- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
-- [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
-- [kaiser quotes](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
-- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
 - [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
 - [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
+- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
+- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
+- [kaiser quotes](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
+- [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
+- [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
+- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
+- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
 - [9 Interesting Quotes from Celebrities Who Support ...](https://celebs.allwomenstalk.com/quotes-from-celebrities-who-support-feminism/)
 - [7 Amazing and Inspirational Women That Every Girl ...](https://inspiration.allwomenstalk.com/amazing-and-inspirational-women-that-every-girl-can-look-up-to-in-todays-society/)
 

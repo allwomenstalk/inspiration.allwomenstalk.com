@@ -42,16 +42,16 @@ Have you ever left a 9-5 job for your dream job? I want to hear about it. Tell m
 
 ## Related Posts
 
-- [how to react to being fired](https://money.allwomenstalk.com/professional-ways-to-handle-being-fired-and-take-it-in-your-stride/)
-- [what is my career calling](https://lifestyle.allwomenstalk.com/tips-for-finding-your-career-calling-in-life/)
-- [things to consider before accepting job offer](https://money.allwomenstalk.com/very-important-things-to-consider-before-accepting-a-job-offer/)
 - [what is fearless entrepreneur](https://inspiration.allwomenstalk.com/qualities-you-need-to-be-a-fearless-entrepreneur/)
-- [jobs you can do at home](https://lifestyle.allwomenstalk.com/work-from-home-jobs-you-can-do/)
-- [productive things to do when unemployed](https://lifestyle.allwomenstalk.com/ways-to-pass-the-time-while-youre-unemployed-that-might-just-help-you-find-a-job-too/)
-- [starting a new job important tips i wish i knew](https://lifestyle.allwomenstalk.com/tips-when-you-start-a-new-job/)
 - [7 Most Common Lies Job Interviewers Tell You ...](https://lifestyle.allwomenstalk.com/most-common-lies-job-interviewers-tell-you/)
 - [how to become a team player at work](https://lifestyle.allwomenstalk.com/ways-to-be-a-team-player-at-work/)
+- [things to consider before accepting job offer](https://money.allwomenstalk.com/very-important-things-to-consider-before-accepting-a-job-offer/)
 - [embark my career](https://lifestyle.allwomenstalk.com/vital-things-to-consider-before-embarking-on-an-exciting-career-change/)
+- [jobs you can do at home](https://lifestyle.allwomenstalk.com/work-from-home-jobs-you-can-do/)
+- [how to react to being fired](https://money.allwomenstalk.com/professional-ways-to-handle-being-fired-and-take-it-in-your-stride/)
+- [starting a new job important tips i wish i knew](https://lifestyle.allwomenstalk.com/tips-when-you-start-a-new-job/)
+- [what is my career calling](https://lifestyle.allwomenstalk.com/tips-for-finding-your-career-calling-in-life/)
+- [productive things to do when unemployed](https://lifestyle.allwomenstalk.com/ways-to-pass-the-time-while-youre-unemployed-that-might-just-help-you-find-a-job-too/)
 - [9 Tips on How to Find a Job Youll like ...](https://money.allwomenstalk.com/tips-on-how-to-find-a-job-youll-like/)
 - [Steps into Your Dream Job ...](https://allwomenstalk.com/steps-into-your-dream-job/)
 

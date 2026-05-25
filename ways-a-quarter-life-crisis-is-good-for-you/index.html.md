@@ -44,16 +44,16 @@ We stick to comfort and we avoid pain. But most of us know that sometimes, you j
 
 ## Related Posts
 
-- [Theres No Shame in Making Mental Health  a Priorit...](https://health.allwomenstalk.com/theres-no-shame-in-taking-care-of-your-mental-health/)
-- [5 Podcasts about Mental Health You Need to Listen ...](https://health.allwomenstalk.com/podcasts-about-mental-health/)
-- [Inspirational Things You Learn  as You Grow up ...](https://inspiration.allwomenstalk.com/things-you-learn-as-you-grow/)
+- [adulthood things](https://inspiration.allwomenstalk.com/things-you-should-know-about-adulthood/)
+- [Unique Genetic Traits That We Inherit ...](https://health.allwomenstalk.com/unique-genetic-traits-that-we-inherit/)
 - [5 Lessons to Learn about Life when Youre in Your 2...](https://inspiration.allwomenstalk.com/lessons-to-learn-about-life-when-youre-in-your-20s/)
+- [5 Podcasts about Mental Health You Need to Listen ...](https://health.allwomenstalk.com/podcasts-about-mental-health/)
+- [Words Everyone Needs to Hear ...](https://inspiration.allwomenstalk.com/words-everyone-needs-to-hear-2/)
+- [Theres No Shame in Making Mental Health  a Priorit...](https://health.allwomenstalk.com/theres-no-shame-in-taking-care-of-your-mental-health/)
+- [Life is a Gift ...](https://inspiration.allwomenstalk.com/life-is-a-gift/)
+- [Inspirational Things You Learn  as You Grow up ...](https://inspiration.allwomenstalk.com/things-you-learn-as-you-grow/)
 - [5 Adulthood Lessons Youll Only Learn  after Gradua...](https://inspiration.allwomenstalk.com/adulthood-lessons-youll-only-learn-after-graduation/)
 - [5 Magical Lessons to Learn  from Dad  ...](https://inspiration.allwomenstalk.com/magical-lessons-to-learn-from-dad/)
-- [Unique Genetic Traits That We Inherit ...](https://health.allwomenstalk.com/unique-genetic-traits-that-we-inherit/)
-- [Words Everyone Needs to Hear ...](https://inspiration.allwomenstalk.com/words-everyone-needs-to-hear-2/)
-- [adulthood things](https://inspiration.allwomenstalk.com/things-you-should-know-about-adulthood/)
-- [Life is a Gift ...](https://inspiration.allwomenstalk.com/life-is-a-gift/)
 - [7 Reasons Why It Feels Good to Be a Grownup ...](https://allwomenstalk.com/7-reasons-why-it-feels-good-to-be-a-grownup/)
 - [8 Reasons Grief is Good ...](https://allwomenstalk.com/reasons-grief-is-good/)
 

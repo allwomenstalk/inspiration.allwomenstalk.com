@@ -42,15 +42,15 @@ We've probably all experienced that one friend who just had to stomp all over ou
 
 ## Related Posts
 
-- [how to be friends with your boss](https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/)
-- [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
 - [how to deal with awkward situations](https://inspiration.allwomenstalk.com/classy-ways-to-handle-awkward-situations-like-a-lady/)
-- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
+- [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
+- [what to do with someone who complains all the time](https://lifestyle.allwomenstalk.com/ways-to-deal-with-someone-whos-always-complaining/)
+- [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
 - [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
 - [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
-- [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
-- [what to do with someone who complains all the time](https://lifestyle.allwomenstalk.com/ways-to-deal-with-someone-whos-always-complaining/)
 - [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
+- [how to be friends with your boss](https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/)
+- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
 - [dont embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
 - [10 Ways to Get Noticed by Your Crush ...](https://allwomenstalk.com/10-ways-to-get-noticed-by-your-crush/)
 - [7 Effective Ways to Deal with a Jealous Friend ...](https://lifestyle.allwomenstalk.com/effective-ways-to-deal-with-a-jealous-friend/)

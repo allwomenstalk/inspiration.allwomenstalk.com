@@ -42,16 +42,16 @@ There are many things that are easy to take for granted. Sitting down every so o
 
 ## Related Posts
 
+- [elementary lessons](https://inspiration.allwomenstalk.com/life-lessons-that-you-learned-in-elementary-school/)
+- [glennon doyle ted talk](https://health.allwomenstalk.com/ted-talks-about-mental-health-that-will-change-your-perspective/)
+- [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
+- [life skills that can help you save money](https://lifestyle.allwomenstalk.com/valuable-skills-that-could-save-your-life-in-an-emergency/)
+- [important values to have](https://inspiration.allwomenstalk.com/important-values-to-live-by/)
 - [impossible vs improbable](https://inspiration.allwomenstalk.com/reasons-why-anything-is-possible-the-difference-between-improbable-and-impossible/)
 - [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
 - [things parents teach you](https://parenting.allwomenstalk.com/things-your-parents-cant-teach-you-about-life/)
-- [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
-- [important values to have](https://inspiration.allwomenstalk.com/important-values-to-live-by/)
 - [why i talk less](https://inspiration.allwomenstalk.com/interesting-benefits-of-speaking-less-and-listening-more/)
 - [you have enough](https://lifestyle.allwomenstalk.com/things-we-never-seem-to-have-enough-of/)
-- [glennon doyle ted talk](https://health.allwomenstalk.com/ted-talks-about-mental-health-that-will-change-your-perspective/)
-- [elementary lessons](https://inspiration.allwomenstalk.com/life-lessons-that-you-learned-in-elementary-school/)
-- [life skills that can help you save money](https://lifestyle.allwomenstalk.com/valuable-skills-that-could-save-your-life-in-an-emergency/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [7 Things to Be Serious about ...](https://7fun.net/7-things-to-be-serious-about/)
 

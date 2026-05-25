@@ -42,16 +42,16 @@ I love finding or receiving new pieces of advice to remember when I’m a little
 
 ## Related Posts
 
-- [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
-- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
-- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
 - [skills to learn before 20](https://inspiration.allwomenstalk.com/lifesaving-skills-to-learn-before-you-reach-20/)
-- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
-- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
+- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
+- [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
 - [why am i scared of hard work](https://lifestyle.allwomenstalk.com/characteristics-of-successful-people/)
 - [robin barney](https://lifestyle.allwomenstalk.com/lessons-to-learn-from-barney-and-robin/)
-- [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
+- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
+- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
 - [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
+- [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
+- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
 - [7 Awesome Practical Tips for Everyday Life ...](https://lifestyle.allwomenstalk.com/awesome-practical-tips-for-everyday-life/)
 - [7 Simple Secrets of Success ...](https://lifestyle.allwomenstalk.com/simple-secrets-of-success/)
 

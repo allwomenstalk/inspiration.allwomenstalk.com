@@ -42,16 +42,16 @@ You have to keep fighting for yourself especially at times when the people you c
 
 ## Related Posts
 
+- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
 - [kaiser quotes](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 - [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
-- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
-- [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
 - [8 Poems I Love ...](https://allwomenstalk.com/8-poems-i-love/)
-- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
-- [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
-- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
-- [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 - [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
+- [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
+- [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
+- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
+- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
+- [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
 - [30 Motivational Quotes for when Youre Feeling down...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

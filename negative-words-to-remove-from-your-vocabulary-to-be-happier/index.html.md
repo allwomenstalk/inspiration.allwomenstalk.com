@@ -42,16 +42,16 @@ The way that you speak aloud and speak to yourself in your mind can severely inf
 
 ## Related Posts
 
-- [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
-- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
-- [oxford dictionary word of the year 2014](https://lifestyle.allwomenstalk.com/oxford-dictionaries-has-spoken-2014s-word-of-the-year-is/)
-- [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
-- [slang of the 60s](https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/)
 - [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
+- [oxford dictionary word of the year 2014](https://lifestyle.allwomenstalk.com/oxford-dictionaries-has-spoken-2014s-word-of-the-year-is/)
+- [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
 - [how do you answer whats up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
-- [tsunaina plastic surgery](https://lifestyle.allwomenstalk.com/phrases-you-can-use-to-earn-trust/)
+- [slang of the 60s](https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/)
+- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
+- [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [tsunaina plastic surgery](https://lifestyle.allwomenstalk.com/phrases-you-can-use-to-earn-trust/)
 - [7 Negative Thoughts about Yourself That You Should...](https://inspiration.allwomenstalk.com/negative-thoughts-about-yourself-that-you-should-avoid/)
 - [7 Negative Thoughts That Can Hamper Your Happiness...](https://inspiration.allwomenstalk.com/negative-thoughts-that-can-hamper-your-happiness/)
 

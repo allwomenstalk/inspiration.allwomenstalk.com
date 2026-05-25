@@ -42,16 +42,16 @@ Michael J. Fox is not only a phenomenal actor, but a wise man as well. His quote
 
 ## Related Posts
 
-- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
-- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
-- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
-- [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
-- [quote about mermaids](https://inspiration.allwomenstalk.com/intense-and-beautiful-quotes-inspired-by-mermaids/)
-- [inspirational quotes for a tough day](https://inspiration.allwomenstalk.com/inspirational-quotes-to-get-you-through-a-tough-day/)
 - [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
+- [quote about mermaids](https://inspiration.allwomenstalk.com/intense-and-beautiful-quotes-inspired-by-mermaids/)
+- [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
 - [quotes himym](https://inspiration.allwomenstalk.com/inspirational-quotes-from-how-i-met-your-mother/)
+- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
 - [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
+- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
 - [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
+- [inspirational quotes for a tough day](https://inspiration.allwomenstalk.com/inspirational-quotes-to-get-you-through-a-tough-day/)
+- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

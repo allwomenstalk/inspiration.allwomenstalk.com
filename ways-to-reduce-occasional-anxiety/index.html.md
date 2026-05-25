@@ -54,16 +54,16 @@ There you have it! A little creativity is not hard. The above choices are basica
 
 ## Related Posts
 
-- [The Difference between Stress and Anxiety ...](https://health.allwomenstalk.com/the-difference-between-stress-and-anxiety/)
-- [Perfect Ways to Be Stress Free ...](https://mindfulness.allwomenstalk.com/how-to-be-stress-free/)
-- [When Being Emotionally Exhausted is a Good Feeling...](https://lifestyle.allwomenstalk.com/when-being-emotionally-exhausted-is-a-good-feeling/)
-- [4 Healthy Ways to Deal with a Bad Day ...](https://health.allwomenstalk.com/healthy-ways-to-deal-with-a-bad-day/)
-- [Top 5  Self Care Plans to Cope with Mental Illness...](https://health.allwomenstalk.com/self-care-plan-to-cope-with-mental-illness/)
 - [10 Easy Ways to Instantly  Boost Your Mood ...](https://inspiration.allwomenstalk.com/easy-ways-to-get-an-instant-mood-boost/)
-- [4 Great Ways to Handle a Panic Attack ...](https://health.allwomenstalk.com/ways-to-handle-a-panic-attack/)
-- [5 Easy Tips to Start a Self-Care Routine ...](https://inspiration.allwomenstalk.com/easy-tips-to-start-a-self-care-routine/)
+- [Top 5  Self Care Plans to Cope with Mental Illness...](https://health.allwomenstalk.com/self-care-plan-to-cope-with-mental-illness/)
 - [5 Tried-and-True Tips for Dealing with Test Anxiet...](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-test-anxiety/)
+- [5 Easy Tips to Start a Self-Care Routine ...](https://inspiration.allwomenstalk.com/easy-tips-to-start-a-self-care-routine/)
 - [Brilliant Ways on How to Get Back  in the Zone ...](https://fitness.allwomenstalk.com/how-to-get-back-into-the-zone/)
+- [When Being Emotionally Exhausted is a Good Feeling...](https://lifestyle.allwomenstalk.com/when-being-emotionally-exhausted-is-a-good-feeling/)
+- [The Difference between Stress and Anxiety ...](https://health.allwomenstalk.com/the-difference-between-stress-and-anxiety/)
+- [4 Great Ways to Handle a Panic Attack ...](https://health.allwomenstalk.com/ways-to-handle-a-panic-attack/)
+- [Perfect Ways to Be Stress Free ...](https://mindfulness.allwomenstalk.com/how-to-be-stress-free/)
+- [4 Healthy Ways to Deal with a Bad Day ...](https://health.allwomenstalk.com/healthy-ways-to-deal-with-a-bad-day/)
 - [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
 - [Easy Stress-Busting Tips to Set You Free ...](https://allwomenstalk.com/easy-stress-busting-tips-to-set-you-free/)
 

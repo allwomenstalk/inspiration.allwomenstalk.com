@@ -42,16 +42,16 @@ These are 7 traits to love about yourself as a Capricorn. Do you see any of thes
 
 ## Related Posts
 
+- [are leo men sensitive](https://inspiration.allwomenstalk.com/challenging-leo-traits-and-how-to-overcome-them/)
 - [gemini struggles](https://inspiration.allwomenstalk.com/challenging-gemini-traits-and-how-to-overcome-them/)
+- [virgos friends](https://lifestyle.allwomenstalk.com/ways-that-being-a-virgo-benefits-your-friendships/)
 - [sagittarius personality](https://inspiration.allwomenstalk.com/challenging-sagittarius-traits-and-how-to-overcome-them/)
-- [bad pisces traits](https://inspiration.allwomenstalk.com/challenging-pisces-traits-and-how-to-overcome-them/)
-- [why is taurus so stubborn](https://inspiration.allwomenstalk.com/challenging-taurus-traits-and-how-to-overcome-them/)
 - [aries costume](https://fashion.allwomenstalk.com/if-youre-an-aries-woman-you-need-to-see-these-outfit-ideas/)
 - [is capricorn selfish](https://inspiration.allwomenstalk.com/challenging-capricorn-traits-and-how-to-overcome-them/)
-- [are aquarius sarcastic](https://inspiration.allwomenstalk.com/challenging-aquarius-traits-and-how-to-overcome-them/)
 - [are aries quiet](https://inspiration.allwomenstalk.com/challenging-aries-traits-and-how-to-overcome-them/)
-- [virgos friends](https://lifestyle.allwomenstalk.com/ways-that-being-a-virgo-benefits-your-friendships/)
-- [are leo men sensitive](https://inspiration.allwomenstalk.com/challenging-leo-traits-and-how-to-overcome-them/)
+- [bad pisces traits](https://inspiration.allwomenstalk.com/challenging-pisces-traits-and-how-to-overcome-them/)
+- [are aquarius sarcastic](https://inspiration.allwomenstalk.com/challenging-aquarius-traits-and-how-to-overcome-them/)
+- [why is taurus so stubborn](https://inspiration.allwomenstalk.com/challenging-taurus-traits-and-how-to-overcome-them/)
 - [10 Things to Love about 2012 ...](https://lifestyle.allwomenstalk.com/things-to-love-about/)
 - [7 Things to Love about Being the Oldest Sibling .....](https://allwomenstalk.com/7-things-to-love-about-being-the-oldest-sibling/)
 

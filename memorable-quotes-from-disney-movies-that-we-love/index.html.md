@@ -42,16 +42,16 @@ I think that even fairy-tales, no matter how magical and mythical they seem, can
 
 ## Related Posts
 
-- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
-- [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
 - [dont be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [wonderful inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-will-make-you-feel-beautiful/)
 - [paris riche le stylo smoky eye vegas](https://books.allwomenstalk.com/romantic-quotes-from-literary-classics/)
 - [when bad things happen quotes](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
-- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
+- [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
 - [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
 - [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
-- [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [wonderful inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-will-make-you-feel-beautiful/)
+- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 

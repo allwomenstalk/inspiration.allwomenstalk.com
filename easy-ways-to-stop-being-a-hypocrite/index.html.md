@@ -50,16 +50,16 @@ We're all guilty of being hypocrites from time to time, but if it's a chronic pr
 
 ## Related Posts
 
+- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
 - [how to steal the spotlight](https://inspiration.allwomenstalk.com/easy-ways-to-avoid-stealing-your-friends-spotlight/)
-- [dont embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
 - [what to do with someone who complains all the time](https://lifestyle.allwomenstalk.com/ways-to-deal-with-someone-whos-always-complaining/)
-- [how to be friends with your boss](https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/)
+- [dont embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
+- [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
+- [how to deal with awkward situations](https://inspiration.allwomenstalk.com/classy-ways-to-handle-awkward-situations-like-a-lady/)
 - [how to respond bullying](https://inspiration.allwomenstalk.com/ways-to-respond-to-online-bullying/)
 - [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
-- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
+- [how to be friends with your boss](https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/)
 - [remove toxic people](https://inspiration.allwomenstalk.com/tips-and-reasons-to-remove-the-toxic-people-from-your-life/)
-- [how to deal with awkward situations](https://inspiration.allwomenstalk.com/classy-ways-to-handle-awkward-situations-like-a-lady/)
-- [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [10 Easy Ways to Be a Better Person ...](https://allwomenstalk.com/10-easy-ways-to-be-a-better-person/)
 

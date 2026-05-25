@@ -68,16 +68,16 @@ Sometimes when you are in a relationship, you get swept up in that person and th
 
 ## Related Posts
 
-- [benefits of getting married in your 30s](https://wedding.allwomenstalk.com/reasons-to-wait-until-your-30s-to-get-married/)
+- [leggings thigh gap](https://fitness.allwomenstalk.com/why-you-shouldnt-worry-about-not-having-a-thigh-gap/)
 - [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
 - [warning signs of a mamas boy](https://love.allwomenstalk.com/reasons-never-to-date-a-mommas-boy/)
-- [wedding proposal gone wrong](https://wedding.allwomenstalk.com/reasons-public-proposals-are-a-bad-idea/)
 - [you cant say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
-- [why looks shouldnt matter in a relationship](https://love.allwomenstalk.com/why-sexual-history-shouldnt-matter-in-a-new-relationship/)
-- [leggings thigh gap](https://fitness.allwomenstalk.com/why-you-shouldnt-worry-about-not-having-a-thigh-gap/)
-- [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
 - [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
+- [why looks shouldnt matter in a relationship](https://love.allwomenstalk.com/why-sexual-history-shouldnt-matter-in-a-new-relationship/)
+- [benefits of getting married in your 30s](https://wedding.allwomenstalk.com/reasons-to-wait-until-your-30s-to-get-married/)
+- [wedding proposal gone wrong](https://wedding.allwomenstalk.com/reasons-public-proposals-are-a-bad-idea/)
 - [what is a passenger princess](https://parenting.allwomenstalk.com/reasons-why-princess-syndrome-is-unhealthy/)
+- [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
 - [7 Reasons to Love Single Life ...](https://lifestyle.allwomenstalk.com/reasons-to-love-single-life/)
 - [7 Ace Reasons to Be Glad Youre Single on Valentine...](https://love.allwomenstalk.com/ace-reasons-to-be-glad-youre-single-on-valentines-day/)
 

@@ -56,16 +56,16 @@ I have always believed that living a good life is a good balance of money, hard 
 
 ## Related Posts
 
+- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
+- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
 - [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
 - [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
-- [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
-- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
-- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
-- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
 - [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
 - [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
-- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
+- [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
+- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
+- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
 - [7 Secret Tips on How to Live a Happy Long Life ...](https://lifestyle.allwomenstalk.com/secret-tips-on-how-to-live-a-happy-long-life/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 

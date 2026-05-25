@@ -48,16 +48,16 @@ Sources:
 
 ## Related Posts
 
-- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
-- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
-- [stalkers greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
+- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
+- [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
 - [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
+- [apple xmas commercial](https://lifestyle.allwomenstalk.com/apples-new-holiday-commercial-is-sweet-enough-to-make-you-want-to-cry/)
+- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
 - [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
 - [bombshell on broadway](https://music.allwomenstalk.com/smashs-bombshell-musical-is-coming-to-life-find-out-when/)
+- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
+- [stalkers greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
 - [forefathers day](https://lifestyle.allwomenstalk.com/pay-homage-to-plymouths-pilgrims-on-forefathers-day/)
-- [apple xmas commercial](https://lifestyle.allwomenstalk.com/apples-new-holiday-commercial-is-sweet-enough-to-make-you-want-to-cry/)
-- [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
-- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
 - [8 Books That Changed the World ...](https://lifestyle.allwomenstalk.com/books-that-changed-the-world/)
 - [7 Life Changing Biographies You Must Read ...](https://allwomenstalk.com/life-changing-biographies-you-must-read/)
 

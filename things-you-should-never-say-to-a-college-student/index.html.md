@@ -34,16 +34,16 @@ What other comments have people made to you because you’re a college student?
 
 ## Related Posts
 
+- [5 Things You Shouldnt do when Cramming  for Finals...](https://teen.allwomenstalk.com/things-you-shouldnt-do-when-cramming-for-finals/)
+- [50 Words That Can Ruin Your Resume ...](https://money.allwomenstalk.com/words-that-can-ruin-your-resume/)
+- [9 Topics of Conversation You Should Avoid during Y...](https://love.allwomenstalk.com/topics-of-conversation-you-should-avoid-during-your-first-date/)
 - [What NOT to Put on a Resume ...](https://money.allwomenstalk.com/what-not-to-put-on-a-resume/)
 - [Nix These Things if You Want to Be Successful ...](https://inspiration.allwomenstalk.com/nix-these-things-if-you-want-to-be-successful/)
-- [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
-- [9 Topics of Conversation You Should Avoid during Y...](https://love.allwomenstalk.com/topics-of-conversation-you-should-avoid-during-your-first-date/)
-- [Things You Should Never Put on Your Resume ...](https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/)
-- [50 Words That Can Ruin Your Resume ...](https://money.allwomenstalk.com/words-that-can-ruin-your-resume/)
-- [things to put on face](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face-2/)
-- [12 Things You Should Never Say to Your Partner ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-partner/)
 - [Dont Let Your Holiday Season Turn into a Class Reu...](https://inspiration.allwomenstalk.com/dont-let-your-holiday-season-turn-into-a-class-reunion/)
-- [5 Things You Shouldnt do when Cramming  for Finals...](https://teen.allwomenstalk.com/things-you-shouldnt-do-when-cramming-for-finals/)
+- [things to put on face](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face-2/)
+- [Things You Should Never Put on Your Resume ...](https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/)
+- [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
+- [12 Things You Should Never Say to Your Partner ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-partner/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [8 Questions You Should Never Ask ...](https://allwomenstalk.com/8-questions-you-should-never-ask/)
 

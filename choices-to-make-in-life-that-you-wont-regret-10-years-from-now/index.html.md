@@ -72,15 +72,15 @@ You’re going to mingle with a lot of people in your lifetime. You’re going t
 
 ## Related Posts
 
-- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
-- [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
 - [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
 - [20 things](https://inspiration.allwomenstalk.com/totally-important-things-for-20-somethings-to-remember-when-life-hits-hard/)
 - [growing up in a small town](https://lifestyle.allwomenstalk.com/things-you-learn-growing-up-in-a-small-town/)
-- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
+- [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
+- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
 - [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
-- [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
 - [harsh cable tv](https://lifestyle.allwomenstalk.com/how-technology-has-taken-over-our-lives/)
+- [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
+- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
 - [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
 - [10 Top Ways to Take Control of Your Life ...](https://health.allwomenstalk.com/top-ways-to-take-control-of-your-life/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)

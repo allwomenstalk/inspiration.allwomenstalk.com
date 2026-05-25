@@ -46,14 +46,14 @@ There are a lot of things we can learn from high achievers. I just mentioned a f
 
 - [7 Unique Ways to Stay Productive ...](https://inspiration.allwomenstalk.com/unique-ways-to-stay-productive/)
 - [9 Rules to Boost Your Productivity ...](https://inspiration.allwomenstalk.com/rules-to-boost-your-productivity/)
-- [7 Ways You Can Boost Your Self-Acceptance ...](https://inspiration.allwomenstalk.com/ways-you-can-boost-your-self-acceptance/)
+- [7 Ways to Step out of Your Comfort Zone and Feel G...](https://inspiration.allwomenstalk.com/ways-to-step-out-of-your-comfort-zone-and-feel-great/)
 - [7 Ways to Maintain a Positive Attitude ...](https://inspiration.allwomenstalk.com/ways-to-maintain-a-positive-attitude/)
 - [Small Ways to do Good for Others This Year ...](https://inspiration.allwomenstalk.com/small-ways-to-do-good-for-others-this-year/)
 - [7 Ways to Simplify Your Life and Increase Your Hap...](https://lifestyle.allwomenstalk.com/ways-to-simplify-your-life-and-increase-your-happiness/)
-- [Enlightening Ways to Stop Being Envious of Others ...](https://inspiration.allwomenstalk.com/ways-to-stop-being-envious-of-others/)
-- [7 Ways to Step out of Your Comfort Zone and Feel G...](https://inspiration.allwomenstalk.com/ways-to-step-out-of-your-comfort-zone-and-feel-great/)
-- [7 Ways to Significantly Improve the Quality of You...](https://inspiration.allwomenstalk.com/ways-to-significantly-improve-the-quality-of-your-life/)
 - [7 Tips to Visualize Your Goals and Create Your Own...](https://inspiration.allwomenstalk.com/tips-to-visualize-your-goals-and-create-your-own-success/)
+- [7 Ways You Can Boost Your Self-Acceptance ...](https://inspiration.allwomenstalk.com/ways-you-can-boost-your-self-acceptance/)
+- [7 Ways to Significantly Improve the Quality of You...](https://inspiration.allwomenstalk.com/ways-to-significantly-improve-the-quality-of-your-life/)
+- [Enlightening Ways to Stop Being Envious of Others ...](https://inspiration.allwomenstalk.com/ways-to-stop-being-envious-of-others/)
 - [7 Simple Secrets of Success ...](https://lifestyle.allwomenstalk.com/simple-secrets-of-success/)
 - [7 Tips to Help You Reach Your Goals ...](https://lifestyle.allwomenstalk.com/tips-to-help-you-reach-your-goals/)
 

@@ -42,16 +42,16 @@ Why do you love being a woman? Let me know in the comments! I’m looking forwar
 
 ## Related Posts
 
-- [7 Things Every Girl Should Learn about Herself bef...](https://love.allwomenstalk.com/things-every-girl-should-learn-about-herself-before-falling-in-love/)
+- [running tops girls](https://running.allwomenstalk.com/can-you-relate-to-these-runner-girl-problems/)
+- [Not a Girl Not Yet a Woman - What You Should Know ...](https://lifestyle.allwomenstalk.com/not-a-girl-not-yet-a-woman-what-you-should-know-while-youre-still-growing-up/)
+- [Its Not All Bad  the Perks of Being a Girl ...](https://funny.allwomenstalk.com/its-not-all-bad-the-perks-of-being-a-girl/)
 - [7 Energy Products for Girls on the Go ...](https://fitness.allwomenstalk.com/energy-products-for-girls-on-the-go/)
 - [Successful Women Always Give up These Habits and Y...](https://lifestyle.allwomenstalk.com/successful-women-always-give-up-these-habits-and-you-should-too/)
-- [running tops girls](https://running.allwomenstalk.com/can-you-relate-to-these-runner-girl-problems/)
+- [Healthy Habits All Generation Y Women Need to Know...](https://lifestyle.allwomenstalk.com/the-healthy-habits-every-y-generation-girl-should-have/)
+- [7 Things Every Girl Should Learn about Herself bef...](https://love.allwomenstalk.com/things-every-girl-should-learn-about-herself-before-falling-in-love/)
 - [A Self-conscious Girls Guide to Caring Less ...](https://inspiration.allwomenstalk.com/a-self-conscious-girls-guide-to-caring-less/)
 - [Memorable Survival Tips for Girls Heading into the...](https://lifestyle.allwomenstalk.com/almost-time-to-graduate-heres-how-to-survive-in-the-real-world/)
-- [Its Not All Bad  the Perks of Being a Girl ...](https://funny.allwomenstalk.com/its-not-all-bad-the-perks-of-being-a-girl/)
-- [Healthy Habits All Generation Y Women Need to Know...](https://lifestyle.allwomenstalk.com/the-healthy-habits-every-y-generation-girl-should-have/)
 - [Achieve BFF Status by Becoming the Perfect Wingwom...](https://inspiration.allwomenstalk.com/achieve-bff-status-by-becoming-the-perfect-wingwoman/)
-- [Not a Girl Not Yet a Woman - What You Should Know ...](https://lifestyle.allwomenstalk.com/not-a-girl-not-yet-a-woman-what-you-should-know-while-youre-still-growing-up/)
 - [What Women Love about Men ...](https://allwomenstalk.com/what-women-love-about-men/)
 - [9 Reasons I Love Being a Woman ...](https://allwomenstalk.com/reasons-i-love-being-a-woman/)
 

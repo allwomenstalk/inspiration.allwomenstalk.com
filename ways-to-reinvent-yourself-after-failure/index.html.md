@@ -42,16 +42,16 @@ Whatever you do, do not give up on yourself. You can reinvent yourself. What wil
 
 ## Related Posts
 
-- [craziest new years resolutions](https://inspiration.allwomenstalk.com/new-years-resolutions-to-consider/)
-- [how to be more resilient](https://lifestyle.allwomenstalk.com/ways-to-be-more-resilient/)
-- [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
 - [7 Healthy Things to do Every Day ...](https://health.allwomenstalk.com/healthy-things-to-do-every-day/)
-- [Small but Vital Changes to Improve Your Life in th...](https://inspiration.allwomenstalk.com/small-changes-to-improve-your-life-in-the-new-year/)
-- [how can i help make the world a better place](https://inspiration.allwomenstalk.com/ways-you-can-help-make-the-world-a-better-place/)
 - [7 Mentalities That Keep You from Getting Healthy a...](https://health.allwomenstalk.com/mentalities-that-keep-you-from-getting-healthy-and-how-to-fix-them/)
-- [January Jumpstart: Start the New Year off Right wi...](https://inspiration.allwomenstalk.com/things-to-do-in-january-for-a-great-start-to-the-new-year/)
-- [The Secret to Success Even if Youre Young ...](https://inspiration.allwomenstalk.com/ways-to-be-successful-while-youre-still-young/)
+- [craziest new years resolutions](https://inspiration.allwomenstalk.com/new-years-resolutions-to-consider/)
+- [Small but Vital Changes to Improve Your Life in th...](https://inspiration.allwomenstalk.com/small-changes-to-improve-your-life-in-the-new-year/)
 - [9 Health Resolutions You Might Want to Make for 20...](https://health.allwomenstalk.com/health-resolutions-you-might-want-to-make-for/)
+- [how to be more resilient](https://lifestyle.allwomenstalk.com/ways-to-be-more-resilient/)
+- [January Jumpstart: Start the New Year off Right wi...](https://inspiration.allwomenstalk.com/things-to-do-in-january-for-a-great-start-to-the-new-year/)
+- [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
+- [how can i help make the world a better place](https://inspiration.allwomenstalk.com/ways-you-can-help-make-the-world-a-better-place/)
+- [The Secret to Success Even if Youre Young ...](https://inspiration.allwomenstalk.com/ways-to-be-successful-while-youre-still-young/)
 - [8 Stunning Tips on How to Reinvent Yourself ...](https://lifestyle.allwomenstalk.com/stunning-tips-on-how-to-reinvent-yourself/)
 - [Impeccable Ideas to Turn Your Life around ...](https://inspiration.allwomenstalk.com/energizing-ideas-for-turning-your-life-around/)
 

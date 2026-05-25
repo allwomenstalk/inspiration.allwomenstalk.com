@@ -42,16 +42,16 @@ Getting ready for spring is one of the most fun things of the year and this year
 
 ## Related Posts
 
-- [christmas safety tips](https://lifestyle.allwomenstalk.com/christmas-safety-tips-that-should-not-slip-your-mind/)
 - [trees strongest in autumn](https://inspiration.allwomenstalk.com/fall-trees-to-get-you-in-the-mood-for-the-season/)
 - [fall squash varieties](https://food.allwomenstalk.com/different-varieties-of-winter-squash-you-have-to-try-this-fall/)
-- [science diet cat food indoor](https://food.allwomenstalk.com/tips-for-making-winter-soup-that-are-healthy-and-delicious/)
 - [skincare for outdoor enthusiasts](https://skincare.allwomenstalk.com/outdoor-winter-sports-skincare-tips/)
-- [weird food hacks](https://food.allwomenstalk.com/winter-food-hacks-that-taste-amazing/)
-- [things to do before fall](https://lifestyle.allwomenstalk.com/thing-to-do-before-fall-ends/)
 - [how to make the most of fall](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-fall/)
-- [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
+- [science diet cat food indoor](https://food.allwomenstalk.com/tips-for-making-winter-soup-that-are-healthy-and-delicious/)
+- [things to do before fall](https://lifestyle.allwomenstalk.com/thing-to-do-before-fall-ends/)
+- [weird food hacks](https://food.allwomenstalk.com/winter-food-hacks-that-taste-amazing/)
 - [is your name winter pick up line](https://love.allwomenstalk.com/flirty-moves-that-work-best-in-winter/)
+- [christmas safety tips](https://lifestyle.allwomenstalk.com/christmas-safety-tips-that-should-not-slip-your-mind/)
+- [are clementines a winter fruit](https://food.allwomenstalk.com/reasons-clementines-are-the-perfect-fruit-to-be-eating-this-winter/)
 - [7 Ways to Get Your Skin Ready for Spring ...](https://skincare.allwomenstalk.com/7-ways-to-get-your-skin-ready-for-spring/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 

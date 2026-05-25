@@ -50,16 +50,16 @@ You lead by example. By sticking to these inspiring tasks, you could lead others
 
 ## Related Posts
 
-- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
 - [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
-- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
-- [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
-- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
-- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
-- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
+- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
 - [beautiful activity](https://inspiration.allwomenstalk.com/simple-activities-that-make-life-more-beautiful/)
-- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
+- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
+- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
+- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
 - [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
+- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
+- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
+- [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
 - [9 Great Ideas for Voluntourism ...](https://travel.allwomenstalk.com/9-great-ideas-for-voluntourism/)
 - [10 Ways to Help Other People ...](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
 

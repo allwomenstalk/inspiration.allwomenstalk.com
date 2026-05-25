@@ -44,16 +44,16 @@ Everyone has their own definition of what it means to be successful. Nonetheless
 
 ## Related Posts
 
-- [how much is too much clothes](https://fashion.allwomenstalk.com/signs-you-have-too-many-clothes/)
-- [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
-- [how to know if your happy](https://inspiration.allwomenstalk.com/signs-youre-truly-happy/)
-- [daphliz](https://love.allwomenstalk.com/are-you-ready-to-live-with-your-so-the-signs/)
-- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
+- [7 signs of a true friend](https://lifestyle.allwomenstalk.com/signs-youre-a-friend-others-are-happy-to-have/)
+- [travel addicted](https://travel.allwomenstalk.com/these-are-the-signs-you-are-addicted-to-travel/)
 - [are you ready to live the life you deserve](https://inspiration.allwomenstalk.com/signs-that-your-life-needs-a-major-makeover/)
 - [on vacation signs](https://travel.allwomenstalk.com/signs-you-need-a-vacation/)
-- [travel addicted](https://travel.allwomenstalk.com/these-are-the-signs-you-are-addicted-to-travel/)
-- [7 signs of a true friend](https://lifestyle.allwomenstalk.com/signs-youre-a-friend-others-are-happy-to-have/)
+- [how often should you replace your makeup](https://makeup.allwomenstalk.com/signs-you-need-a-new-foundation/)
+- [how much is too much clothes](https://fashion.allwomenstalk.com/signs-you-have-too-many-clothes/)
+- [7 signs of a controlling woman](https://inspiration.allwomenstalk.com/signs-youre-a-confident-women/)
 - [when to take a career break](https://money.allwomenstalk.com/these-are-the-signs-you-need-a-career-break/)
+- [daphliz](https://love.allwomenstalk.com/are-you-ready-to-live-with-your-so-the-signs/)
+- [how to know if your happy](https://inspiration.allwomenstalk.com/signs-youre-truly-happy/)
 - [7 Signs Youre in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)
 - [7 Secret Tips on How to Live a Happy Long Life ...](https://lifestyle.allwomenstalk.com/secret-tips-on-how-to-live-a-happy-long-life/)
 

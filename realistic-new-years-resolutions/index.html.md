@@ -116,16 +116,16 @@ So what are your New Year's goals, stalkers? Are you going for realistic or idea
 
 ## Related Posts
 
-- [Check out These Websites to Boost Brain Power  ...](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
-- [Rules for Setting New Years Resolutions That Youll...](https://inspiration.allwomenstalk.com/rules-for-setting-new-years-resolutions-that-youll-actually-keep/)
-- [10 Habits Thatll Start Your Year off the Right Way...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
-- [17 New Years Resolutions Thatll Make You Happier ....](https://inspiration.allwomenstalk.com/new-years-resolutions-thatll-make-you-happier/)
-- [Make a Difference in 2019 with These Meaningful Re...](https://inspiration.allwomenstalk.com/make-a-difference-in-with-these-meaningful-resolutions/)
-- [Websites That Will Help You Keep Your New Years Re...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
-- [The Best Ways to Develop Mental Strength ...](https://vityle.com/the-best-ways-to-develop-mental-strength/)
 - [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
+- [10 Habits Thatll Start Your Year off the Right Way...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
 - [The Science of Motivation ...](https://inspiration.allwomenstalk.com/the-science-of-motivation/)
+- [Websites That Will Help You Keep Your New Years Re...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
+- [Rules for Setting New Years Resolutions That Youll...](https://inspiration.allwomenstalk.com/rules-for-setting-new-years-resolutions-that-youll-actually-keep/)
+- [Check out These Websites to Boost Brain Power  ...](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
+- [The Best Ways to Develop Mental Strength ...](https://vityle.com/the-best-ways-to-develop-mental-strength/)
+- [17 New Years Resolutions Thatll Make You Happier ....](https://inspiration.allwomenstalk.com/new-years-resolutions-thatll-make-you-happier/)
 - [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
+- [Make a Difference in 2019 with These Meaningful Re...](https://inspiration.allwomenstalk.com/make-a-difference-in-with-these-meaningful-resolutions/)
 - [8 Best Calendar Ideas for 2011 ...](https://allwomenstalk.com/best-calendar-ideas-for/)
 - [11 Ways to Bring in the New Year ...](https://allwomenstalk.com/7-ways-to-bring-in-the-new-year/)
 

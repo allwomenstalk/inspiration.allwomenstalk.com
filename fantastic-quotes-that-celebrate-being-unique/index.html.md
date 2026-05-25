@@ -56,16 +56,16 @@ As all of these quotes emphasize, being unique is more important than trying to 
 
 ## Related Posts
 
-- [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
 - [accept where you are quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-learning-to-accept-yourself/)
-- [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
-- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
 - [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
 - [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
-- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
 - [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
-- [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
+- [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
 - [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
+- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
+- [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
+- [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
+- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 - [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 

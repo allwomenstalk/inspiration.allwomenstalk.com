@@ -42,16 +42,16 @@ There are some pretty ghastly things that are currently occurring on our planet,
 
 ## Related Posts
 
-- [7 Really Important Resolutions You Should Make and...](https://inspiration.allwomenstalk.com/really-important-resolutions-you-should-make-and-keep-this-year/)
-- [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
-- [7 Ways to Make a New Start for Yourself ...](https://inspiration.allwomenstalk.com/ways-to-make-a-new-start-for-yourself/)
-- [Uplifting Ways to Feel Accomplished Every Single D...](https://inspiration.allwomenstalk.com/ways-to-feel-accomplished-every-single-day/)
-- [Seeking Excitement Every Day Will Improve Your Lif...](https://inspiration.allwomenstalk.com/ways-seeking-everyday-excitement-can-improve-your-life/)
-- [7 Habits of Productive People to Incorporate into ...](https://inspiration.allwomenstalk.com/habits-of-productive-people-to-incorporate-into-your-life/)
 - [Discover How to Hold Yourself Accountable for Your...](https://inspiration.allwomenstalk.com/ways-to-hold-yourself-accountable-for-your-life/)
+- [Uplifting Ways to Feel Accomplished Every Single D...](https://inspiration.allwomenstalk.com/ways-to-feel-accomplished-every-single-day/)
+- [7 Ways to Make a New Start for Yourself ...](https://inspiration.allwomenstalk.com/ways-to-make-a-new-start-for-yourself/)
+- [7 Really Important Resolutions You Should Make and...](https://inspiration.allwomenstalk.com/really-important-resolutions-you-should-make-and-keep-this-year/)
+- [little changes](https://inspiration.allwomenstalk.com/little-changes-in-your-life-that-can-make-a-big-difference/)
+- [7 Habits of Productive People to Incorporate into ...](https://inspiration.allwomenstalk.com/habits-of-productive-people-to-incorporate-into-your-life/)
+- [7 Vital Pieces of Advice for Teens Struggling to L...](https://teen.allwomenstalk.com/vital-pieces-of-advice-for-teens-struggling-to-love-themselves/)
 - [7 TED Talks about Happiness to Make You Smile ...](https://inspiration.allwomenstalk.com/ted-talks-about-happiness-to-make-you-smile/)
 - [Want to Fly High with Health and Happiness for the...](https://health.allwomenstalk.com/want-to-fly-high-with-health-and-happiness-for-the-new-year-heres-how/)
-- [little changes](https://inspiration.allwomenstalk.com/little-changes-in-your-life-that-can-make-a-big-difference/)
+- [Seeking Excitement Every Day Will Improve Your Lif...](https://inspiration.allwomenstalk.com/ways-seeking-everyday-excitement-can-improve-your-life/)
 - [10 Ways to Help Other People ...](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
 - [8 Ways to Support a Cause ...](https://allwomenstalk.com/8-ways-to-support-a-cause/)
 

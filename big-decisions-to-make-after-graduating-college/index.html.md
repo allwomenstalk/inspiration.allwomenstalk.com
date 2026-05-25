@@ -42,16 +42,16 @@ Did you also experience the same life-changing decisions? How did you handle the
 
 ## Related Posts
 
+- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
+- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
+- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
 - [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
 - [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
-- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
-- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
 - [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
 - [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
-- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
 - [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
+- [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
 - [8 Reasons to Go to College ...](https://allwomenstalk.com/8-reasons-to-go-to-college/)
 - [9 Questions to Ask Yourself before Making a Major ...](https://inspiration.allwomenstalk.com/questions-to-ask-yourself-before-making-a-major-decision/)
 

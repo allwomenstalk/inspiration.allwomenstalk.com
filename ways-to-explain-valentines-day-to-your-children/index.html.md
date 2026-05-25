@@ -42,16 +42,16 @@ How are you celebrating Valentine's Day?
 
 ## Related Posts
 
-- [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
-- [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
-- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
-- [is valentines day celebrated around the world](https://travel.allwomenstalk.com/ways-valentines-day-is-celebrated-around-the-world/)
-- [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
-- [boyfriend working on valentines day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
-- [how to say i love you poetically](https://love.allwomenstalk.com/poetic-ways-to-tell-someone-you-love-them/)
-- [worlds most romantic cities](https://travel.allwomenstalk.com/need-some-lovin-pack-your-bags-for-dates-in-the-most-romantic-cities-in-the-world/)
-- [statistically a woman who purchases flowers on val...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
 - [gif good morning funny](https://funny.allwomenstalk.com/funny-good-morning-gifs-to-send-your-boyfriend/)
+- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
+- [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
+- [worlds most romantic cities](https://travel.allwomenstalk.com/need-some-lovin-pack-your-bags-for-dates-in-the-most-romantic-cities-in-the-world/)
+- [how to say i love you poetically](https://love.allwomenstalk.com/poetic-ways-to-tell-someone-you-love-them/)
+- [boyfriend working on valentines day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
+- [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
+- [statistically a woman who purchases flowers on val...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
+- [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
+- [is valentines day celebrated around the world](https://travel.allwomenstalk.com/ways-valentines-day-is-celebrated-around-the-world/)
 - [7 Ways to Express Your Love to Your Kids ...](https://allwomenstalk.com/7-ways-to-express-your-love-to-your-kids/)
 - [7 Ways to Teach Your Kids about the Holidays](https://allwomenstalk.com/7-ways-to-teach-your-kids-about-the-holidays/)
 

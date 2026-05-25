@@ -42,14 +42,14 @@ It’s not so easy dealing with all kinds of issues from your past, especially i
 
 ## Related Posts
 
-- [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
-- [whats your favourite](https://food.allwomenstalk.com/things-your-cup-of-tea-might-say-about-your-personality/)
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
-- [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
-- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
-- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
-- [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
 - [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
+- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
+- [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
+- [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
+- [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
+- [whats your favourite](https://food.allwomenstalk.com/things-your-cup-of-tea-might-say-about-your-personality/)
 - [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
 - [7 Important Things You Can do to Free Yourself fro...](https://inspiration.allwomenstalk.com/important-things-you-can-do-to-free-yourself-from-negative-emotions/)

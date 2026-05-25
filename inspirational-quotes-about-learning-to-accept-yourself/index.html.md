@@ -56,16 +56,16 @@ Accepting yourself is an important step to achieving peace. If you're always cri
 
 ## Related Posts
 
-- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
-- [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
-- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
-- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
 - [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
+- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
+- [unmarried woman quotes funny](https://funny.allwomenstalk.com/funny-quotes-for-all-the-single-ladies/)
+- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
+- [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
 - [christmas together quotes](https://love.allwomenstalk.com/quotes-about-christmas-love-and-cheer/)
 - [the right opinion](https://inspiration.allwomenstalk.com/quotes-about-not-letting-others-opinions-bother-you/)
-- [louis ck paris](https://inspiration.allwomenstalk.com/surprisingly-inspirational-louis-ck-quotes/)
-- [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
-- [quote about enduring](https://inspiration.allwomenstalk.com/enduring-quotes-from-great-literature/)
+- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
+- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
+- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
 - [8 Quotes to Boost Your Self Image ...](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
 - [9 Inspirational Quotes to Help Build Your Self-Est...](https://inspiration.allwomenstalk.com/inspirational-quotes-to-help-build-your-self-esteem/)
 

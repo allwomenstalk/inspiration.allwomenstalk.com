@@ -43,15 +43,15 @@ Next time you share something on Facebook, tweet on Twitter, pin on Pinterest, o
 ## Related Posts
 
 - [how to show a friend you care](https://inspiration.allwomenstalk.com/thoughtful-things-you-can-do-to-show-your-friends-you-care/)
-- [dont expect too much from people](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-expecting-too-much-from-people/)
 - [how to help someone in a codependent relationship](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-a-codependent-family-member/)
+- [respect peoples boundaries](https://lifestyle.allwomenstalk.com/helpful-tips-on-how-to-respect-boundaries/)
+- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
+- [thoughtful vs kind](https://inspiration.allwomenstalk.com/ways-to-be-more-thoughtful-and-kind/)
 - [how to practice standing up for yourself](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-stand-up-for-yourself/)
+- [helping out the neighbour](https://lifestyle.allwomenstalk.com/ways-to-help-out-a-neighbor-who-is-lonely/)
+- [dont expect too much from people](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-expecting-too-much-from-people/)
 - [long lost friends](https://lifestyle.allwomenstalk.com/ways-to-connect-with-a-long-lost-friend/)
 - [inner introvert](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-your-inner-introvert/)
-- [respect peoples boundaries](https://lifestyle.allwomenstalk.com/helpful-tips-on-how-to-respect-boundaries/)
-- [thoughtful vs kind](https://inspiration.allwomenstalk.com/ways-to-be-more-thoughtful-and-kind/)
-- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
-- [helping out the neighbour](https://lifestyle.allwomenstalk.com/ways-to-help-out-a-neighbor-who-is-lonely/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Make a Difference in Someones Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)
 
