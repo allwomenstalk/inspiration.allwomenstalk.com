@@ -3,7 +3,7 @@ title: "7 Types of Art You Probably Dont Know ..."
 description: "Matchstick Art; Tin Foil Art; Scratchboard Art; Sticky Note Art; Miniature Pencil Art; More ..."
 url: "https://inspiration.allwomenstalk.com/types-of-art-you-probably-dont-know/"
 category: "inspiration"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Types of Art You Probably Dont Know ...
@@ -56,16 +56,16 @@ I’m sure that by now you really want to go out and try some of these interesti
 
 ## Related Posts
 
-- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
-- [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
-- [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
 - [mulan real story ending](https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/)
 - [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
+- [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
 - [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
-- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
-- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
-- [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
 - [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
+- [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
+- [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
+- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
 - [7 Foods That You Didnt Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
 - [7 Magazine Articles You Have to Read ...](https://allwomenstalk.com/7-magazine-articles-you-have-to-read/)
 

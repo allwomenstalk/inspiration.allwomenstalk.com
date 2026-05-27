@@ -3,7 +3,7 @@ title: "7 Big Decisions to Make after Graduating College ..."
 description: "Graduate School or Job; Job a or Job B; Staying or Moving Part 1; Staying or Moving Part 2; Explore or Invest; More ..."
 url: "https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/"
 category: "inspiration"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Big Decisions to Make after Graduating College ...
@@ -42,16 +42,16 @@ Did you also experience the same life-changing decisions? How did you handle the
 
 ## Related Posts
 
-- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
-- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
 - [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
-- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
-- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
 - [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
+- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
 - [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
 - [first day of sophomore year](https://teen.allwomenstalk.com/ways-to-make-the-most-of-sophomore-year/)
+- [why is going to college so scary](https://teen.allwomenstalk.com/reasons-why-entering-college-is-scary/)
+- [how can i be more independent](https://teen.allwomenstalk.com/tips-for-becoming-a-more-independent-teenager/)
+- [how to find time to exercise](https://fitness.allwomenstalk.com/ways-to-find-time-to-exercise-when-you-are-a-busy-college-student/)
+- [on campus jobs examples](https://teen.allwomenstalk.com/best-on-campus-jobs-for-college-students/)
 - [8 Reasons to Go to College ...](https://allwomenstalk.com/8-reasons-to-go-to-college/)
 - [9 Questions to Ask Yourself before Making a Major ...](https://inspiration.allwomenstalk.com/questions-to-ask-yourself-before-making-a-major-decision/)
 

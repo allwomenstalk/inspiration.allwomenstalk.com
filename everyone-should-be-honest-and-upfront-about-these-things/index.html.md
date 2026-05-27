@@ -3,7 +3,7 @@ title: "7 Honest Things to Be Upfront about in a Relationship ..."
 description: "Who You Are; Your Intentions; Important Values; How You Feel; Your Happiness; More ..."
 url: "https://inspiration.allwomenstalk.com/everyone-should-be-honest-and-upfront-about-these-things/"
 category: "inspiration"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Honest Things to Be Upfront about in a Relationship ...
@@ -55,13 +55,13 @@ Being honest about any insecurities you have might feel uncomfortable at first, 
 ## Related Posts
 
 - [types of chemistry relationships](https://love.allwomenstalk.com/there-are-different-types-of-chemistry-in-a-relationship-well-who-knew/)
-- [hobbies to put on dating site](https://apps.allwomenstalk.com/common-interest-dating-appsto-help-you-find-love/)
 - [highschool sweet hearts](https://love.allwomenstalk.com/the-truth-about-high-school-sweethearts-relationships/)
-- [stages of relationship psychology](https://love.allwomenstalk.com/five-stages-of-love-according-to-psychology/)
+- [hobbies to put on dating site](https://apps.allwomenstalk.com/common-interest-dating-appsto-help-you-find-love/)
+- [low maintenance girlfriend](https://love.allwomenstalk.com/you-should-probably-know-these-things-before-dating-a-low-maintenance-girl/)
+- [what is too big of an age gap](https://love.allwomenstalk.com/relationship-age-gap-how-big-is-too-big/)
 - [dating woman with anxiety](https://love.allwomenstalk.com/how-girls-with-anxiety-are-dating-and-loving-differently/)
 - [insecure couples on facebook](https://love.allwomenstalk.com/only-insecure-couples-play-these-tired-social-media-games/)
-- [what is too big of an age gap](https://love.allwomenstalk.com/relationship-age-gap-how-big-is-too-big/)
-- [low maintenance girlfriend](https://love.allwomenstalk.com/you-should-probably-know-these-things-before-dating-a-low-maintenance-girl/)
+- [stages of relationship psychology](https://love.allwomenstalk.com/five-stages-of-love-according-to-psychology/)
 - [naughty tinder](https://love.allwomenstalk.com/dating-struggles-millennials-need-to-overcome-to-find-their-otp/)
 - [first century dates](https://love.allwomenstalk.com/the-rules-for-first-dates-for-the-2-1-st-century/)
 - [7 Dos  Donts in a Relationship ...](https://love.allwomenstalk.com/dos-donts-in-a-relationship/)

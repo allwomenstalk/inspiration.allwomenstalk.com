@@ -3,7 +3,7 @@ title: "8 Easy Steps to Remove a Toxic Friend from Your Life ..."
 description: "Slowly Stop Replying to Their Texts and Phone Calls; Remove Them from Social Media; Delete Any Pictures You Have of This Person; Make a List of Why You Need to Leave Them; Re-Build Your Self Worth; More ..."
 url: "https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/"
 category: "inspiration"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Easy Steps to Remove a Toxic Friend from Your Life ...
@@ -46,16 +46,16 @@ Finally, it’s time to sit down with this toxic person and let them know that t
 
 ## Related Posts
 
-- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
-- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
-- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
-- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
 - [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
-- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
-- [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
-- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
 - [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
+- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
+- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
+- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
+- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
+- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
+- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
+- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
+- [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
 - [8 Excellent Ways to Support a Friend in Trouble .....](https://lifestyle.allwomenstalk.com/excellent-ways-to-support-a-friend-in-trouble/)
 - [8 Tips for Encouraging a Friend ...](https://lifestyle.allwomenstalk.com/tips-for-encouraging-a-friend/)
 

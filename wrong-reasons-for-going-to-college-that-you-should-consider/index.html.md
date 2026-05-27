@@ -3,7 +3,7 @@ title: "7 Wrong Reasons for Going to College That You Should Consider ..."
 description: "Because Someone else Expects It of You; Because All Your Friends Are Going; Because Your Boyfriend/ Girlfriend is Going; The Tuition is Low; Because Your Entire Family Went There; More ..."
 url: "https://inspiration.allwomenstalk.com/wrong-reasons-for-going-to-college-that-you-should-consider/"
 category: "inspiration"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Wrong Reasons for Going to College That You Should Consider ...
@@ -44,16 +44,16 @@ Choosing to go to college can be a tough decision sometimes, but try not to make
 
 ## Related Posts
 
-- [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
 - [how to further your education](https://inspiration.allwomenstalk.com/inexpensive-ways-to-continue-your-education-outside-of-school/)
-- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
-- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
-- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
-- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
-- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
-- [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
-- [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
 - [cool high school](https://teen.allwomenstalk.com/reasons-why-you-should-be-yourself-at-school/)
+- [as a student what decision do you regret the most](https://teen.allwomenstalk.com/high-school-regrets-to-avoid/)
+- [common problems in school](https://parenting.allwomenstalk.com/common-school-problems-that-you-can-immediately-address/)
+- [what do senior dues cover](https://teen.allwomenstalk.com/things-you-need-to-save-up-for-your-senior-year-of-high-school/)
+- [goals for after high school](https://teen.allwomenstalk.com/important-goals-for-your-senior-yea/)
+- [what is self expression](https://teen.allwomenstalk.com/forms-of-self-expression-to-try-in-high-school/)
+- [how to have a good senior year](https://teen.allwomenstalk.com/ways-to-make-senior-year-the-best-year/)
+- [what do you get after graduating college](https://inspiration.allwomenstalk.com/big-decisions-to-make-after-graduating-college/)
+- [how to prepare for university mentally](https://teen.allwomenstalk.com/things-to-mentally-prepare-yourself-for-before-you-start-college/)
 - [7 Reasons to Choose Community College ...](https://lifestyle.allwomenstalk.com/7-reasons-to-choose-community-college/)
 - [7 Reasons Not to Drop out of School ...](https://allwomenstalk.com/7-reasons-not-to-drop-out-of-school/)
 
