@@ -3,7 +3,7 @@ title: "Who Are the Barbie Sheroes ?"
 description: "Frida Kahlo; Katherine Johnson; Chloe Kim; More ..."
 url: "https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Who Are  the Barbie Sheroes ?
@@ -40,16 +40,16 @@ Here is the full list of Barbie Sheroes for 2018:
 
 ## Related Posts
 
-- [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
-- [genius women](https://inspiration.allwomenstalk.com/genius-women-everyone-should-know-about/)
+- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
 - [bridget jones quotes](https://funny.allwomenstalk.com/why-every-woman-really-is-bridget-jones/)
 - [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
+- [genius women](https://inspiration.allwomenstalk.com/genius-women-everyone-should-know-about/)
+- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
 - [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
 - [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
+- [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
 - [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
 - [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
-- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
-- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
 - [Breasts What Are They and Who do They Belong to An...](https://allwomenstalk.com/breasts-what-are-they-and-who-do-they-belong-to-anyway/)
 - [Barbie Beauty ...](https://allwomenstalk.com/barbie-beauty/)
 

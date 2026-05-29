@@ -3,7 +3,7 @@ title: "Inspiring Quotes about Leadership from Abraham Lincoln ..."
 description: "Responsibility; Commitment; Whatever You Are; Stand Firm; Sharpening the Axe; More ..."
 url: "https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Inspiring Quotes about Leadership from Abraham Lincoln ...
@@ -56,16 +56,16 @@ What’s your favorite line from Abraham Lincoln? Go ahead and share it!
 
 ## Related Posts
 
-- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
-- [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
-- [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
-- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
-- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
-- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
-- [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
-- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
-- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
+- [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
+- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
+- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
+- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
+- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
+- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
+- [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
+- [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
+- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
 - [The Kaiser of Quotable Quotes ...](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 - [8 Tips for Becoming a True Leader ...](https://allwomenstalk.com/8-tips-for-becoming-a-true-leader/)
 

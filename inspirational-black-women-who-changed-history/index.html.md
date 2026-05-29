@@ -3,7 +3,7 @@ title: "7 Inspirational Black Women Who Changed History ..."
 description: "Ellen Johnson Sirleaf; Madam C. J. Walker; Josephine Baker; Rosa Parks; Oprah Winfrey; More ..."
 url: "https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Inspirational Black Women Who Changed History ...
@@ -56,16 +56,16 @@ There are so many black female role models in history and alive today, too, so m
 
 ## Related Posts
 
-- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
-- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
 - [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
-- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
-- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
+- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
 - [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
-- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
-- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
+- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
 - [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
+- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
+- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
+- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 - [5 Great Women to Admire...](https://allwomenstalk.com/5-great-women-to-admire/)
 

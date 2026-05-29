@@ -3,7 +3,7 @@ title: "7 Ways to Heal a Friendship and Start over ..."
 description: "You’ve Had a Big Fight; There’s a Drift; Take a Breather; Re-evaluate; Talk to Her; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-heal-and-friendship-and-start-over/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Ways to Heal a Friendship and Start over ...
@@ -42,16 +42,16 @@ Friendships are relationships and they have their ebbs and flows. The way your f
 
 ## Related Posts
 
+- [breaking up in college](https://love.allwomenstalk.com/ways-to-deal-with-a-college-break-up/)
+- [breakup wuotes](https://teen.allwomenstalk.com/quotes-for-a-first-breakup/)
 - [posting after a breakup](https://love.allwomenstalk.com/things-not-to-post-on-facebook-after-a-breakup/)
+- [things to try before divorce](https://love.allwomenstalk.com/things-to-try-before-divorce/)
 - [obsessing over an ex](https://love.allwomenstalk.com/ways-to-obsessing-over-your-ex-after-a-breakup/)
 - [break up lessons](https://love.allwomenstalk.com/lessons-to-learn-from-a-breakup/)
 - [how to break up without drama](https://love.allwomenstalk.com/awesome-ways-to-break-up-without-drama/)
-- [breaking up in college](https://love.allwomenstalk.com/ways-to-deal-with-a-college-break-up/)
-- [blindsided by love quotes](https://love.allwomenstalk.com/tips-after-you-have-been-blindsided-by-a-breakup/)
-- [things to try before divorce](https://love.allwomenstalk.com/things-to-try-before-divorce/)
-- [breakup wuotes](https://teen.allwomenstalk.com/quotes-for-a-first-breakup/)
 - [hear ex](https://love.allwomenstalk.com/things-you-feel-when-you-hear-about-an-ex/)
 - [what to do when your boyfriend is cheating on you](https://funny.allwomenstalk.com/tongue-in-cheek-things-to-do-if-your-boyfriend-cheats-with-his-ex/)
+- [blindsided by love quotes](https://love.allwomenstalk.com/tips-after-you-have-been-blindsided-by-a-breakup/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Regain Trust in a Relationship ...](https://allwomenstalk.com/7-ways-to-regain-trust-in-a-relationship/)
 

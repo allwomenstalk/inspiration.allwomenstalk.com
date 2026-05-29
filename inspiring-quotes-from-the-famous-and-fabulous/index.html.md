@@ -3,7 +3,7 @@ title: "7 Inspiring Quotes from the Famous and Fabulous ..."
 description: "“I'm Selfish, Impatient and a Little Insecure. I Make Mistakes, I Am out of Control and at Times Hard to Handle. but if You Can't Handle Me at My Worst, then You Sure as Hell Don't Deserve Me at My Best.” Marilyn Monroe; “We Should All Start to Live before We Get Too Old. Fear is Stupid. so Are Regrets.” Marilyn Monroe; \"I Don't like My Voice. I Don't like the Way I Look. I Don't like the Way I Move. I Don't like the Way I Act. I Mean, Period. so, You Know, I Don't like Myself.\" Elizabeth Taylor; \"Always Be a First-rate Version of Yourself, Instead of a Second-rate Version of Somebody else” Judy Garland; \"I Believe in Pink. I Believe That Laughing is the Best Calorie Burner. I Believe in Kissing, Kissing a Lot. I Believe in Being Strong when Everything Seems to Be Going Wrong. I Believe That Happy Girls Are the Prettiest Girls. I Believe That Tomorrow is Another Day and I Believe in Miracles.\" Audrey Hepburn; More ..."
 url: "https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Inspiring Quotes from the Famous and Fabulous ...
@@ -56,16 +56,16 @@ Marlene Dietrich said that the reasons she loved quotations, was because "it is 
 
 ## Related Posts
 
+- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
+- [dont be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 - [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
-- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
-- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
 - [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
-- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
-- [dont be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
 - [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
+- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
+- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
 - [The 7 Most Inspiring Women Celebrities ...](https://allwomenstalk.com/the-7-most-inspiring-women-celebrities/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 

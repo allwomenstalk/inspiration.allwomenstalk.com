@@ -3,7 +3,7 @@ title: "5 Things You Should Never Say to a College Student ..."
 description: "Just Wait until You Enter the Real World!; Oh, That’s Nice; What Are Your Plans after Graduation?; Why do We Need the Humanities?; Why Are You a Feminist?; More ..."
 url: "https://inspiration.allwomenstalk.com/things-you-should-never-say-to-a-college-student/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 5 Things You Should Never Say to a College Student ...
@@ -34,16 +34,16 @@ What other comments have people made to you because you’re a college student?
 
 ## Related Posts
 
-- [Things You Should Never Put on Your Resume ...](https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/)
-- [Nix These Things if You Want to Be Successful ...](https://inspiration.allwomenstalk.com/nix-these-things-if-you-want-to-be-successful/)
-- [12 Things You Should Never Say to Your Partner ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-partner/)
 - [50 Words That Can Ruin Your Resume ...](https://money.allwomenstalk.com/words-that-can-ruin-your-resume/)
-- [5 Things You Shouldnt do when Cramming  for Finals...](https://teen.allwomenstalk.com/things-you-shouldnt-do-when-cramming-for-finals/)
-- [things to put on face](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face-2/)
-- [9 Topics of Conversation You Should Avoid during Y...](https://love.allwomenstalk.com/topics-of-conversation-you-should-avoid-during-your-first-date/)
-- [What NOT to Put on a Resume ...](https://money.allwomenstalk.com/what-not-to-put-on-a-resume/)
 - [what gifts should you never give](https://lifestyle.allwomenstalk.com/presents-you-should-never-give/)
 - [Dont Let Your Holiday Season Turn into a Class Reu...](https://inspiration.allwomenstalk.com/dont-let-your-holiday-season-turn-into-a-class-reunion/)
+- [5 Things You Shouldnt do when Cramming  for Finals...](https://teen.allwomenstalk.com/things-you-shouldnt-do-when-cramming-for-finals/)
+- [What NOT to Put on a Resume ...](https://money.allwomenstalk.com/what-not-to-put-on-a-resume/)
+- [things to put on face](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face-2/)
+- [9 Topics of Conversation You Should Avoid during Y...](https://love.allwomenstalk.com/topics-of-conversation-you-should-avoid-during-your-first-date/)
+- [Nix These Things if You Want to Be Successful ...](https://inspiration.allwomenstalk.com/nix-these-things-if-you-want-to-be-successful/)
+- [12 Things You Should Never Say to Your Partner ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-partner/)
+- [Things You Should Never Put on Your Resume ...](https://money.allwomenstalk.com/things-you-should-never-put-on-your-resume/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [8 Questions You Should Never Ask ...](https://allwomenstalk.com/8-questions-you-should-never-ask/)
 

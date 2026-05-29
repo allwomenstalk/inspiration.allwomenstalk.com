@@ -3,7 +3,7 @@ title: "7 Steps to Identifying a Negative Person ..."
 description: "They Are Always Unhappy; They Find the Bad in Every Situation; They Expect the Worst; They Complain a Lot; Others Know How They Are; More ..."
 url: "https://inspiration.allwomenstalk.com/steps-to-identifying-a-negative-person/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Steps to Identifying a Negative Person ...
@@ -45,12 +45,12 @@ All of us have some negative people in our lives. We may even be negative people
 - [7 Ways to Say No Gracefully for Common Situations ...](https://inspiration.allwomenstalk.com/ways-to-say-no-gracefully-for-common-situations/)
 - [7 Helpful Ways to Stop Caring about What Others Th...](https://inspiration.allwomenstalk.com/helpful-ways-to-stop-caring-about-what-others-think-of-you/)
 - [how to be less socially awkward](https://lifestyle.allwomenstalk.com/ways-to-be-less-socially-awkward/)
-- [manage others](https://inspiration.allwomenstalk.com/ways-to-manage-others-and-get-the-very-best-from-them/)
+- [7 Ways to Be Kind to Writers ...](https://lifestyle.allwomenstalk.com/ways-to-be-kind-to-writers/)
+- [7 Ways for  How to Deal with a Difficult Workmate ...](https://inspiration.allwomenstalk.com/ways-on-how-to-deal-with-a-difficult-workmate/)
 - [7 Ways to Get Your Voice Heard ...](https://inspiration.allwomenstalk.com/ways-to-get-your-voice-heard/)
 - [how to deal with narcissists](https://inspiration.allwomenstalk.com/ways-to-deal-with-narcissists-in-your-life/)
 - [11 Interesting Ways to Identify a Negative Friends...](https://inspiration.allwomenstalk.com/interesting-ways-to-identify-a-negative-friendship/)
-- [7 Ways for  How to Deal with a Difficult Workmate ...](https://inspiration.allwomenstalk.com/ways-on-how-to-deal-with-a-difficult-workmate/)
-- [7 Ways to Be Kind to Writers ...](https://lifestyle.allwomenstalk.com/ways-to-be-kind-to-writers/)
+- [manage others](https://inspiration.allwomenstalk.com/ways-to-manage-others-and-get-the-very-best-from-them/)
 - [7 Interesting Ways to Help a Friend in a Crisis .....](https://inspiration.allwomenstalk.com/interesting-ways-to-help-a-friend-in-a-crisis/)
 - [10 Ways to Spot a Frenemy ...](https://allwomenstalk.com/10-ways-to-spot-a-frenemy/)
 - [7 Know-Hows to Spot a Liar ...](https://allwomenstalk.com/7-know-hows-to-spot-a-liar/)

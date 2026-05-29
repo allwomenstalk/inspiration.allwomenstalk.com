@@ -3,7 +3,7 @@ title: "15 Inspiring Ways to Be a Friend Worth Having ..."
 description: "Be Present; Be Authentic; Listen; Be Loyal; Be Flexible; More ..."
 url: "https://inspiration.allwomenstalk.com/inspiring-ways-to-be-a-friend-worth-having/"
 category: "inspiration"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 15 Inspiring Ways to Be a Friend Worth Having ...
@@ -102,16 +102,16 @@ Always be willing to listen to a friend’s problem and be happy to give advice 
 
 ## Related Posts
 
-- [if you want someone respect you](https://inspiration.allwomenstalk.com/if-you-want-to-get-people-to-respect-you-read-this-now/)
-- [Helpful Tips to Deal with Negative People when You...](https://lifestyle.allwomenstalk.com/helpful-tips-to-deal-with-negative-people-when-you-live-in-dorm/)
-- [7 Best Ways to Gracefully Handle Your First Argume...](https://love.allwomenstalk.com/best-ways-to-gracefully-handle-your-first-argument/)
-- [constructive argument](https://inspiration.allwomenstalk.com/how-to-have-a-constructive-argument/)
 - [How to Deal with Sexual Harassment at Work ...](https://lifestyle.allwomenstalk.com/how-to-deal-with-sexual-harassment-at-work/)
-- [avoid drama](https://inspiration.allwomenstalk.com/ways-to-avoid-drama-for-an-easy-life/)
-- [How to Stop Taking Things Personally ...](https://inspiration.allwomenstalk.com/how-to-stop-taking-things-personally/)
-- [6 Tips for Dealing with a Hot-tempered Boss ...](https://money.allwomenstalk.com/tips-for-dealing-with-a-hot-tempered-boss-2/)
 - [How to Deal with Bullying at Work ...](https://lifestyle.allwomenstalk.com/how-to-deal-with-bullying-at-work/)
+- [Helpful Tips to Deal with Negative People when You...](https://lifestyle.allwomenstalk.com/helpful-tips-to-deal-with-negative-people-when-you-live-in-dorm/)
 - [6 Ways to Outsmart Your Awkwardness ...](https://inspiration.allwomenstalk.com/ways-to-outsmart-awkwardness/)
+- [How to Stop Taking Things Personally ...](https://inspiration.allwomenstalk.com/how-to-stop-taking-things-personally/)
+- [7 Best Ways to Gracefully Handle Your First Argume...](https://love.allwomenstalk.com/best-ways-to-gracefully-handle-your-first-argument/)
+- [6 Tips for Dealing with a Hot-tempered Boss ...](https://money.allwomenstalk.com/tips-for-dealing-with-a-hot-tempered-boss-2/)
+- [constructive argument](https://inspiration.allwomenstalk.com/how-to-have-a-constructive-argument/)
+- [avoid drama](https://inspiration.allwomenstalk.com/ways-to-avoid-drama-for-an-easy-life/)
+- [if you want someone respect you](https://inspiration.allwomenstalk.com/if-you-want-to-get-people-to-respect-you-read-this-now/)
 - [7 Easy Steps to Making New Awesome Friends ...](https://lifestyle.allwomenstalk.com/easy-steps-to-making-new-awesome-friends/)
 - [8 Tips for Encouraging a Friend ...](https://lifestyle.allwomenstalk.com/tips-for-encouraging-a-friend/)
 
