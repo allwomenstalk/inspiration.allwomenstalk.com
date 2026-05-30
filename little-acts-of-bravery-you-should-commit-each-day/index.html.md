@@ -3,7 +3,7 @@ title: "7 Little Acts of Bravery You Should Commit Each Day ..."
 description: "Talk to Someone New; Order Something Different; Say \"I Love You\"; Be Honest; Apologize; More ..."
 url: "https://inspiration.allwomenstalk.com/little-acts-of-bravery-you-should-commit-each-day/"
 category: "inspiration"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Little Acts of Bravery You Should Commit Each Day ...
@@ -42,16 +42,16 @@ Whether you complete one of these tasks today, or all of them, be proud of yours
 
 ## Related Posts
 
-- [morning notes](https://inspiration.allwomenstalk.com/things-to-write-down-every-morning-to-have-a-great-day/)
-- [how to form a good habit](https://inspiration.allwomenstalk.com/important-steps-to-form-a-good-habit/)
-- [how to seize the day](https://inspiration.allwomenstalk.com/ways-to-seize-the-day-and-make-the-most-of-it/)
-- [pursue your passion quotes](https://inspiration.allwomenstalk.com/tips-on-how-to-find-and-pursue-your-passion/)
+- [hobbies to make you happy](https://diy.allwomenstalk.com/hobbies-that-can-make-you-happier/)
+- [attract success](https://inspiration.allwomenstalk.com/ways-to-attract-happiness-wealth-and-success/)
 - [things that would make life easier](https://inspiration.allwomenstalk.com/simple-things-we-can-do-to-make-life-easier-for-each-other/)
 - [i savor every moment with you meaning](https://inspiration.allwomenstalk.com/tips-on-how-to-savor-every-moment-and-experience/)
-- [attract success](https://inspiration.allwomenstalk.com/ways-to-attract-happiness-wealth-and-success/)
-- [hobbies to make you happy](https://diy.allwomenstalk.com/hobbies-that-can-make-you-happier/)
-- [i want to be a better person](https://inspiration.allwomenstalk.com/things-that-will-make-you-a-better-person/)
+- [pursue your passion quotes](https://inspiration.allwomenstalk.com/tips-on-how-to-find-and-pursue-your-passion/)
+- [how to seize the day](https://inspiration.allwomenstalk.com/ways-to-seize-the-day-and-make-the-most-of-it/)
+- [how to form a good habit](https://inspiration.allwomenstalk.com/important-steps-to-form-a-good-habit/)
 - [paris palette maximalist eyeshadow neon skirt](https://inspiration.allwomenstalk.com/habits-of-empathic-people-that-you-can-implement/)
+- [morning notes](https://inspiration.allwomenstalk.com/things-to-write-down-every-morning-to-have-a-great-day/)
+- [i want to be a better person](https://inspiration.allwomenstalk.com/things-that-will-make-you-a-better-person/)
 - [10 Things You Should do Every Day ...](https://allwomenstalk.com/10-things-you-should-do-every-day/)
 - [7 Great Acts of Kindness You Can Copy ...](https://allwomenstalk.com/7-great-acts-of-kindness-you-can-copy/)
 

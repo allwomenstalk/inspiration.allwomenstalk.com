@@ -3,7 +3,7 @@ title: "Assertive People Never Say These 7 Things ..."
 description: "“Yes, of Course I’ll do That”; “What I Want is Not Important.”; “It’s My Way or the Highway.”; Nothing; “I Don’t Need Any Help”; More ..."
 url: "https://inspiration.allwomenstalk.com/assertive-people-never-say-these-things/"
 category: "inspiration"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Assertive People Never Say These 7 Things ...
@@ -47,15 +47,15 @@ Sources:
 
 ## Related Posts
 
-- [old fashioned dating rules](https://love.allwomenstalk.com/old-fashioned-dating-habits-we-actually-shouldnt-bring-back/)
-- [what to say while making out](https://funny.allwomenstalk.com/things-you-should-never-say-while-kissing-a-guy/)
-- [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
-- [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
-- [condom mistakes](https://love.allwomenstalk.com/condom-mistakes-you-dont-want-to-make/)
-- [how to make him lose interest in you](https://love.allwomenstalk.com/things-thatll-make-him-lose-interest-in-you-right-away/)
-- [mature women love](https://love.allwomenstalk.com/mature-women-never-do-these-things-while-dating/)
-- [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
 - [bad table manners meme](https://lifestyle.allwomenstalk.com/never-make-these-etiquette-mistakes-again/)
+- [mature women love](https://love.allwomenstalk.com/mature-women-never-do-these-things-while-dating/)
+- [how to make him lose interest in you](https://love.allwomenstalk.com/things-thatll-make-him-lose-interest-in-you-right-away/)
+- [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
+- [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
+- [old fashioned dating rules](https://love.allwomenstalk.com/old-fashioned-dating-habits-we-actually-shouldnt-bring-back/)
+- [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
+- [what to say while making out](https://funny.allwomenstalk.com/things-you-should-never-say-while-kissing-a-guy/)
+- [condom mistakes](https://love.allwomenstalk.com/condom-mistakes-you-dont-want-to-make/)
 - [what to do at 12 am with friends](https://lifestyle.allwomenstalk.com/things-you-should-never-do-after-midnight/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 - [10 Negative Things You Should Stop Saying ...](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)

@@ -3,7 +3,7 @@ title: "7 Types of Art You Probably Dont Know ..."
 description: "Matchstick Art; Tin Foil Art; Scratchboard Art; Sticky Note Art; Miniature Pencil Art; More ..."
 url: "https://inspiration.allwomenstalk.com/types-of-art-you-probably-dont-know/"
 category: "inspiration"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Types of Art You Probably Dont Know ...
@@ -56,15 +56,15 @@ I’m sure that by now you really want to go out and try some of these interesti
 
 ## Related Posts
 
-- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
-- [mulan real story ending](https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/)
 - [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
-- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
+- [mulan real story ending](https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/)
+- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
+- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
 - [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
-- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
+- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
 - [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
 - [7 Foods That You Didnt Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
 - [7 Magazine Articles You Have to Read ...](https://allwomenstalk.com/7-magazine-articles-you-have-to-read/)

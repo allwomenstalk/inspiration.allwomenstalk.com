@@ -3,7 +3,7 @@ title: "7 Shortcuts You Will Regret Taking in Life ..."
 description: "Leaving Everything to Chance; Taking the Easiest Route Possible; Following the Crowd; Procrastination; Keeping Quiet when You Should Speak up; More ..."
 url: "https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/"
 category: "inspiration"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Shortcuts You Will Regret Taking in Life ...
@@ -46,13 +46,13 @@ Just like Marc Chernoff said “Getting where you want to go in life is not abou
 
 ## Related Posts
 
-- [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
-- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
-- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
 - [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
 - [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
 - [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
 - [why do people bark at emos](https://movies.allwomenstalk.com/things-people-do-wrong-in-horror-movies-when-trying-to-survive/)
+- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
+- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
+- [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
 - [relationship no nos](https://love.allwomenstalk.com/online-dating-no-nos-to-stop-doing-right-now/)
 - [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
 - [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
