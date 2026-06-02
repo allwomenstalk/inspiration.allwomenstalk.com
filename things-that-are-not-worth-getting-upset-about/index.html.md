@@ -3,7 +3,7 @@ title: "7 Things That Are Not Worth Getting Upset about ..."
 description: "Losing at Video Games; When Someone Doesn’t Call You Back after a Date; When Someone Shows up to a Party Wearing the Same Thing as You; When Someone Doesn’t Respond to Your Text Immediately; Tripping in Front of Others; More ..."
 url: "https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Things That Are Not Worth Getting Upset about ...
@@ -45,16 +45,16 @@ You shouldn’t let all sorts of insignificant things get in the way of your hap
 
 ## Related Posts
 
-- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
 - [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
 - [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
 - [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
-- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
-- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
-- [as the year draws to a close](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
 - [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [as the year draws to a close](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [5 Things to Be Happy about ...](https://allwomenstalk.com/5-things-to-be-happy-about/)
 

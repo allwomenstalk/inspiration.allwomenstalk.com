@@ -3,7 +3,7 @@ title: "7 Thoughtful Things You Can do to Show Your Friends You Care ..."
 description: "One-on-One; Offer to Pay; Write Letters; Secrets; Eye-Contact; More ..."
 url: "https://inspiration.allwomenstalk.com/thoughtful-things-you-can-do-to-show-your-friends-you-care/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Thoughtful Things You Can do to Show Your Friends You Care ...
@@ -42,16 +42,16 @@ Friends are hidden jewels that add value to your everyday. To me, they are who I
 
 ## Related Posts
 
-- [how to deal with plagiarism](https://lifestyle.allwomenstalk.com/civilized-and-responsible-ways-to-deal-with-plagiarism/)
-- [long lost friends](https://lifestyle.allwomenstalk.com/ways-to-connect-with-a-long-lost-friend/)
-- [people who you work with](https://lifestyle.allwomenstalk.com/types-of-people-you-work-with-and-how-to-deal-with-them/)
 - [my boyfriends friend is ruining our relationship](https://love.allwomenstalk.com/ways-to-deal-with-your-boyfriends-female-friends/)
-- [how to react when a girl disrespects you](https://love.allwomenstalk.com/important-things-to-do-when-someone-you-love-disrespects-you/)
-- [how to get over mean comments](https://lifestyle.allwomenstalk.com/effective-ways-to-handle-a-rude-comment-from-a-stranger/)
 - [it will be difficult to forgive you of breaking yo...](https://love.allwomenstalk.com/helpful-tips-on-how-to-forgive-a-promise-breaker/)
-- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
 - [how to not let things bother you](https://lifestyle.allwomenstalk.com/very-efficient-ways-to-manage-people-who-bother-you/)
+- [how to react when a girl disrespects you](https://love.allwomenstalk.com/important-things-to-do-when-someone-you-love-disrespects-you/)
 - [how to practice standing up for yourself](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-stand-up-for-yourself/)
+- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
+- [people who you work with](https://lifestyle.allwomenstalk.com/types-of-people-you-work-with-and-how-to-deal-with-them/)
+- [how to get over mean comments](https://lifestyle.allwomenstalk.com/effective-ways-to-handle-a-rude-comment-from-a-stranger/)
+- [long lost friends](https://lifestyle.allwomenstalk.com/ways-to-connect-with-a-long-lost-friend/)
+- [how to deal with plagiarism](https://lifestyle.allwomenstalk.com/civilized-and-responsible-ways-to-deal-with-plagiarism/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Make a Difference in Someones Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)
 

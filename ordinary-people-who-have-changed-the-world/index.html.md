@@ -3,7 +3,7 @@ title: "7 Ordinary People Who Have Changed the World ..."
 description: "Rosa Parks; Frank Willis and Watergate; Todd Beamer and the Passengers of Flight 93; Ryan White Promoting AIDS Awareness; Irena Sendler’s Acts during WW2; More ..."
 url: "https://inspiration.allwomenstalk.com/ordinary-people-who-have-changed-the-world/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Ordinary People Who Have Changed the World ...
@@ -48,16 +48,16 @@ Sources:
 
 ## Related Posts
 
-- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
-- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
+- [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
 - [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
+- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
+- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
 - [apple xmas commercial](https://lifestyle.allwomenstalk.com/apples-new-holiday-commercial-is-sweet-enough-to-make-you-want-to-cry/)
 - [forefathers day](https://lifestyle.allwomenstalk.com/pay-homage-to-plymouths-pilgrims-on-forefathers-day/)
-- [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
-- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
+- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
 - [bombshell on broadway](https://music.allwomenstalk.com/smashs-bombshell-musical-is-coming-to-life-find-out-when/)
+- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
 - [stalkers greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
-- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
 - [8 Books That Changed the World ...](https://lifestyle.allwomenstalk.com/books-that-changed-the-world/)
 - [7 Life Changing Biographies You Must Read ...](https://allwomenstalk.com/life-changing-biographies-you-must-read/)
 

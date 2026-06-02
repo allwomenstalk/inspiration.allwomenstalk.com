@@ -3,7 +3,7 @@ title: "7 Best Quotes by C.S. Lewis the Creator of Narnia ..."
 description: "Happiness is within; Age Ain't Nothing but a Number; Doing Good for the Greater Good; We're All the Same; Self Belief; More ..."
 url: "https://inspiration.allwomenstalk.com/best-quotes-by-c-s-lewis-the-creator-of-narnia/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Best Quotes by C.S. Lewis the Creator of Narnia ...
@@ -58,16 +58,16 @@ These are just a few of the great quotes by the wonderful writer. Which is your 
 
 ## Related Posts
 
-- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
-- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
-- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
-- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
-- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
+- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
-- [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
+- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
 - [dont believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
+- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
+- [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
+- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
+- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 - [7 Inspirational Quotes from Lost That You Will Lov...](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 

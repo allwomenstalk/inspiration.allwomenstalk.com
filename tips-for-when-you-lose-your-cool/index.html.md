@@ -3,7 +3,7 @@ title: "7 Tips for when You Lose Your Cool ..."
 description: "Walk Away; Count; Breathe; Meditate; Lower Your Voice when You Want to Scream; More ..."
 url: "https://inspiration.allwomenstalk.com/tips-for-when-you-lose-your-cool/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Tips for when You Lose Your Cool ...
@@ -42,16 +42,16 @@ Although I have come a long way in learning what to do when I am ready to lose m
 
 ## Related Posts
 
-- [dont expect too much from people](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-expecting-too-much-from-people/)
 - [how to help someone in a codependent relationship](https://lifestyle.allwomenstalk.com/tips-on-how-to-deal-with-a-codependent-family-member/)
-- [thoughtful vs kind](https://inspiration.allwomenstalk.com/ways-to-be-more-thoughtful-and-kind/)
 - [respect peoples boundaries](https://lifestyle.allwomenstalk.com/helpful-tips-on-how-to-respect-boundaries/)
+- [thoughtful vs kind](https://inspiration.allwomenstalk.com/ways-to-be-more-thoughtful-and-kind/)
 - [how to practice standing up for yourself](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-stand-up-for-yourself/)
-- [inner introvert](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-your-inner-introvert/)
 - [how to show a friend you care](https://inspiration.allwomenstalk.com/thoughtful-things-you-can-do-to-show-your-friends-you-care/)
-- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
+- [dont expect too much from people](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-expecting-too-much-from-people/)
 - [helping out the neighbour](https://lifestyle.allwomenstalk.com/ways-to-help-out-a-neighbor-who-is-lonely/)
 - [be kind on social media](https://inspiration.allwomenstalk.com/ways-to-use-social-media-to-spread-kindness/)
+- [inner introvert](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-your-inner-introvert/)
+- [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
 - [7 Ways to Deal with Anger ...](https://allwomenstalk.com/7-ways-to-deal-with-anger/)
 - [7 Tips on Dealing with Frustration ...](https://allwomenstalk.com/7-tips-on-dealing-with-frustration/)
 

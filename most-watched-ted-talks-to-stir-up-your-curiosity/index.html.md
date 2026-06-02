@@ -3,7 +3,7 @@ title: "7 Most Watched Ted Talks to Stir up Your Curiosity ..."
 description: "How Schools Kill Creativity; Your Body Language Shapes Who You Are; How Great Leaders Inspire Action; My Stroke of Insight; The Power of Vulnerability; More ..."
 url: "https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Most Watched Ted Talks to Stir up Your Curiosity ...
@@ -42,16 +42,16 @@ You can find a variety of Ted Talks on different subjects that most interest you
 
 ## Related Posts
 
+- [wags world cup](https://celebs.allwomenstalk.com/gorgeous-wags-at-the-world-cup/)
+- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
+- [disney voice over](https://movies.allwomenstalk.com/best-disney-voice-over-performances/)
+- [fictional businesses](https://money.allwomenstalk.com/fictional-companies-we-wish-were-real/)
 - [welcome to nightvale tweets](https://funny.allwomenstalk.com/fun-and-thought-provoking-tweets-from-welcome-to-nightvale/)
 - [tv shows like impractical jokers](https://funny.allwomenstalk.com/comical-tv-shows-to-watch-if-youre-looking-for-a-laugh/)
-- [all that spin offs](https://movies.allwomenstalk.com/spin-off-shows-that-are-pretty-amazing/)
-- [popular podcasts radiolab](https://movies.allwomenstalk.com/radiolab-podcasts-you-must-listen-to/)
-- [disney voice over](https://movies.allwomenstalk.com/best-disney-voice-over-performances/)
-- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
-- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
-- [wags world cup](https://celebs.allwomenstalk.com/gorgeous-wags-at-the-world-cup/)
-- [fictional businesses](https://money.allwomenstalk.com/fictional-companies-we-wish-were-real/)
 - [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
+- [all that spin offs](https://movies.allwomenstalk.com/spin-off-shows-that-are-pretty-amazing/)
+- [jonah hill jimmy kimmel](https://funny.allwomenstalk.com/hilarious-jonah-hill-interviews-thatll-keep-you-laughing/)
+- [popular podcasts radiolab](https://movies.allwomenstalk.com/radiolab-podcasts-you-must-listen-to/)
 - [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
 - [8 Documentaries You Must See ...](https://allwomenstalk.com/8-documentaries-you-must-see/)
 

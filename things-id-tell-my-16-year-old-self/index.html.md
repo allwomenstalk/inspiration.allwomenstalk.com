@@ -3,7 +3,7 @@ title: "7 Things Id Tell My 16-Year-Old Self ..."
 description: "Never, Ever Hold on to Something Someone Says about You; Having One Best Friend is so Much Better than a Group of so-so Friends; There Was Never Anything Wrong with Being a Good Girl; A Boy Will Not Complete You or Make Your Life Any Better; Try Harder to Get along with Your Mom; More ..."
 url: "https://inspiration.allwomenstalk.com/things-id-tell-my-16-year-old-self/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Things Id Tell My 16\-Year\-Old Self ...
@@ -42,16 +42,16 @@ As I think about this list, I realize it’s really not too late to take some of
 
 ## Related Posts
 
-- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
 - [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
-- [the older i get the more i appreciate](https://inspiration.allwomenstalk.com/things-youll-appreciate-as-you-start-nearing-30/)
-- [in what ways do you think were similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
-- [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
-- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
-- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
+- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
 - [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
 - [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
-- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
+- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
+- [in what ways do you think were similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
+- [the older i get the more i appreciate](https://inspiration.allwomenstalk.com/things-youll-appreciate-as-you-start-nearing-30/)
+- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
+- [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
+- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

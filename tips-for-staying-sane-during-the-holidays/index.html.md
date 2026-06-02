@@ -3,7 +3,7 @@ title: "9 Survival Tips for Staying Sane over the Holiday Season ..."
 description: "Plan for the Expense; Take Time off Work; Embrace It; Decorate; Visit Friends; More ..."
 url: "https://inspiration.allwomenstalk.com/tips-for-staying-sane-during-the-holidays/"
 category: "inspiration"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Survival Tips for Staying Sane over the Holiday Season ...
@@ -50,16 +50,16 @@ These are some easy tips to survive the holidays. Remember, throw guilt out of t
 
 ## Related Posts
 
-- [coffee and stress](https://health.allwomenstalk.com/the-relationship-between-coffee-and-stress/)
-- [Genius Ways to Improve Your Concentration for Bett...](https://inspiration.allwomenstalk.com/ways-to-improve-your-concentration/)
 - [Exceptional Ways to Avoid Stress to Stick to Your ...](https://inspiration.allwomenstalk.com/ways-to-avoid-stress-so-you-can-stick-to-your-goals/)
-- [Inspirational Reasons How Meditation Keeps Me Sane...](https://health.allwomenstalk.com/how-meditation-keeps-me-sane/)
-- [down in the dumps quotes](https://inspiration.allwomenstalk.com/ways-to-clear-your-mind-when-you-re-down-in-the-dumps/)
+- [coffee and stress](https://health.allwomenstalk.com/the-relationship-between-coffee-and-stress/)
 - [Inspirational Ways to Take Stress off Your Mind fo...](https://health.allwomenstalk.com/ways-to-take-your-mind-off-stress/)
+- [down in the dumps quotes](https://inspiration.allwomenstalk.com/ways-to-clear-your-mind-when-you-re-down-in-the-dumps/)
+- [Just Stop and Breathe ...](https://inspiration.allwomenstalk.com/just-stop-and-breathe/)
 - [sunday night blues](https://lifestyle.allwomenstalk.com/ways-to-nix-the-sunday-night-blues/)
+- [Inspirational Reasons How Meditation Keeps Me Sane...](https://health.allwomenstalk.com/how-meditation-keeps-me-sane/)
 - [Little Ways to Improve Your Mood when Youre Not Fe...](https://inspiration.allwomenstalk.com/little-ways-to-improve-your-mood/)
 - [Enjoyable Self-care Tips for Stressful Times in Li...](https://health.allwomenstalk.com/tips-for-self-care-when-youre-stressed/)
-- [Just Stop and Breathe ...](https://inspiration.allwomenstalk.com/just-stop-and-breathe/)
+- [Genius Ways to Improve Your Concentration for Bett...](https://inspiration.allwomenstalk.com/ways-to-improve-your-concentration/)
 - [7 Ways to Handle Holiday Stress ...](https://health.allwomenstalk.com/ways-to-handle-holiday-stress/)
 - [7 Extremely Useful Tips on How to Get into the Chr...](https://lifestyle.allwomenstalk.com/extremely-useful-tips-on-how-to-get-into-the-christmas-spirit/)
 
