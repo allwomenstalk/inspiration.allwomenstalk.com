@@ -3,7 +3,7 @@ title: "7 Cheery Quotes to Live by for the New Year ..."
 description: "Brand New Endings; Travel; Confidence; Love; Tomorrow; More ..."
 url: "https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Cheery Quotes to Live by for the New Year ...
@@ -56,15 +56,15 @@ From this moment on, I am making a promise to myself that I intend to keep. I'm 
 
 ## Related Posts
 
-- [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
-- [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
-- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
-- [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
-- [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
-- [einstein quotes about change](https://inspiration.allwomenstalk.com/most-inspiring-quotes-from-albert-einstein-to-help-you-get-back-on-your-feet/)
-- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
 - [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
+- [einstein quotes about change](https://inspiration.allwomenstalk.com/most-inspiring-quotes-from-albert-einstein-to-help-you-get-back-on-your-feet/)
+- [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
+- [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
+- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
+- [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
+- [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
 - [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [7 Celebrity Quotes We Should Actually Live by ...](https://celebs.allwomenstalk.com/celebrity-quotes-we-should-actually-live-by/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)

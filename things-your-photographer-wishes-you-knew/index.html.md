@@ -1,12 +1,12 @@
 ---
-title: "11 Things Your Photographer Wishes You Knew ..."
+title: "11 Things Your Photographer Wishes You Knew 🤔 ..."
 description: "You Are Not \"too Fat\" to Be Photographed; I Heart Photoshop; October is Hell; Word of Mouth is Everything; Trust Me: You Want the Golden Hour; More ..."
 url: "https://inspiration.allwomenstalk.com/things-your-photographer-wishes-you-knew/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 11 Things Your Photographer Wishes You Knew  ...
+# 11 Things Your Photographer Wishes You Knew 🤔 ...
 
 After nearly ten years as a photographer, there are so, so many things I wish I could tell my clients, first among them, of course, that I'm grateful for a decade of capturing their images! But there are other things I wish they knew that are a little harder to say...
 
@@ -80,16 +80,16 @@ One last thing: yes, I remember every single shoot, and yes, I'm grateful for ea
 
 ## Related Posts
 
-- [celeb nation photos](https://celebs.allwomenstalk.com/these-fab-celeb-photos-will-inspire-your-own-holiday-cards/)
-- [hysterical pictures](https://lifestyle.allwomenstalk.com/hysterical-holiday-photos-thatll-have-you-cracking-up/)
-- [nikki dream instagram](https://beauty.allwomenstalk.com/see-the-instagram-makeup-that-wowed-us-in/)
 - [infographic about dance](https://lifestyle.allwomenstalk.com/easy-to-follow-infographics-thatll-make-you-a-dancing-diva/)
 - [halarious gifs](https://funny.allwomenstalk.com/feeling-low-these-hilarious-gifs-will-lift-your-spirits/)
-- [annie leibovitz pirelli calendar](https://lifestyle.allwomenstalk.com/if-you-need-some-self-love-you-must-see-pirelli-calendar/)
-- [what to photograph](https://diy.allwomenstalk.com/tips-for-taking-the-best-photographs-ever/)
+- [hysterical pictures](https://lifestyle.allwomenstalk.com/hysterical-holiday-photos-thatll-have-you-cracking-up/)
 - [snap chat photos](https://apps.allwomenstalk.com/snapchat-tips-tricks-and-hacks-for-your-best-photos-yet/)
-- [hats on snakes](https://funny.allwomenstalk.com/photos-of-snakes-wearing-hats-will-make-you-love-them/)
 - [where should your eyes look when taking a selfie](https://beauty.allwomenstalk.com/selfie-mistakes-that-are-ruining-your-pictures/)
+- [celeb nation photos](https://celebs.allwomenstalk.com/these-fab-celeb-photos-will-inspire-your-own-holiday-cards/)
+- [nikki dream instagram](https://beauty.allwomenstalk.com/see-the-instagram-makeup-that-wowed-us-in/)
+- [annie leibovitz pirelli calendar](https://lifestyle.allwomenstalk.com/if-you-need-some-self-love-you-must-see-pirelli-calendar/)
+- [hats on snakes](https://funny.allwomenstalk.com/photos-of-snakes-wearing-hats-will-make-you-love-them/)
+- [what to photograph](https://diy.allwomenstalk.com/tips-for-taking-the-best-photographs-ever/)
 - [9 Things You Should Keep Secret ...](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
 - [5 Interesting Things to Know...](https://allwomenstalk.com/5-interesting-things-to-know/)
 

@@ -3,7 +3,7 @@ title: "7 Things to Stop Telling Yourself if You Want to Be Successful ..."
 description: "“I’m Not Good Enough”; “I Don’t Have Enough Money”; “I Might Fail”; “People Will DISAPPROVE”; “It Will Happen One Day”; More ..."
 url: "https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Things to Stop Telling Yourself if You Want to Be Successful ...
@@ -42,16 +42,16 @@ Now I want to hear from you! Do you tell yourself any of these bad beliefs about
 
 ## Related Posts
 
-- [things that you cant control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
-- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
-- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
-- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
-- [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
 - [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
-- [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
-- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
 - [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
 - [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
+- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
+- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
+- [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
+- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
 - [10 Things You Need to Stop Doing in Your Everyday ...](https://allwomenstalk.com/10-things-you-need-to-stop-doing-in-your-everyday-life/)
 - [8 Things You Should Stop Doing to Yourself ...](https://lifestyle.allwomenstalk.com/things-you-should-stop-doing-to-yourself/)
 

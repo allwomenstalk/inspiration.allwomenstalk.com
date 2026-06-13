@@ -3,7 +3,7 @@ title: "7 Ways to Deal with Selfish People ..."
 description: "Understand Where They Are Coming from; Don’t Take It Personally!; Don’t Be Defensive; Don’t Assume; A Certain Amount of Selfishness is Healthy; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-deal-with-selfish-people/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Ways to Deal with Selfish People ...
@@ -44,14 +44,14 @@ Having to deal with a self-centered friend is not an easy thing to do but it’s
 
 ## Related Posts
 
-- [7 Ways to Help Yourself when Youre Jealous of Your...](https://inspiration.allwomenstalk.com/ways-to-help-yourself-when-youre-jealous-of-your-friends/)
-- [riche shadow amber rush](https://inspiration.allwomenstalk.com/communication-tips-to-win-people-over/)
-- [7 Ways to Express Anger without Ruining Your Relat...](https://love.allwomenstalk.com/ways-to-express-anger-without-ruining-your-relationship/)
 - [7 Ways to Complain and Get What You Want ...](https://lifestyle.allwomenstalk.com/ways-to-complain-and-get-what-you-want/)
 - [How to Handle Online Harassment Safely and Success...](https://lifestyle.allwomenstalk.com/ways-to-handle-online-harassment/)
-- [How Can You Deal with a Boss Who Criticises You .....](https://money.allwomenstalk.com/ways-to-deal-with-a-boss-who-criticises-you/)
-- [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-friendships-with-long-distance-friends/)
 - [how to break shyness](https://lifestyle.allwomenstalk.com/ways-to-overcome-shyness/)
+- [riche shadow amber rush](https://inspiration.allwomenstalk.com/communication-tips-to-win-people-over/)
+- [How Can You Deal with a Boss Who Criticises You? ....](https://money.allwomenstalk.com/ways-to-deal-with-a-boss-who-criticises-you/)
+- [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-friendships-with-long-distance-friends/)
+- [7 Ways to Help Yourself when You're Jealous of You...](https://inspiration.allwomenstalk.com/ways-to-help-yourself-when-youre-jealous-of-your-friends/)
+- [7 Ways to Express Anger without Ruining Your Relat...](https://love.allwomenstalk.com/ways-to-express-anger-without-ruining-your-relationship/)
 - [7 Tips for Dealing with Public Catcalls ...](https://lifestyle.allwomenstalk.com/tips-for-dealing-with-public-catcalls/)
 - [The Simplest Ways to Make People like You ...](https://inspiration.allwomenstalk.com/simple-ways-to-make-people-like-you/)
 - [7 Ways to Deal with Annoying Co-Passengers ...](https://travel.allwomenstalk.com/ways-to-deal-with-annoying-co-passengers/)

@@ -3,7 +3,7 @@ title: "10 Important Habits to Help You Stop Being so Damn Lazy ..."
 description: "Be Kind to Yourself; Small Steps; Do What Matters Most First; Small Breaks; Eliminate Distractions; More ..."
 url: "https://inspiration.allwomenstalk.com/important-habits-to-help-you-stop-being-so-damn-lazy/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 10 Important Habits to Help You Stop Being so Damn Lazy ...
@@ -52,18 +52,18 @@ Rather than beating yourself for having downtime and starting a vicious cycle th
 
 ## Related Posts
 
-- [Things Everyone  Can do to Feel More Productive .....](https://inspiration.allwomenstalk.com/things-everyone-can-do-to-feel-more-productive/)
 - [The Tricks to Making Yourself Happier ...](https://inspiration.allwomenstalk.com/the-tricks-to-making-yourself-happier/)
+- [Inspirational Ways to Attract Friends ...](https://lifestyle.allwomenstalk.com/inspirational-ways-to-attract-friends/)
 - [8 Awesome Ways to Strengthen Your Heart for a Long...](https://health.allwomenstalk.com/awesome-ways-to-strengthen-your-heart-for-a-longer-life/)
+- [Things Everyone 🤗 Can do to Feel More Productive ...](https://inspiration.allwomenstalk.com/things-everyone-can-do-to-feel-more-productive/)
 - [10 Brilliant Ways to Stimulate Your Personal Devel...](https://inspiration.allwomenstalk.com/brilliant-ways-to-stimulate-your-personal-development/)
 - [Quite Simply - How to Be a Better Person ...](https://inspiration.allwomenstalk.com/quite-simply-how-to-be-a-better-person/)
-- [5 Personal Investments That Will Improve Your Life...](https://inspiration.allwomenstalk.com/personal-investments-that-will-improve-your-life/)
-- [Inspirational Ways to Attract Friends ...](https://lifestyle.allwomenstalk.com/inspirational-ways-to-attract-friends/)
-- [5 Genius Ways to Make Time  for Your Passions ...](https://lifestyle.allwomenstalk.com/genius-ways-to-make-time-for-your-passions/)
 - [Awesome Ways to French-ify Your Life ...](https://lifestyle.allwomenstalk.com/awesome-ways-to-french-ify-your-life/)
+- [5 Genius Ways to Make Time ⏰ for Your Passions ...](https://lifestyle.allwomenstalk.com/genius-ways-to-make-time-for-your-passions/)
 - [Awesome Morning Self Care Routine for a Better Day...](https://health.allwomenstalk.com/awesome-morning-self-care-routine-for-a-better-day/)
+- [5 Personal Investments That Will Improve Your Life...](https://inspiration.allwomenstalk.com/personal-investments-that-will-improve-your-life/)
 - [10 Easy Ways to Be a Better Person ...](https://allwomenstalk.com/10-easy-ways-to-be-a-better-person/)
-- [10 Singleton Habits You Shouldnt Lose ...](https://allwomenstalk.com/10-singleton-habits-you-shouldnt-lose/)
+- [10 Singleton Habits You Shouldn't Lose ...](https://allwomenstalk.com/10-singleton-habits-you-shouldnt-lose/)
 
 ## Site Information
 

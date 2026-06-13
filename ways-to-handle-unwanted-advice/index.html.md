@@ -3,7 +3,7 @@ title: "7 Ways to Handle Unwanted Advice ..."
 description: "Pick Your Battles; Pick Your People; Deflect and Change the Subject; Have a “go-to” Response; Try Not to Argue; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-handle-unwanted-advice/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Ways to Handle Unwanted Advice ...
@@ -44,14 +44,14 @@ Like I said before, we probably all have people in our lives who give us advice 
 
 - [how to tell if someone is a liar](https://lifestyle.allwomenstalk.com/ways-to-tell-if-someone-is-lying/)
 - [how to deal with controlling parents as a teenager](https://lifestyle.allwomenstalk.com/helpful-tips-on-dealing-with-a-controlling-parent/)
-- [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
-- [how to write peaceful without family](https://lifestyle.allwomenstalk.com/tips-to-make-peace-with-your-chaotic-family/)
-- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
-- [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
-- [cant forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
-- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
 - [my mother in law hates me quotes](https://parenting.allwomenstalk.com/tips-for-when-your-mother-in-law-doesnt-like-you/)
+- [how to write peaceful without family](https://lifestyle.allwomenstalk.com/tips-to-make-peace-with-your-chaotic-family/)
 - [how to not hold a grudge](https://lifestyle.allwomenstalk.com/ways-to-stop-holding-grudges/)
+- [bad fights](https://love.allwomenstalk.com/worst-ways-to-handle-a-fight-with-your-partner/)
+- [why do my parents treat my siblings better than me](https://parenting.allwomenstalk.com/tips-if-your-parents-treat-you-and-your-brother-differently/)
+- [arguing in the alternative](https://love.allwomenstalk.com/alternatives-to-arguing-with-your-boyfriend/)
+- [harassed in public](https://lifestyle.allwomenstalk.com/ways-to-deal-with-public-harassment/)
+- [can't forgive someone](https://lifestyle.allwomenstalk.com/steps-to-take-when-you-cant-forgive-a-friend/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [7 Tips for Giving up Gossip ...](https://allwomenstalk.com/7-tips-for-giving-up-gossip/)
 

@@ -3,7 +3,7 @@ title: "7 Tips on How to Deal with a Bratty Friend ..."
 description: "Determine the Severity; Can You Live with It?; Confront Them; Set an Example; Talk to Them; More ..."
 url: "https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Tips on How to Deal with a Bratty Friend ...
@@ -48,17 +48,17 @@ Dealing with a bratty friend is not that easy, but if you have patience and if y
 ## Related Posts
 
 - [how can you tell your boyfriend is cheating on you](https://love.allwomenstalk.com/gentle-ways-to-tell-your-friend-her-boyfriend-is-cheating/)
-- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
-- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
-- [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
 - [why do my parents love my sister more](https://parenting.allwomenstalk.com/ways-to-cope-when-your-parents-prefer-your-sibling/)
-- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
-- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
 - [office rivalry](https://money.allwomenstalk.com/tips-on-how-to-deal-with-office-rivalry/)
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
 - [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
+- [when family turns against you](https://teen.allwomenstalk.com/ways-to-cope-if-your-friend-turns-against-you/)
+- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
+- [quotes memory friendship](https://lifestyle.allwomenstalk.com/critical-things-to-remember-when-you-end-a-friendship/)
+- [stop depending on others](https://inspiration.allwomenstalk.com/ways-to-stop-being-dependent-on-others/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
+- [receive a compliment](https://inspiration.allwomenstalk.com/dos-and-donts-to-remember-when-you-receive-a-compliment/)
 - [7 Tips on Dealing with Controlling Parents ...](https://allwomenstalk.com/7-tips-on-dealing-with-controlling-parents/)
-- [7 Ways to Cope when You Cant Get along with Someon...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)
+- [7 Ways to Cope when You Can't Get along with Someo...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)
 
 ## Site Information
 

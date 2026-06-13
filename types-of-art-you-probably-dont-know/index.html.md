@@ -1,12 +1,12 @@
 ---
-title: "7 Types of Art You Probably Dont Know ..."
+title: "7 Types of Art You Probably Don't Know ..."
 description: "Matchstick Art; Tin Foil Art; Scratchboard Art; Sticky Note Art; Miniature Pencil Art; More ..."
 url: "https://inspiration.allwomenstalk.com/types-of-art-you-probably-dont-know/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Types of Art You Probably Dont Know ...
+# 7 Types of Art You Probably Don't Know ...
 
 There are many different perceptions of art, but I can guarantee you that there are types of art you haven’t heard of. Art is a very vast topic, and can be perceived as anything from doodling in your sketchbook to the Mona Lisa. Here are 7 types of art you probably never even thought to consider art, if you've even ever heard of them.
 
@@ -56,17 +56,17 @@ I’m sure that by now you really want to go out and try some of these interesti
 
 ## Related Posts
 
-- [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
-- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
-- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [mulan real story ending](https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/)
-- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
-- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
-- [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
 - [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
-- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [7 Foods That You Didnt Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
+- [fun facts about women's suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
+- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
+- [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
+- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
+- [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
+- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
+- [7 Foods That You Didn't Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
 - [7 Magazine Articles You Have to Read ...](https://allwomenstalk.com/7-magazine-articles-you-have-to-read/)
 
 ## Site Information

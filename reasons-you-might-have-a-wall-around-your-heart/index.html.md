@@ -3,7 +3,7 @@ title: "7 Reasons You Might Have a Wall around Your Heart ..."
 description: "Your Heart's Been Broken; You've Suffered through the Death of a Loved One; Someone Cheated on You; You've Been Abused; You've Been Betrayed by Friends; More ..."
 url: "https://inspiration.allwomenstalk.com/reasons-you-might-have-a-wall-around-your-heart/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Reasons You Might Have a Wall around Your Heart ...
@@ -42,18 +42,18 @@ Having a wall around your heart makes you feel protected, like nothing can hurt 
 
 ## Related Posts
 
-- [not taking compliments well](https://lifestyle.allwomenstalk.com/pretty-stupid-reasons-why-some-people-hate-receiving-compliments/)
+- [does being nice make you weak](https://inspiration.allwomenstalk.com/wonderful-reasons-why-being-nice-is-not-a-weakness/)
+- [how to make someone a family member on facebook](https://lifestyle.allwomenstalk.com/reasons-why-you-shouldnt-add-close-family-members-on-facebook/)
 - [how to overlook things](https://love.allwomenstalk.com/reasons-you-should-overlook-faults-in-your-partner/)
+- [why are you jealous](https://inspiration.allwomenstalk.com/life-changing-reasons-why-you-shouldnt-be-jealous-and-comparative/)
+- [someone who is desperate for love](https://love.allwomenstalk.com/reasons-why-being-desperate-to-find-love-wont-work/)
 - [is it ok not to want a baby](https://parenting.allwomenstalk.com/reasons-why-its-okay-to-not-have-children/)
+- [7 Reasons to Bite Your Tongue and Avoid Bashing Yo...](https://love.allwomenstalk.com/reasons-to-bite-your-tongue-and-avoid-bashing-your-ex/)
+- [not taking compliments well](https://lifestyle.allwomenstalk.com/pretty-stupid-reasons-why-some-people-hate-receiving-compliments/)
 - [shiwees](https://lifestyle.allwomenstalk.com/reasons-why-tattoos-shouldnt-be-taboo/)
 - [married in 40s](https://love.allwomenstalk.com/reasons-why-its-okay-to-get-married-after-40/)
-- [7 Reasons to Bite Your Tongue and Avoid Bashing Yo...](https://love.allwomenstalk.com/reasons-to-bite-your-tongue-and-avoid-bashing-your-ex/)
-- [how to make someone a family member on facebook](https://lifestyle.allwomenstalk.com/reasons-why-you-shouldnt-add-close-family-members-on-facebook/)
-- [someone who is desperate for love](https://love.allwomenstalk.com/reasons-why-being-desperate-to-find-love-wont-work/)
-- [does being nice make you weak](https://inspiration.allwomenstalk.com/wonderful-reasons-why-being-nice-is-not-a-weakness/)
-- [why are you jealous](https://inspiration.allwomenstalk.com/life-changing-reasons-why-you-shouldnt-be-jealous-and-comparative/)
 - [7 Reasons Why You Should Pray ...](https://allwomenstalk.com/7-reasons-why-you-should-pray/)
-- [8 Reasons Why You Cant Sleep at Night ...](https://allwomenstalk.com/reasons-why-you-cant-sleep-at-night/)
+- [8 Reasons Why You Can't Sleep at Night ...](https://allwomenstalk.com/reasons-why-you-cant-sleep-at-night/)
 
 ## Site Information
 

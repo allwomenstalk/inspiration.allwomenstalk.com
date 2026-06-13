@@ -1,12 +1,12 @@
 ---
-title: "Im Forever Ambivalently Yours ..."
+title: "I'm Forever Ambivalently Yours ..."
 description: "Keep Fighting for a Mile; It Felt like Forever...; It's Not over Yet; I like You, but...; Man-splaining; More ..."
 url: "https://inspiration.allwomenstalk.com/im-forever-ambivalently-yours/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Im Forever Ambivalently Yours ...
+# I'm Forever Ambivalently Yours ...
 
 Ambivalently Yours is a blog about feminism, ambivalence, girl culture and art - and my favorite part, of course, is the art, which helps express how a lot of ladies feel about women's issues at this point in history. We've got a long way to go, but it's so comfortable to just rest on our recent successes! Let's have a peek at some of the Ambivalently Yours art, to get a little girl-power inspo.
 
@@ -110,18 +110,18 @@ To see more, follow Ambivalently Yours on Instagram at @ambivalentlyyours.
 
 ## Related Posts
 
-- [tim burton personality type](https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/)
-- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
-- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
-- [harry potter bar toronto](https://movies.allwomenstalk.com/a-harry-potter-themed-bar-just-opened-its-doors/)
-- [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
 - [scariest rollercoaster ride](https://travel.allwomenstalk.com/terrifying-theme-park-rides-most-people-wont-dare-to-go-on/)
-- [l2 waterslide](https://travel.allwomenstalk.com/extreme-experiences-only-adrenaline-junkies-need-apply/)
+- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
+- [harry potter bar toronto](https://movies.allwomenstalk.com/a-harry-potter-themed-bar-just-opened-its-doors/)
 - [best shows to learn history](https://movies.allwomenstalk.com/history-buffs-will-love-these-tv-series/)
+- [tim burton personality type](https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/)
+- [l2 waterslide](https://travel.allwomenstalk.com/extreme-experiences-only-adrenaline-junkies-need-apply/)
 - [the finder cancelled](https://movies.allwomenstalk.com/cancelled-tv-shows-that-should-definitely-come-back/)
+- [2 disney characters](https://movies.allwomenstalk.com/disney-characters-who-would-make-the-best-dates/)
 - [nancy karrigan](https://fitness.allwomenstalk.com/you-will-not-believe-what-these-athletes-have-done/)
-- [My Blog My Fri-enemy ...](https://allwomenstalk.com/my-blog-my-fri-enemy/)
-- [Im Still Here....](https://allwomenstalk.com/im-still-here/)
+- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
+- [My Blog, My Fri-enemy ...](https://allwomenstalk.com/my-blog-my-fri-enemy/)
+- [I'm Still Here....](https://allwomenstalk.com/im-still-here/)
 
 ## Site Information
 

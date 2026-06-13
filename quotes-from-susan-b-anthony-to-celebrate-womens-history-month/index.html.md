@@ -1,12 +1,12 @@
 ---
-title: "7 Quotes from Susan B. Anthony to Celebrate Womens History Month ..."
+title: "7 Quotes from Susan B. Anthony to Celebrate Women's History Month ..."
 description: "Independence; Women’s Strength; Governance; Power with Age; Failure; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Quotes from Susan B. Anthony to Celebrate Womens History Month ...
+# 7 Quotes from Susan B. Anthony to Celebrate Women's History Month ...
 
 March is Women’s History Month, which makes it the perfect time to read a few inspiring quotes from Susan B. Anthony. Susan B. Anthony lived from 1820 to 1906, during which time she was an instrumental leader in the Women’s Rights Movement. She worked very closely with Elizabeth Cady Stanton, and together they held various conferences and lead various associations in an effort to get women the right to vote. In 1866, the two women established the American Equal Rights Association, and in 1869, they founded the National Women’s Suffrage Association. One of Anthony’s chief motivations for trying to get women the right to vote was that she felt women would never be taken seriously unless they had the right to vote. In addition to leading women’s rights organizations, she also tried to exercise her right to vote by voting illegally in the 1872 presidential election. Anthony was fined for 100 dollars for the crime, which she never paid! Clearly, she was a very strong woman, which is why the quotes from Susan B. Anthony are so motivating to read.
 
@@ -44,16 +44,16 @@ Susan B. Anthony was a strong woman who led the early Woman’s Rights Movement.
 
 ## Related Posts
 
-- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
-- [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
-- [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
-- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
 - [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
-- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
-- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
-- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
 - [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
+- [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
+- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
 - [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
+- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
+- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 

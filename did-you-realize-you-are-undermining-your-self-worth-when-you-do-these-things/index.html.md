@@ -1,12 +1,12 @@
 ---
-title: "Things Youre Doing to Undermine Your Self Worth ..."
+title: "Things You're Doing to Undermine ⏬ Your Self Worth ..."
 description: "You Tell White Lies; You Withhold Your Opinion to Avoid Confrontation; You Rarely Use the Word No when You Really Want to; You Put Other People before Yourself – All the Time; You Give but Forget to Take; More ..."
 url: "https://inspiration.allwomenstalk.com/did-you-realize-you-are-undermining-your-self-worth-when-you-do-these-things/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Things Youre Doing to Undermine  Your Self Worth ...
+# Things You're Doing to Undermine ⏬ Your Self Worth ...
 
 Many women share a common fault – low self-worth. It’s the feeling you’re not good enough to get a good job, to attract a decent, loving man, to keep a home and family together … the feeling that someone can always do it better than you. This is such BS really. You are unique and amazing and you should measure your self-worth by your standards – not your friends’, not your parents’, nor colleagues’ and certainly not society’s. Here are the most common ways women undermine their self-worth.
 
@@ -138,16 +138,16 @@ You don’t go to bed until 2 or 3 in the morning, and because of that you are n
 
 ## Related Posts
 
-- [did my face say that out loud](https://lifestyle.allwomenstalk.com/speak-up-feelings-you-should-always-say-out-loud/)
-- [high maintenance woman vs low maintenance](https://lifestyle.allwomenstalk.com/reasons-why-its-a-good-thing-to-be-a-high-maintenance-woman/)
-- [truth friends](https://lifestyle.allwomenstalk.com/the-tragic-truth-about-every-friend-group/)
-- [23 year ild](https://lifestyle.allwomenstalk.com/things-you-learn-when-hanging-out-with-a-23-year-old/)
-- [happiness is cartoons](https://lifestyle.allwomenstalk.com/happiness-is/)
 - [be better than the gap gif](https://fitness.allwomenstalk.com/things-that-are-better-than-having-a-thigh-gap/)
-- [what are the keys to happiness](https://inspiration.allwomenstalk.com/this-is-what-science-says-are-the-keys-to-happiness/)
-- [fear of being abandoned phobia name](https://lifestyle.allwomenstalk.com/how-many-of-these-totally-real-phobias-do-you-have/)
-- [is little everyday things legit](https://inspiration.allwomenstalk.com/little-everyday-things-that-give-insight-into-your-personality/)
 - [why millennials are scared of talking on the phone](https://lifestyle.allwomenstalk.com/even-fearless-millennials-secretly-fear-these-things/)
+- [fear of being abandoned phobia name](https://lifestyle.allwomenstalk.com/how-many-of-these-totally-real-phobias-do-you-have/)
+- [truth friends](https://lifestyle.allwomenstalk.com/the-tragic-truth-about-every-friend-group/)
+- [happiness is cartoons](https://lifestyle.allwomenstalk.com/happiness-is/)
+- [what are the keys to happiness](https://inspiration.allwomenstalk.com/this-is-what-science-says-are-the-keys-to-happiness/)
+- [high maintenance woman vs low maintenance](https://lifestyle.allwomenstalk.com/reasons-why-its-a-good-thing-to-be-a-high-maintenance-woman/)
+- [23 year ild](https://lifestyle.allwomenstalk.com/things-you-learn-when-hanging-out-with-a-23-year-old/)
+- [is little everyday things legit](https://inspiration.allwomenstalk.com/little-everyday-things-that-give-insight-into-your-personality/)
+- [did my face say that out loud](https://lifestyle.allwomenstalk.com/speak-up-feelings-you-should-always-say-out-loud/)
 - [9 Things That Can Harm Your Career ...](https://allwomenstalk.com/9-things-that-can-harm-your-career/)
 - [11 Self-Destructive Behaviors ...](https://allwomenstalk.com/11-self-destructive-behaviors/)
 

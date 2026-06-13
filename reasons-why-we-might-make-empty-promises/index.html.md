@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons Why People Tend to Make Empty Promises ..."
+title: "7 Reasons Why 🤔 People Tend to Make Empty Promises 🤞 ..."
 description: "Fear of Disapproval; Need to Please; You Have a Problem Saying No; You Want to Be Seen as Trustworthy; Speaking without Evaluating; More ..."
 url: "https://inspiration.allwomenstalk.com/reasons-why-we-might-make-empty-promises/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons Why  People Tend to Make Empty Promises  ...
+# 7 Reasons Why 🤔 People Tend to Make Empty Promises 🤞 ...
 
 Empty promises are just that-empty. They have no follow though and are essentially just meaningless words. We've all experienced them, either given them out or received them and hung on to the false hope of their fruition. The reasons behind empty promises are many, and some might even surprise you! Since we've all experienced them in some form, there's no reason to feel bad or guilty but rather be aware of why they happen in the first place!
 
@@ -42,16 +42,16 @@ While it's totally common to make empty promises, it's good to be aware of what 
 
 ## Related Posts
 
-- [kindly hearted](https://lifestyle.allwomenstalk.com/reasons-why-its-bittersweet-to-be-kind-hearted/)
-- [cute couple dpz instagram](https://love.allwomenstalk.com/why-you-need-to-get-rid-of-the-idea-of-relationshipgoals/)
-- [why not to text your ex](https://love.allwomenstalk.com/dont-text-your-ex-heres-why/)
-- [The 7 Dumbest Reasons Why Men Have Dumped Women .....](https://love.allwomenstalk.com/the-dumbest-reasons-why-men-have-dumped-women/)
-- [when your ex bad mouths you](https://love.allwomenstalk.com/why-does-it-bother-you-when-other-people-badmouth-your-ex/)
-- [how to stop caring about a girl](https://inspiration.allwomenstalk.com/reasons-why-girls-with-self-confidence-issues-shouldnt-care-what-others-think-of-them/)
-- [when you marry your best friend](https://love.allwomenstalk.com/yes-of-course-you-should-marry-your-best-friend-heres-why/)
-- [reasons to like a guy](https://love.allwomenstalk.com/reasons-you-are-attracted-to-a-guy-you-dont-like/)
-- [following your ex on social media](https://love.allwomenstalk.com/this-is-why-you-shouldnt-follow-your-ex-on-social-media/)
 - [partner has a problem](https://love.allwomenstalk.com/reasons-why-you-cant-actually-solve-all-of-your-partners-problems/)
+- [when your ex bad mouths you](https://love.allwomenstalk.com/why-does-it-bother-you-when-other-people-badmouth-your-ex/)
+- [reasons to like a guy](https://love.allwomenstalk.com/reasons-you-are-attracted-to-a-guy-you-dont-like/)
+- [kindly hearted](https://lifestyle.allwomenstalk.com/reasons-why-its-bittersweet-to-be-kind-hearted/)
+- [following your ex on social media](https://love.allwomenstalk.com/this-is-why-you-shouldnt-follow-your-ex-on-social-media/)
+- [why not to text your ex](https://love.allwomenstalk.com/dont-text-your-ex-heres-why/)
+- [when you marry your best friend](https://love.allwomenstalk.com/yes-of-course-you-should-marry-your-best-friend-heres-why/)
+- [The 7 Dumbest Reasons Why Men Have Dumped Women .....](https://love.allwomenstalk.com/the-dumbest-reasons-why-men-have-dumped-women/)
+- [cute couple dpz instagram](https://love.allwomenstalk.com/why-you-need-to-get-rid-of-the-idea-of-relationshipgoals/)
+- [how to stop caring about a girl](https://inspiration.allwomenstalk.com/reasons-why-girls-with-self-confidence-issues-shouldnt-care-what-others-think-of-them/)
 - [Why I do This - 6 Reasons ...](https://allwomenstalk.com/why-i-do-this-6-reasons/)
 - [7 Reasons People Lie ...](https://allwomenstalk.com/7-reasons-people-lie/)
 

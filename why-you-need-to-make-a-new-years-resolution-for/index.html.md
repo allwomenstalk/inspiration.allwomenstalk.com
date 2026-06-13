@@ -1,12 +1,12 @@
 ---
-title: "Why You Need to Make a New Years Resolution for 2018 ..."
+title: "Why You Need to Make a New Year's Resolution for 2018 ..."
 description: "Make a Fresh Start; Shake It up; It’s a Challenge; It Will Make You Stronger; Success Feels Good; More ..."
 url: "https://inspiration.allwomenstalk.com/why-you-need-to-make-a-new-years-resolution-for/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Why You Need to Make a New Years Resolution for 2018 ...
+# Why You Need to Make a New Year's Resolution for 2018 ...
 
 Hands up if you say any or all of these: “I don’t make resolutions because I never keep them.” “I like to set goals all the time, not just at New Year’s.” “I don’t believe in making resolutions.” “I think New Year’s resolutions are stupid.” “Oh, I haven’t thought about it yet.” If your hand is up, please put it down because I would like to change your mind. I think there are some very **good reasons to make New Year’s resolutions**.
 
@@ -64,17 +64,17 @@ Resolutions take a lot of effort, grace, soul-searching and motivation to achiev
 
 ## Related Posts
 
-- [The Best Reasons to Treat Yourself to a Massage .....](https://health.allwomenstalk.com/the-best-reasons-to-treat-yourself-to-a-massage/)
 - [early riser companion](https://lifestyle.allwomenstalk.com/important-reasons-why-you-should-get-up-every-morning-before-7am/)
+- [Why Running a Race is 100 Percent Worth It ...](https://running.allwomenstalk.com/why-running-a-race-is-percent-worth-it/)
+- [The Best Reasons to Treat Yourself to a Massage .....](https://health.allwomenstalk.com/the-best-reasons-to-treat-yourself-to-a-massage/)
 - [7 Reasons 2019 is the Year to Learn to Love Your B...](https://beauty.allwomenstalk.com/reasons-is-the-year-to-learn-to-love-your-body/)
 - [10 Great Reasons to Start Your Own Blog for People...](https://lifestyle.allwomenstalk.com/great-reasons-to-start-your-own-blog-for-people-who-love-to-write/)
-- [Why Running a Race is 100 Percent Worth It ...](https://running.allwomenstalk.com/why-running-a-race-is-percent-worth-it/)
-- [Completely Convincing Reasons to Buy Yourself a Bo...](https://health.allwomenstalk.com/reasons-to-buy-a-body-pillow/)
+- [Why Your Website Should Include Videos ...](https://money.allwomenstalk.com/why-your-website-should-include-videos/)
 - [8 Reasons to Get Inspired to Travel for Those Who ...](https://travel.allwomenstalk.com/reasons-to-get-inspired-to-travel-for-those-who-have-not-been-anywhere-yet/)
+- [Completely Convincing Reasons to Buy Yourself a Bo...](https://health.allwomenstalk.com/reasons-to-buy-a-body-pillow/)
 - [Defining Reasons to Live a Healthy Lifestyle ...](https://health.allwomenstalk.com/reasons-to-live-a-healthy-lifestyle/)
 - [Perfect Reasons to Take up Horse Riding ...](https://lifestyle.allwomenstalk.com/reasons-to-take-up-horse-riding/)
-- [Why Your Website Should Include Videos ...](https://money.allwomenstalk.com/why-your-website-should-include-videos/)
-- [10 New Years Diet Resolutions Thatll Get You the B...](https://diet.allwomenstalk.com/new-years-diet-resolutions-thatll-get-you-the-body-youve-always-wanted/)
+- [10 New Year's Diet Resolutions That'll Get You the...](https://diet.allwomenstalk.com/new-years-diet-resolutions-thatll-get-you-the-body-youve-always-wanted/)
 - [Weight Loss: a New Year Resolution ...](https://allwomenstalk.com/weight-loss-a-new-year-resolution/)
 
 ## Site Information

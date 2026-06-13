@@ -1,12 +1,12 @@
 ---
-title: "10 Life Changing Ways to Boost Your Self Confidence in Less than 5 Minutes ..."
+title: "10 Life Changing Ways to Boost Your Self Confidence in Less than 5 Minutes ⏲ ..."
 description: "Do Something You're Good at; Dress to Impress; Wear Lingerie; Talk to Yourself; One Sentence a Day; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-boost-your-self-confidence-in-less-than-5-minutes/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 Life Changing Ways to Boost Your Self Confidence in Less than 5 Minutes  ...
+# 10 Life Changing Ways to Boost Your Self Confidence in Less than 5 Minutes ⏲ ...
 
 We all know about the golden rule: treat others the way you want to be treated. But have you ever thought to treat yourself the way you treat others? Think about it; you would never tell your friends "You have too much acne, you need to lose weight, you're undateable" so why do you say those things to yourself? If you're tired of feeling insecure, conquer your self-doubt with self-confidence!
 
@@ -74,15 +74,15 @@ For some of us, confidence is even harder to achieve than our goal body or perfe
 
 ## Related Posts
 
-- [Tips to Help You Face Your Fears and Conquer Even ...](https://inspiration.allwomenstalk.com/tips-to-help-you-face-your-fears-and-conquer-even-your-scariest-dreams/)
-- [im not an afterthought quotes](https://inspiration.allwomenstalk.com/how-to-make-yourself-a-1-priority-not-an-afterthought/)
-- [New Years Resolutions to Achieve in a Week All Imp...](https://inspiration.allwomenstalk.com/new-years-resolutions-to-achieve-in-a-week-all-impatient-people-will-love/)
-- [30 days of confidence](https://inspiration.allwomenstalk.com/days-to-a-more-confident-you/)
 - [The All-Inclusive Guide to Starting an Amazing Bul...](https://inspiration.allwomenstalk.com/the-all-inclusive-guide-to-starting-an-amazing-bullet-journal/)
-- [9 One-Minute or Less Ways to Turn Your Shtty Day a...](https://lifestyle.allwomenstalk.com/one-minute-or-less-ways-to-turn-your-shtty-day-around/)
+- [social media destroys a person's self esteem](https://inspiration.allwomenstalk.com/simple-ways-to-stop-social-media-comparisons-before-it-destroys-your-self-esteem/)
+- [Tips to Help You Face Your Fears and Conquer Even ...](https://inspiration.allwomenstalk.com/tips-to-help-you-face-your-fears-and-conquer-even-your-scariest-dreams/)
+- [i'm not an afterthought quotes](https://inspiration.allwomenstalk.com/how-to-make-yourself-a-1-priority-not-an-afterthought/)
 - [How to Overcome the Fear of Not Being Good Enough ...](https://inspiration.allwomenstalk.com/how-to-overcome-the-fear-of-not-being-good-enough/)
-- [social media destroys a persons self esteem](https://inspiration.allwomenstalk.com/simple-ways-to-stop-social-media-comparisons-before-it-destroys-your-self-esteem/)
+- [9 One-Minute or Less Ways to Turn Your Sh*tty Day ...](https://lifestyle.allwomenstalk.com/one-minute-or-less-ways-to-turn-your-shtty-day-around/)
+- [New Year's Resolutions to Achieve in a Week All Im...](https://inspiration.allwomenstalk.com/new-years-resolutions-to-achieve-in-a-week-all-impatient-people-will-love/)
 - [How to Rock the Hygge Lifestyle to Be Happier ...](https://lifestyle.allwomenstalk.com/the-amazing-scandinavian-trend-hygge-for-people-who-want-to-feel-happier/)
+- [30 days of confidence](https://inspiration.allwomenstalk.com/days-to-a-more-confident-you/)
 - [loreal riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/learning-your-inner-strength-when-you-just-cant-find-your-way/)
 - [12 Best Ways to Improve Your Self Confidence ...](https://allwomenstalk.com/12-best-ways-to-improve-your-self-confidence/)
 - [10 Effective Ways to Boost Your Self-Confidence .....](https://allwomenstalk.com/10-effective-ways-to-boost-your-self-confidence/)

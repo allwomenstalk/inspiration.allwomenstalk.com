@@ -3,7 +3,7 @@ title: "Show off Friends? How to Deal with One-upmanship ..."
 description: "Interrupt Her when She is Talking; Start a Side Conversation Quietly; Yawn; Grow up and Deal with It; Patronize the Very Boastful; More ..."
 url: "https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Show off Friends? How to Deal with One\-upmanship ...
@@ -45,15 +45,15 @@ Your actions really depend on how much the issue bothers you. Have you got any f
 ## Related Posts
 
 - [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
-- [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
-- [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
-- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
-- [dont embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
-- [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
 - [cattiness at work](https://lifestyle.allwomenstalk.com/meow-hiss-how-to-deal-with-catty-women-at-work/)
 - [how to stop gossip about you](https://lifestyle.allwomenstalk.com/when-people-gossip-about-you-do-these-things/)
-- [what if partner doesnt like engagement ring](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
+- [don't embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
+- [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
+- [what if partner doesn't like engagement ring?](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
+- [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
 - [ignore negative people](https://inspiration.allwomenstalk.com/tips-for-ignoring-the-negative-people-in-your-life/)
+- [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
+- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
 - [15 Tips on How to Deal with You and Your Friend Li...](https://allwomenstalk.com/12-tips-for-you-and-your-friend-like-the-same-guy-situation/)
 - [10 Ways to Spot a Frenemy ...](https://allwomenstalk.com/10-ways-to-spot-a-frenemy/)
 

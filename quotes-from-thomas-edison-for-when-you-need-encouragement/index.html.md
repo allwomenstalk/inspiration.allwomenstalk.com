@@ -3,7 +3,7 @@ title: "Encouraging Quotes from Thomas Edison for Some Instant Motivation ..."
 description: "No Such Thing as Failure; Hard Work; Don’t Give up; What Causes Failure; Possibilities; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-from-thomas-edison-for-when-you-need-encouragement/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Encouraging Quotes from Thomas Edison for Some Instant Motivation ...
@@ -58,16 +58,16 @@ Thomas Edison was a famous and successful man, who will forever be known as a gr
 
 ## Related Posts
 
-- [quotes close friends](https://inspiration.allwomenstalk.com/quotes-about-friendship/)
-- [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
 - [inspirational quotes from robin williams](https://celebs.allwomenstalk.com/memorable-quotes-from-robin-williams-to-celebrate-his-genius/)
-- [famous quotes from comedians](https://funny.allwomenstalk.com/quotes-from-comedians-that-will-give-you-strength-to-be-happy/)
-- [inspirational quotes about loving yourself](https://inspiration.allwomenstalk.com/inspiring-quotes-about-loving-yourself/)
+- [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
 - [quotes tattoo about life](https://inspiration.allwomenstalk.com/inspiring-quote-tattoos-that-will-make-you-want-to-get-inked/)
-- [aladdin best quotes](https://funny.allwomenstalk.com/silly-but-inspirational-robin-williams-genie-quotes-from-aladdin/)
-- [quotes from eckhart tolle](https://inspiration.allwomenstalk.com/eckhart-tolle-quotes-to-help-you-put-things-into-perspective/)
-- [alice sayings](https://inspiration.allwomenstalk.com/inspirational-alice-in-wonderland-quotes-thatll-make-you-think/)
 - [fear of amp](https://inspiration.allwomenstalk.com/quotes-about-courage-that-will-amp-up-your-fearlessness/)
+- [inspirational quotes about loving yourself](https://inspiration.allwomenstalk.com/inspiring-quotes-about-loving-yourself/)
+- [aladdin best quotes](https://funny.allwomenstalk.com/silly-but-inspirational-robin-williams-genie-quotes-from-aladdin/)
+- [famous quotes from comedians](https://funny.allwomenstalk.com/quotes-from-comedians-that-will-give-you-strength-to-be-happy/)
+- [alice sayings](https://inspiration.allwomenstalk.com/inspirational-alice-in-wonderland-quotes-thatll-make-you-think/)
+- [quotes close friends](https://inspiration.allwomenstalk.com/quotes-about-friendship/)
+- [quotes from eckhart tolle](https://inspiration.allwomenstalk.com/eckhart-tolle-quotes-to-help-you-put-things-into-perspective/)
 - [11 Most Inspiring Quotes from Albert Einstein to H...](https://inspiration.allwomenstalk.com/most-inspiring-quotes-from-albert-einstein-to-help-you-get-back-on-your-feet/)
 - [10 Motivational Quotes on Success That Will Make Y...](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
 

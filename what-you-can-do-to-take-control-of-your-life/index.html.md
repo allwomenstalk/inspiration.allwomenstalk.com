@@ -1,12 +1,12 @@
 ---
-title: "Life Saving Advice to Gain Control when You Feel Youve Lost It in Life ..."
+title: "Life Saving Advice to Gain Control when You Feel You've Lost It in Life ..."
 description: "Decide What You Really Want; Stop Trying to Please Others; Choose Your Media Carefully; Stop Making Excuses; Become a Healthier Person; More ..."
 url: "https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Life Saving Advice to Gain Control when You Feel Youve Lost It in Life ...
+# Life Saving Advice to Gain Control when You Feel You've Lost It in Life ...
 
 If it feels like your life is out of control, there are things you can do to take back control. Realistically speaking, it's impossible to control every aspect of our lives. However, you're more powerful than you think. So, there's plenty you can do to become a better person and change your life. Here are seven things you can do to take control of your life.
 
@@ -56,18 +56,18 @@ You have the power to take control of your life, so stop making excuses and crea
 
 ## Related Posts
 
-- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
-- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
 - [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
-- [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
+- [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
 - [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
+- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
 - [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
 - [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
-- [how can you achieve happiness](https://inspiration.allwomenstalk.com/how-keeping-it-real-will-keep-you-happy/)
-- [dont be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
+- [how to complete life](https://inspiration.allwomenstalk.com/things-thatll-make-your-life-feel-complete/)
+- [don't be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
 - [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
+- [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
 - [7 Reasons to Never Give up on Life or Yourself ...](https://inspiration.allwomenstalk.com/reasons-to-never-give-up-on-life-or-yourself/)
-- [Heres How to Avoid Losing Hope so You Can Live a L...](https://inspiration.allwomenstalk.com/heres-how-to-avoid-losing-hope-so-you-can-live-a-life-you-love/)
+- [Here's How to Avoid Losing Hope so You Can Live a ...](https://inspiration.allwomenstalk.com/heres-how-to-avoid-losing-hope-so-you-can-live-a-life-you-love/)
 
 ## Site Information
 

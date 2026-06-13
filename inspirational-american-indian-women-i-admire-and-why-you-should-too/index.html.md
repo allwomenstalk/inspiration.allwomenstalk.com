@@ -1,12 +1,12 @@
 ---
-title: "7 Inspirational American Indian Women I Admire and Why You Should Too ..."
+title: "7 Inspirational American Indian Women I Admire and Why You Should, Too ..."
 description: "Marjorie \"Grandma\" Thomas (Navajo); Maria Tallchief (Osage); Wilma Mankiller (Cherokee); Maria Edmonia Lewis (Ojibwe); Patricia Michaels (Taos Pueblo); More ..."
 url: "https://inspiration.allwomenstalk.com/inspirational-american-indian-women-i-admire-and-why-you-should-too/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Inspirational American Indian Women I Admire and Why You Should Too ...
+# 7 Inspirational American Indian Women I Admire and Why You Should, Too ...
 
 Inspirational American Indian women are all around us. Like women of all backgrounds, many are artists, activists, teachers and so much more. Whether currently active or living on through history books, these women have left their mark. There are a number of women I admire for their work and accomplishments. Below is a list of seven inspirational American Indian Women I’d like to introduce to you to.
 
@@ -56,16 +56,16 @@ There is a multitude of lists of important women from all backgrounds throughout
 
 ## Related Posts
 
-- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
-- [female sport movies](https://movies.allwomenstalk.com/awesome-womens-sports-movies-to-add-to-your-must-watch-list/)
-- [dumblonde smart hair](https://celebs.allwomenstalk.com/women-who-prove-that-there-is-no-such-thing-as-a-dumb-blonde/)
-- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
-- [7 Kick-Ass Celebrities Who Support Womens Rights ....](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
 - [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
 - [disney princess live action movie](https://celebs.allwomenstalk.com/actresses-who-should-play-disney-princesses-in-live-action-movies/)
 - [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
-- [ladies one](https://inspiration.allwomenstalk.com/classy-ladies-from-the-past-and-present-we-can-learn-from/)
+- [dumblonde smart hair](https://celebs.allwomenstalk.com/women-who-prove-that-there-is-no-such-thing-as-a-dumb-blonde/)
+- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
+- [female sport movies](https://movies.allwomenstalk.com/awesome-womens-sports-movies-to-add-to-your-must-watch-list/)
+- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
 - [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
+- [7 Kick-Ass Celebrities Who Support Women's Rights ...](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
+- [ladies one](https://inspiration.allwomenstalk.com/classy-ladies-from-the-past-and-present-we-can-learn-from/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [5 Great Women to Admire...](https://allwomenstalk.com/5-great-women-to-admire/)
 

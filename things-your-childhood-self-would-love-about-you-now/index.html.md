@@ -3,7 +3,7 @@ title: "7 Things Your Childhood Self Would Love about You Now ..."
 description: "Looking Good; Learning Experience; Granted Independence; Move along; Real Relationships; More ..."
 url: "https://inspiration.allwomenstalk.com/things-your-childhood-self-would-love-about-you-now/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Things Your Childhood Self Would Love about You Now ...
@@ -42,17 +42,17 @@ We have a different set of goals when we’re children, but that doesn’t chang
 
 ## Related Posts
 
-- [successful athlete](https://inspiration.allwomenstalk.com/secrets-of-successful-athletes-we-can-all-learn-from/)
-- [dont let the past steal your present](https://inspiration.allwomenstalk.com/habits-that-steal-your-happiness-that-you-never-considered-before/)
-- [how to get magical powers](https://lifestyle.allwomenstalk.com/times-when-you-think-you-might-just-have-magical-powers/)
-- [daddy lessons beyonce meaning](https://celebs.allwomenstalk.com/things-we-can-all-learn-from-beyonce/)
-- [asian stereotype funny](https://lifestyle.allwomenstalk.com/ridiculous-asian-stereotypes-people-need-to-get-over/)
-- [habit okay regret](https://lifestyle.allwomenstalk.com/bad-habits-you-will-regret-later-in-life/)
-- [as ive gotten older](https://lifestyle.allwomenstalk.com/lessons-ive-learnt-as-ive-gotten-older/)
-- [last day of 30s meme](https://lifestyle.allwomenstalk.com/fabulous-things-to-love-about-your-30s/)
 - [life questions to think about](https://inspiration.allwomenstalk.com/deep-and-thought-provoking-questions-to-think-about/)
+- [daddy lessons beyonce meaning](https://celebs.allwomenstalk.com/things-we-can-all-learn-from-beyonce/)
 - [small charities that need help](https://lifestyle.allwomenstalk.com/lesser-known-charities-youll-want-to-be-a-part-of/)
-- [5 Things Wed Love for You to Love...](https://allwomenstalk.com/5-things-wed-love-for-you-to-love/)
+- [how to get magical powers](https://lifestyle.allwomenstalk.com/times-when-you-think-you-might-just-have-magical-powers/)
+- [asian stereotype funny](https://lifestyle.allwomenstalk.com/ridiculous-asian-stereotypes-people-need-to-get-over/)
+- [successful athlete](https://inspiration.allwomenstalk.com/secrets-of-successful-athletes-we-can-all-learn-from/)
+- [last day of 30s meme](https://lifestyle.allwomenstalk.com/fabulous-things-to-love-about-your-30s/)
+- [habit okay regret](https://lifestyle.allwomenstalk.com/bad-habits-you-will-regret-later-in-life/)
+- [don't let the past steal your present](https://inspiration.allwomenstalk.com/habits-that-steal-your-happiness-that-you-never-considered-before/)
+- [as i've gotten older](https://lifestyle.allwomenstalk.com/lessons-ive-learnt-as-ive-gotten-older/)
+- [5 Things We'd Love for You to Love...](https://allwomenstalk.com/5-things-wed-love-for-you-to-love/)
 - [7 Things That Make You Beautiful ...](https://allwomenstalk.com/7-things-that-make-you-beautiful/)
 
 ## Site Information

@@ -1,12 +1,12 @@
 ---
-title: "Are You Feeling Friendzoned? Heres 9 Ways to Know for Sure!"
+title: "Are You Feeling Friendzoned? Here's 9 Ways to Know for Sure!"
 description: "He Talks to You about Girls He Finds Cute; He Keeps Pointing out Guys That Are Perfect for You; Generally Hangs out with You in a Group; Doesn’t Bother Cleaning up for You; Refers to You as ‘His Best Pal’ Repeatedly; More ..."
 url: "https://inspiration.allwomenstalk.com/are-you-feeling-friendzoned-heres-ways-to-know-for-sure/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Are You Feeling Friendzoned? Heres 9 Ways to Know for Sure!
+# Are You Feeling Friendzoned? Here's 9 Ways to Know for Sure!
 
 Relationships are never easy are they? And things get tricky when you like a boy and he, well, doesn’t. But what makes it worse is the feeling that you’re getting systematically friendzoned by this guy you really really like. And yes, girls do get friendzoned. Do you feel this is happening to you? Maybe these 9 clues will help you know for sure!
 
@@ -50,16 +50,16 @@ A lot of people start out as friends and then along the way realize they’re pe
 
 ## Related Posts
 
-- [Here Are the 7 Things You Should Be Happy to do fo...](https://love.allwomenstalk.com/here-are-the-things-you-should-be-happy-to-do-for-your-bf/)
-- [decoding men](https://love.allwomenstalk.com/decoding-your-man-how-to-figure-out-what-he-wants-from-you/)
-- [Tell What Hes Thinking Just by Looking at His Pupi...](https://love.allwomenstalk.com/tell-what-hes-thinking-just-by-looking-at-his-pupils/)
-- [7 Silly Ways to Let Him down Easy ...](https://funny.allwomenstalk.com/silly-ways-to-let-him-down-easy/)
-- [Make Your Mates Morning Easier with These Sweet Ti...](https://love.allwomenstalk.com/make-your-mates-morning-easier-with-these-sweet-tips/)
 - [how to find dates online](https://love.allwomenstalk.com/how-to-find-a-great-date-online/)
-- [Strut Your Stuff - 7 Ways to Get Your Boyfriends A...](https://love.allwomenstalk.com/strut-your-stuff-ways-to-get-your-boyfriends-attention/)
+- [Strut Your Stuff - 7 Ways to Get Your Boyfriend's ...](https://love.allwomenstalk.com/strut-your-stuff-ways-to-get-your-boyfriends-attention/)
+- [decoding men](https://love.allwomenstalk.com/decoding-your-man-how-to-figure-out-what-he-wants-from-you/)
+- [7 Silly Ways to Let Him down Easy ...](https://funny.allwomenstalk.com/silly-ways-to-let-him-down-easy/)
+- [Body Language That'll Make Him Assume You Don't li...](https://love.allwomenstalk.com/body-language-thatll-make-him-assume-you-dont-like-him/)
+- [Tell What He's Thinking Just by Looking at His Pup...](https://love.allwomenstalk.com/tell-what-hes-thinking-just-by-looking-at-his-pupils/)
+- [Make Your Mate's Morning Easier with These Sweet T...](https://love.allwomenstalk.com/make-your-mates-morning-easier-with-these-sweet-tips/)
 - [laser tag hacks](https://love.allwomenstalk.com/rules-of-attraction-what-to-know-to-land-your-crush/)
-- [Body Language Thatll Make Him Assume You Dont like...](https://love.allwomenstalk.com/body-language-thatll-make-him-assume-you-dont-like-him/)
-- [Is He Good Enough for You Date Etiquette a Real Ge...](https://love.allwomenstalk.com/is-he-good-enough-for-you-date-etiquette-a-real-gentleman-should-always-follow/)
+- [Here Are the 7 Things You Should Be Happy to do fo...](https://love.allwomenstalk.com/here-are-the-things-you-should-be-happy-to-do-for-your-bf/)
+- [Is He Good Enough for You? Date Etiquette a Real G...](https://love.allwomenstalk.com/is-he-good-enough-for-you-date-etiquette-a-real-gentleman-should-always-follow/)
 - [9 Easy Ways to Ask a Guy out ...](https://love.allwomenstalk.com/easy-ways-to-ask-a-guy-out/)
 - [15 Ways to Be Completely Sure a Guy is into You .....](https://allwomenstalk.com/12-ways-to-be-completely-sure-a-guy-likes-you/)
 

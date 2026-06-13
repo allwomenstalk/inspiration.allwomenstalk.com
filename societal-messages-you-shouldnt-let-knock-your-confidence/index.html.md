@@ -1,12 +1,12 @@
 ---
-title: "7 Societal Messages You Shouldnt Let Knock Your Confidence ..."
+title: "7 Societal Messages You Shouldn't Let Knock Your Confidence ..."
 description: "Thin is Better; A Degree is Everything; Money Will Make You Happy; Disorders Are Glorified; Only Men Can Be Promiscuous; More ..."
 url: "https://inspiration.allwomenstalk.com/societal-messages-you-shouldnt-let-knock-your-confidence/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Societal Messages You Shouldnt Let Knock Your Confidence ...
+# 7 Societal Messages You Shouldn't Let Knock Your Confidence ...
 
 Magazines, television, and radio have taught us to believe certain things about beauty and success, but there are societal messages you shouldn’t let knock your confidence. You can’t believe everything you read or hear in the media. Although we’ve been conditioned to think a particular way, we need to learn to re-evaluate our priorities. When you turn on the television or open a magazine, here are some messages you shouldn’t let knock your confidence:
 
@@ -42,15 +42,15 @@ You’re amazing, no matter what you look like or how you behave. Are there any 
 
 ## Related Posts
 
-- [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
-- [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
-- [what are the things that keep you from living up t...](https://inspiration.allwomenstalk.com/things-that-are-stopping-you-from-reaching-your-full-potential/)
-- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
-- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
-- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
-- [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
 - [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
 - [not a teen anymore](https://teen.allwomenstalk.com/things-not-to-stress-about-anymore/)
+- [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
+- [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
+- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
+- [what are the things that keep you from living up t...](https://inspiration.allwomenstalk.com/things-that-are-stopping-you-from-reaching-your-full-potential/)
+- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
+- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
+- [how to stop telling yourself negative things](https://inspiration.allwomenstalk.com/things-to-stop-telling-yourself-if-you-want-to-be-successful/)
 - [similarities and differences between generations](https://inspiration.allwomenstalk.com/differences-between-generations-that-we-cant-seem-to-accept/)
 - [8 Reasons Not to Be Influenced by Media Images ...](https://allwomenstalk.com/8-reasons-not-to-be-influenced-by-media-images/)
 - [7 Conversation Killers You Must Avoid ...](https://allwomenstalk.com/7-conversation-killers-you-must-avoid/)

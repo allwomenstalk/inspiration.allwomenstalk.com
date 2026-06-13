@@ -1,12 +1,12 @@
 ---
-title: "21 Quotes to Calm You down when Youre Feeling Confused ..."
+title: "21 Quotes to Calm You down when You're Feeling Confused ..."
 description: "Sometimes You Have to Let People Go; Because when You Stop and Look around, Life is Pretty Amazing; Staying Strong; The Flower Blossoms; Daring Greatly Means the Courage to Be Vulnerable; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-when-youre-feeling-confused/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 21 Quotes to Calm You down when Youre Feeling Confused ...
+# 21 Quotes to Calm You down when You're Feeling Confused ...
 
 Life can get so confusing so quickly. No matter what's going on in your life, if you're currently trying to figure things out in your life, there are quotes on this list that will help you in even the most confusing, weird, and upsetting times. These quotes will give you hope in the darkest and strangest of times!
 
@@ -140,17 +140,17 @@ What's your favorite quote on this list? Did one in particular help you? Let me 
 
 ## Related Posts
 
-- [tattoo keep going](https://beauty.allwomenstalk.com/these-motivational-tattoos-will-make-you-go-after-your-goals/)
+- [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
 - [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
-- [stories about dreams](https://love.allwomenstalk.com/the-short-story-thatll-urge-you-to-follow-your-dreams/)
-- [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
 - [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
+- [tattoo keep going](https://beauty.allwomenstalk.com/these-motivational-tattoos-will-make-you-go-after-your-goals/)
+- [stories about dreams](https://love.allwomenstalk.com/the-short-story-thatll-urge-you-to-follow-your-dreams/)
+- [harper lee quotes](https://celebs.allwomenstalk.com/inspirational-harper-lee-quotes-you-should-remember-her-by/)
 - [writing in snow](https://inspiration.allwomenstalk.com/inspirational-messages-written-in-the-snow/)
 - [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
 - [powerful toni morrison quotes](https://inspiration.allwomenstalk.com/powerful-toni-morrison-quotes-to-push-you-through-life/)
-- [harper lee quotes](https://celebs.allwomenstalk.com/inspirational-harper-lee-quotes-you-should-remember-her-by/)
-- [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
-- [30 Motivational Quotes for when Youre Feeling down...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
+- [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
+- [30 Motivational Quotes for when You're Feeling dow...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 
 ## Site Information

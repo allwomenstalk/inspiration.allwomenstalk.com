@@ -1,12 +1,12 @@
 ---
-title: "10 Quotes to Live by when Youre Feeling down ..."
+title: "10 Quotes to Live by when You're Feeling down ..."
 description: "Be Kind, for Everyone You Meet is Fighting a Hard Battle; If You Want to Be Happy, Be; Before You Diagnose Yourself with Depression or Low Self- Esteem, First Make Sure That You Are Not Surrounded by Assholes; The More You Love Your Decisions, the Less You Need Others to Love Them; The Best Day of Your Life is the One in Which You Decide Your Life is Your Own; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 Quotes to Live by when Youre Feeling down ...
+# 10 Quotes to Live by when You're Feeling down ...
 
 We need quotes to give us a boost when no one else does, you have to be your own cheerleader at times when you don't have a team. You have to lift yourself up and keep going just like everybody in this world who is still breathing.
 
@@ -42,17 +42,17 @@ You have to keep fighting for yourself especially at times when the people you c
 
 ## Related Posts
 
-- [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
-- [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
-- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
-- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
-- [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
-- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
-- [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
-- [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 - [kaiser quotes](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
+- [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
+- [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
+- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
+- [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
+- [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
+- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
+- [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
 - [8 Poems I Love ...](https://allwomenstalk.com/8-poems-i-love/)
-- [30 Motivational Quotes for when Youre Feeling down...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
+- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
+- [30 Motivational Quotes for when You're Feeling dow...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 
 ## Site Information

@@ -1,12 +1,12 @@
 ---
-title: "Inspirational Sayings to Buck You up when Youre in a Funk ..."
+title: "Inspirational Sayings to Buck You up when You're in a Funk ..."
 description: "When You're a Good Person, You Don't Lose People...they Lose You; The Best Feeling in the Whole World is Watching Things Finally Fall into Place after Watching Them Fall Apart for so Long; A Flower Does Not Think of Competing with the Flower Next to It. It Just Blooms; Today, I Realized You Don't Care Anymore. and then I Realized, You Probably Never Did Anyway. and the Saddest Part of It All is That You Made Me Believe You Did; Be a Girl with a Mind. a Woman with Attitude, and a Lady with Class; More ..."
 url: "https://inspiration.allwomenstalk.com/inspirational-sayings-to-buck-you-up/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Inspirational Sayings to Buck You up when Youre in a Funk ...
+# Inspirational Sayings to Buck You up when You're in a Funk ...
 
 I'm here with some **inspirational sayings to buck you up**. The following sayings are stuff to think about, especially when in a funk. From what you may see, there are people who have been there, just like you. Don't be sad. Think of this list as a new BFF. Read what they have to say with these **inspirational sayings to buck you up**.
 
@@ -39,17 +39,17 @@ Source
 
 ## Related Posts
 
-- [15 of Todays Stirring Daily Inspo That Will Help Y...](https://inspiration.allwomenstalk.com/daily-inspiration-from-instagram-2/)
 - [A Poem about Life ...](https://inspiration.allwomenstalk.com/a-poem-about-life/)
-- [Inspirational Quotes on Being Yourself ...](https://inspiration.allwomenstalk.com/inspirational-quotes-on-being-yourself/)
-- [Awesome Inspiration to Conquer Fear and Move Forwa...](https://inspiration.allwomenstalk.com/ways-to-conquer-fear-to-move-forward/)
+- [15 of Today's Stirring Daily Inspo That Will Help ...](https://inspiration.allwomenstalk.com/daily-inspiration-from-instagram-2/)
 - [A Poem by Hayley Turner ...](https://inspiration.allwomenstalk.com/a-poem-by-hayley-turner/)
-- [14 of Todays Best Ever Daily Inspo for when You Fe...](https://inspiration.allwomenstalk.com/of-todays-the-best-ever-daily-inspo-for-when-you-feel-like-giving-up/)
+- [Inspirational Quotes on Being Yourself ...](https://inspiration.allwomenstalk.com/inspirational-quotes-on-being-yourself/)
+- [14 of Today's Best Ever Daily Inspo for when You F...](https://inspiration.allwomenstalk.com/of-todays-the-best-ever-daily-inspo-for-when-you-feel-like-giving-up/)
 - [Exceptional Inspiration to Show Being Complacent W...](https://inspiration.allwomenstalk.com/why-being-complacent-will-not-move-you-forward/)
-- [Always Have a Dream by Bari Du Bois ...](https://inspiration.allwomenstalk.com/always-have-a-dream-by-bari-du-bois/)
-- [Inspiring Words on What We Can Learn  about Life f...](https://inspiration.allwomenstalk.com/what-the-rose-teaches-us-about-life/)
+- [Awesome Inspiration to Conquer Fear and Move Forwa...](https://inspiration.allwomenstalk.com/ways-to-conquer-fear-to-move-forward/)
 - [Awesome Inspo to Help You Find Yourself ...](https://inspiration.allwomenstalk.com/awesome-inspo-to-help-you-find-yourself/)
-- [30 Motivational Quotes for when Youre Feeling down...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
+- [Always Have a Dream by Bari Du Bois ...](https://inspiration.allwomenstalk.com/always-have-a-dream-by-bari-du-bois/)
+- [Inspiring Words on What We Can Learn 🤓 about Life...](https://inspiration.allwomenstalk.com/what-the-rose-teaches-us-about-life/)
+- [30 Motivational Quotes for when You're Feeling dow...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [12 Inspirational Life Quotes to Get You through An...](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 
 ## Site Information

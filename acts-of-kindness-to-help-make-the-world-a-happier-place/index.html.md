@@ -3,7 +3,7 @@ title: "35 Kind Acts That Will Make the World a Better Place ..."
 description: "Volunteer; Offer to Help with Shopping; Tell Someone How Much They Mean to You; Make Someone New Feel Welcome; Give a Compliment; More ..."
 url: "https://inspiration.allwomenstalk.com/acts-of-kindness-to-help-make-the-world-a-happier-place/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 35 Kind Acts That Will Make the World a Better Place ...
@@ -154,17 +154,17 @@ These are just some of the little things we can do for each other to create a mi
 
 ## Related Posts
 
-- [Pick a Random Act of Kindness to Perform Today ...](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-to-perform-today/)
-- [how to become strong leader](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-leader/)
-- [7 Steps to Writing Awesome Affirmations ...](https://inspiration.allwomenstalk.com/steps-to-writing-awesome-affirmations/)
-- [7 Ways to Become a Self Validator ...](https://inspiration.allwomenstalk.com/ways-to-become-a-self-validator/)
-- [Centenarians Share Secrets for a Longer Fuller Lif...](https://lifestyle.allwomenstalk.com/life-secrets-of-centenarians/)
-- [7 Ways to Make Your Life a Little Better ...](https://inspiration.allwomenstalk.com/ways-to-make-your-life-a-little-better/)
-- [39 Powerful Affirmations to Help Shift Your Mind-s...](https://inspiration.allwomenstalk.com/powerful-affirmations-to-help-shift-your-mind-set/)
-- [How to Make Sure Every Day is a Good Day ...](https://lifestyle.allwomenstalk.com/how-to-make-sure-every-day-is-a-good-day/)
-- [le stylo spark](https://inspiration.allwomenstalk.com/creative-ways-to-spark-new-ideas/)
 - [7 Ways to Change Your Luck and Start Living a Happ...](https://inspiration.allwomenstalk.com/ways-to-change-your-luck-and-start-living-a-happier-life/)
-- [7 Ways to Make a Difference in Someones Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)
+- [7 Steps to Writing Awesome Affirmations ...](https://inspiration.allwomenstalk.com/steps-to-writing-awesome-affirmations/)
+- [how to become strong leader](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-leader/)
+- [Pick a Random Act of Kindness to Perform Today ...](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-to-perform-today/)
+- [le stylo spark](https://inspiration.allwomenstalk.com/creative-ways-to-spark-new-ideas/)
+- [39 Powerful Affirmations to Help Shift Your Mind-s...](https://inspiration.allwomenstalk.com/powerful-affirmations-to-help-shift-your-mind-set/)
+- [7 Ways to Make Your Life a Little Better ...](https://inspiration.allwomenstalk.com/ways-to-make-your-life-a-little-better/)
+- [How to Make Sure Every Day is a Good Day ...](https://lifestyle.allwomenstalk.com/how-to-make-sure-every-day-is-a-good-day/)
+- [7 Ways to Become a Self Validator ...](https://inspiration.allwomenstalk.com/ways-to-become-a-self-validator/)
+- [Centenarians Share Secrets for a Longer, Fuller Li...](https://lifestyle.allwomenstalk.com/life-secrets-of-centenarians/)
+- [7 Ways to Make a Difference in Someone's Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)
 - [7 Great Acts of Kindness You Can Copy ...](https://allwomenstalk.com/7-great-acts-of-kindness-you-can-copy/)
 
 ## Site Information

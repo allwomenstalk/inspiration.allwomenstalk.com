@@ -1,12 +1,12 @@
 ---
-title: "How to Stop Suffering from FoMo Fear of Missing out ..."
+title: "How to Stop Suffering from FoMo (Fear of Missing out) ..."
 description: "Turn off; Enjoy the Silence; Get a Hobby or Two; Over Committing; Face to Face; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# How to Stop Suffering from FoMo Fear of Missing out ...
+# How to Stop Suffering from FoMo \(Fear of Missing out\) ...
 
 Fear of missing out, or FoMo if you know it by its acronym, is something many people appear to be experiencing nowadays, but there are some ways to fight FoMo that may mean you won't have to suffer any longer. The acronym was actually added to the Oxford English Dictionary last year and it is defined as an anxiety induced by the knowledge that 'an exciting or interesting event may be currently happening elsewhere, often aroused by posts seen on a social media website.' Our lives are so different to our parents' and with the advent of social media, there seems to be a lot more pressure on people nowadays to keep up with each other and show others that their lives and loves are awesome all the time. Of course, that's not to say that the generations before didn't suffer from this phenomenon but it's safe to say that social media has amplified many of the social and psychological pressures on people. We seem to be suffering from a digital-age case of 'keeping up with the Joneses.' You know what it's like. You're trawling through the social networking sites and you can see amazing holiday snaps and family photos where everyone looks oh so happy. And there's a little part of us inside which thinks, "Why is my life not like that?!" Take a look at these ways to fight FoMo.
 
@@ -45,16 +45,16 @@ Are you suffering from a case of FoMo? You can find out by doing a quiz at [rate
 
 ## Related Posts
 
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
 - [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
-- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
-- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
 - [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
 - [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
-- [as the year draws to a close](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
+- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
+- ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
 - [How to Get through a Stressful Time ...](https://allwomenstalk.com/how-to-get-through-a-stressful-time-2/)
 - [Finding Peace of Mind ...](https://allwomenstalk.com/finding-peace-of-mind-in-2021/)
 

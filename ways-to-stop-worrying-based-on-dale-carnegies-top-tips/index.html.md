@@ -1,12 +1,12 @@
 ---
-title: "7 Ways to Stop Worrying Based on Dale Carnegies Top Tips ..."
+title: "7 Ways to Stop Worrying Based on Dale Carnegie's Top Tips ..."
 description: "Live in \"Day-tight Compartments\"; What's the Worst That Can Happen?; Get All the Facts; Keep Busy; Cultivate a Mental Attitude to Bring Peace and Happiness into Your Life; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-stop-worrying-based-on-dale-carnegies-top-tips/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Ways to Stop Worrying Based on Dale Carnegies Top Tips ...
+# 7 Ways to Stop Worrying Based on Dale Carnegie's Top Tips ...
 
 One book that has helped quell my worrying is Dale Carnegie's “How To Stop Worrying and Start Living,” and I would like to share these ways to stop worrying based on Dale Carnegie’s top tips. This book was published in 1948 and he wrote it because he was making himself sick with worry. Worrying is one of those things that can snowball out of control and I'm prone to donning my finery and having a dance on the worry float at the worry parade. This book, however, is filled with personal stories by people he knew and demonstrates the negative impact worrying can have on all our lives. It is full of some great tips that I refer to when the worry witch comes a knockin' (which is quite regularly!). Here are some of Dale Carnegie's ways to stop worrying and start living.
 
@@ -44,16 +44,16 @@ This book is great and I have it by my bedside to re-read whenever I feel the ne
 
 ## Related Posts
 
-- [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
-- [oktoberfest drunk fails](https://travel.allwomenstalk.com/ways-to-survive-oktoberfest-to-avoid-burnout/)
 - [cure boredom](https://lifestyle.allwomenstalk.com/simple-ways-to-cure-your-boredom-and-make-your-day-exciting-again/)
-- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
-- [stress free living](https://lifestyle.allwomenstalk.com/incredible-ways-to-live-stress-free-in-the-city/)
-- [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
-- [how to control your temper](https://lifestyle.allwomenstalk.com/tips-on-how-to-control-your-temper/)
 - [natural way to calm nerves](https://health.allwomenstalk.com/natural-and-easy-ways-to-calm-your-nerves/)
+- [work stress tips](https://money.allwomenstalk.com/useful-tips-on-how-manage-work-stress/)
 - [post honeymoon blues](https://wedding.allwomenstalk.com/easy-ways-to-beat-the-post-honeymoon-blues/)
+- [how to control your temper](https://lifestyle.allwomenstalk.com/tips-on-how-to-control-your-temper/)
+- [peaceful concerted activities](https://lifestyle.allwomenstalk.com/relaxing-outdoor-activities-that-offer-peace-of-mind/)
+- [zazen meditation benefits](https://health.allwomenstalk.com/essential-benefits-of-adopting-the-practice-of-zen-meditation/)
 - [how to focus without adderall](https://lifestyle.allwomenstalk.com/ways-to-get-through-a-study-session-that-dont-involve-adderall/)
+- [oktoberfest drunk fails](https://travel.allwomenstalk.com/ways-to-survive-oktoberfest-to-avoid-burnout/)
+- [stress free living](https://lifestyle.allwomenstalk.com/incredible-ways-to-live-stress-free-in-the-city/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 - [10 Ways to Stop Stress ...](https://allwomenstalk.com/10-ways-to-stop-stress/)
 

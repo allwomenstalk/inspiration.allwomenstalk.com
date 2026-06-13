@@ -1,12 +1,12 @@
 ---
-title: "Why Christian Grey Has Set Every Womans Standards a Little Bit Higher ..."
+title: "Why Christian Grey Has Set Every Woman's Standards a Little Bit Higher ..."
 description: "He Protects His Woman; He Takes Control; He Knows What He Wants; He Devotes Himself to Her; He's Driven; More ..."
 url: "https://inspiration.allwomenstalk.com/why-christian-grey-has-set-every-womans-standards-a-little-bit-higher/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Why Christian Grey Has Set Every Womans Standards a Little Bit Higher ...
+# Why Christian Grey Has Set Every Woman's Standards a Little Bit Higher ...
 
 Every woman has a dream man. Someone who will fit her standards to a T. The one man who comes and sweeps you off of your feet. The charming, mysterious one that always comes back to you in the end. And most of all, the one who shows you why it never worked out with anyone else. After reading the Fifty Shades of Grey Trilogy by E.L. James, Grey, and watching the movie about fifteen times, I'd like to say I have more knowledge than needed about the book and the film. Watching a movie more than once and reading a book over and over again tend to give you a deeper understanding of the plot, a deeper connection to the characters, and a better overall look at what it's all really about. Reading the trilogy multiple times has given me more insight about Christian, especially. And watching the first movie, while already knowing what's bound to happen in the next two, keeps me wanting more. In my opinion, Christian Grey has set many women's standards a bit higher, and the bar much higher for many men.
 
@@ -34,16 +34,16 @@ All of these traits don’t make a man perfect. However, Christian exemplified t
 
 ## Related Posts
 
-- [what do guys mean by cute](https://love.allwomenstalk.com/typical-things-guys-say-when-theyre-crushing-on-you/)
+- [10 things you should never sacrifice for a relatio...](https://love.allwomenstalk.com/never-sacrifice-these-things-for-a-man/)
 - [making your partner feel wanted](https://love.allwomenstalk.com/do-these-things-to-make-your-man-feel-needed/)
+- [what do guys mean by cute](https://love.allwomenstalk.com/typical-things-guys-say-when-theyre-crushing-on-you/)
 - [guys in bar](https://love.allwomenstalk.com/types-of-guys-youll-meet-in-bars/)
 - [silver foxes men](https://celebs.allwomenstalk.com/silver-foxes-that-definitely-persuade-you-to-date-an-older-man/)
-- [lucky girlfriend](https://love.allwomenstalk.com/traits-that-make-a-girl-a-great-girlfriend/)
 - [guys types](https://teen.allwomenstalk.com/types-of-guys-youll-meet-in-high-school-and-how-to-deal-with-them/)
-- [10 things you should never sacrifice for a relatio...](https://love.allwomenstalk.com/never-sacrifice-these-things-for-a-man/)
-- [mean girl personality traits](https://love.allwomenstalk.com/mean-girl-traits-that-will-chase-boys-away/)
+- [lucky girlfriend](https://love.allwomenstalk.com/traits-that-make-a-girl-a-great-girlfriend/)
 - [are guys protective of their crush](https://funny.allwomenstalk.com/the-problem-with-having-all-male-friends/)
 - [do men take longer to fall in love](https://love.allwomenstalk.com/things-men-love-more-than-we-realize/)
+- [mean girl personality traits](https://love.allwomenstalk.com/mean-girl-traits-that-will-chase-boys-away/)
 - [5 Reasons Girls Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-girls-love-twilight/)
 - [5 Reasons Girls Obsess over Twilight ...](https://twilight.allwomenstalk.com/5-reasons-girls-obsess-over-twilight/)
 

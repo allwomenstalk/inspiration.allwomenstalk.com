@@ -1,12 +1,12 @@
 ---
-title: "What to do when Youre Body Shamed ..."
+title: "What to do when You're Body Shamed ..."
 description: "Everyone's a Critic; Don't Let It Get to You; There's Nothing Wrong with You; It's Just Words on a Screen; Don't Get into an Argument - You Won't Change Anyone; More ..."
 url: "https://inspiration.allwomenstalk.com/what-to-do-when-youre-body-shamed/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# What to do when Youre Body Shamed ...
+# What to do when You're Body Shamed ...
 
 Body shaming is far too common these days. People say things on social media that they wouldn't dream of saying to someone's face! They'll be rude about someone's size or looks, because it's all too easy - and there isn't the same consequences as there would be if they were rude to someone in the same room. So what should you do if you're body shamed?
 
@@ -42,18 +42,18 @@ Body shaming ignores that we come in different shapes and sizes - and it's also 
 
 ## Related Posts
 
+- [How to Help a Friend out of an Abusive Relationshi...](https://lifestyle.allwomenstalk.com/how-to-help-a-friend-out-of-an-abusive-relationship/)
 - [Communication Tips to Get Others to Actual Listen ...](https://lifestyle.allwomenstalk.com/communication-tips-to-get-others-to-actual-listen/)
 - [How to Keep the Peace when Talking about Politics ...](https://lifestyle.allwomenstalk.com/how-to-keep-the-peace-when-talking-about-politics/)
-- [Ways to Avoid the Temptation to Cheat ...](https://love.allwomenstalk.com/ways-to-avoid-the-temptation-to-cheat/)
-- [Do These Things if You Want to Be a Better Friend ...](https://lifestyle.allwomenstalk.com/do-these-things-if-you-want-to-be-a-better-friend/)
-- [How to Bitch to Your Girlfriends when You Have a F...](https://love.allwomenstalk.com/how-to-bitch-to-your-girlfriends-when-you-have-a-fight-with-your-so/)
-- [how to say no to family christmas](https://lifestyle.allwomenstalk.com/how-to-say-no-to-holiday-invites/)
 - [How to Deal with the Difficulty of Rejection ...](https://love.allwomenstalk.com/how-to-deal-with-the-difficulty-of-rejection/)
-- [This is How to Properly Resolve a Fight with Your ...](https://lifestyle.allwomenstalk.com/this-is-how-to-properly-resolve-a-fight-with-your-bff/)
-- [How to Help a Friend out of an Abusive Relationshi...](https://lifestyle.allwomenstalk.com/how-to-help-a-friend-out-of-an-abusive-relationship/)
+- [how to say no to family christmas](https://lifestyle.allwomenstalk.com/how-to-say-no-to-holiday-invites/)
 - [Be the Best BFF Ever with These Simple Suggestions...](https://inspiration.allwomenstalk.com/be-the-best-bff-ever-with-these-simple-suggestions/)
+- [Do These Things if You Want to Be a Better Friend ...](https://lifestyle.allwomenstalk.com/do-these-things-if-you-want-to-be-a-better-friend/)
+- [This is How to Properly Resolve a Fight with Your ...](https://lifestyle.allwomenstalk.com/this-is-how-to-properly-resolve-a-fight-with-your-bff/)
+- [How to Bitch to Your Girlfriends when You Have a F...](https://love.allwomenstalk.com/how-to-bitch-to-your-girlfriends-when-you-have-a-fight-with-your-so/)
+- [Ways to Avoid the Temptation to Cheat ...](https://love.allwomenstalk.com/ways-to-avoid-the-temptation-to-cheat/)
 - [8 Ways to Love Your Body Everyday ...](https://inspiration.allwomenstalk.com/ways-to-love-your-body-everyday/)
-- [How to Perk Yourself up when Youre Having a Bad Da...](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
+- [How to Perk Yourself up when You're Having a Bad D...](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
 
 ## Site Information
 

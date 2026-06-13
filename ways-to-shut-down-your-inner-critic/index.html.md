@@ -3,7 +3,7 @@ title: "Ways to Shut down Your Inner Critic ..."
 description: "Have a Conversation with That Negative Voice in Your Head; Develop Mindful Habits; Embrace the Imperfect Person You Are; Give Yourself Frequent Reality Checks; Seek Support; More ..."
 url: "https://inspiration.allwomenstalk.com/ways-to-shut-down-your-inner-critic/"
 category: "inspiration"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Ways to Shut down Your Inner Critic ...
@@ -56,16 +56,16 @@ It takes a strong person to ignore their inner critic but the benefits are enorm
 
 ## Related Posts
 
-- [How to De-stress at Your Desk ...](https://health.allwomenstalk.com/how-to-de-stress-at-your-desk/)
-- [How to Stick to Your New Years Resolution of Being...](https://health.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-being-less-stressed/)
-- [Relax by Getting Together These 7 Soothing Items f...](https://health.allwomenstalk.com/relax-by-getting-together-these-soothing-items/)
 - [7 Time Wasters to Cut out of Your Routine ...](https://lifestyle.allwomenstalk.com/time-wasters-to-cut-out-of-your-routine/)
-- [10 Ways to Deal when Youre Feeling Overwhelmed wit...](https://inspiration.allwomenstalk.com/ways-to-deal-with-waking-up-feeling-overwhelmed/)
-- [Little Ways to Make Time for Yourself ...](https://inspiration.allwomenstalk.com/how-to-take-enough-time-out-for-yourself/)
+- [Relax by Getting Together These 7 Soothing Items f...](https://health.allwomenstalk.com/relax-by-getting-together-these-soothing-items/)
+- [10 Ways to Deal when You're Feeling Overwhelmed wi...](https://inspiration.allwomenstalk.com/ways-to-deal-with-waking-up-feeling-overwhelmed/)
 - [mad cabin keep](https://lifestyle.allwomenstalk.com/ways-to-keep-from-going-crazy-when-cabin-fever-sets-in/)
+- [How to Stick to Your New Year's Resolution of Bein...](https://health.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-being-less-stressed/)
 - [Self-Care Tips for Workaholics Who Never Take a Br...](https://health.allwomenstalk.com/self-care-tips-for-workaholics-who-never-take-a-break/)
-- [Breathing Exercises to Help You Relax in No Time  ...](https://health.allwomenstalk.com/breathing-exercises-that-will-have-you-relaxed-in-just-minutes/)
+- [Little Ways to Make Time for Yourself ...](https://inspiration.allwomenstalk.com/how-to-take-enough-time-out-for-yourself/)
 - [Use These Tips to Learn to Love Your Alone Time .....](https://inspiration.allwomenstalk.com/use-these-tips-to-learn-to-love-your-alone-time/)
+- [How to De-stress at Your Desk ...](https://health.allwomenstalk.com/how-to-de-stress-at-your-desk/)
+- [Breathing Exercises to Help You Relax in No Time ⏳...](https://health.allwomenstalk.com/breathing-exercises-that-will-have-you-relaxed-in-just-minutes/)
 - [10 Effective Ways to Boost Your Self-Confidence .....](https://allwomenstalk.com/10-effective-ways-to-boost-your-self-confidence/)
 - [Why You Need to Ignore Negative Criticism ...](https://inspiration.allwomenstalk.com/reasons-to-ignore-peoples-negative-criticism/)
 
