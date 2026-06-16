@@ -3,7 +3,7 @@ title: "How I stopped overcomplicating success with John Davison Rockefeller quo
 description: "Go for Greatness; Opportunity; New Paths for Success; Money Isn’t Everything; Perseverance; More ..."
 url: "https://inspiration.allwomenstalk.com/motivational-quotes-from-john-d-rockefeller/"
 category: "inspiration"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # How I stopped overcomplicating success with John Davison Rockefeller quotes
@@ -69,16 +69,16 @@ While some may consider his business practices hard-nosed, no one can deny that 
 
 ## Related Posts
 
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
-- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
-- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
-- [what others think of you quotes?](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
-- [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
-- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
 - [what is thomas jefferson's famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
+- [what others think of you quotes?](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
+- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
 - [riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
+- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
+- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [7 Motivational Quotes for Runners ...](https://allwomenstalk.com/7-motivational-quotes-for-runners/)
 - [7 Motivational Workout Quotes That Will Change You...](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
 
