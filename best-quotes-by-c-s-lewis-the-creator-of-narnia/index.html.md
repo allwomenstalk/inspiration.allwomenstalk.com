@@ -3,7 +3,7 @@ title: "7 Best Quotes From Narnia Creator C.S. Lewis That Will Change Your Life"
 description: "Happiness is within; Age Ain't Nothing but a Number; Doing Good for the Greater Good; We're All the Same; Self Belief; More ..."
 url: "https://inspiration.allwomenstalk.com/best-quotes-by-c-s-lewis-the-creator-of-narnia/"
 category: "inspiration"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Best Quotes From Narnia Creator C.S. Lewis That Will Change Your Life
@@ -70,16 +70,16 @@ These are just a few of the great quotes by the wonderful writer. Whether you ar
 
 ## Related Posts
 
-- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
-- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
 - [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
+- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
+- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
+- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
+- [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
+- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
+- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
 - [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
 - [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
-- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
-- [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
-- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
-- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 - [7 Inspirational Quotes from Lost That You Will Lov...](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 

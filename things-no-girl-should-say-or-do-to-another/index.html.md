@@ -3,7 +3,7 @@ title: "Girls Need to Stop Saying and Doing These Things to Each Other ..."
 description: "Shame Her; Insult Her on Social Media; Give Her Fake Compliments; Make Fights with Her Public; Fight over a Man with Her; More ..."
 url: "https://inspiration.allwomenstalk.com/things-no-girl-should-say-or-do-to-another/"
 category: "inspiration"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Girls Need to Stop Saying and Doing These Things to Each Other ...
@@ -44,13 +44,13 @@ Women have to stick together instead of competing with each other. It'll make yo
 
 - [7 Things Every Girl Should Check before She Leaves...](https://funny.allwomenstalk.com/things-every-girl-should-check-before-she-leaves-the-house/)
 - [7 Ways for Women to Protect Themselves against Dan...](https://health.allwomenstalk.com/ways-for-women-to-protect-themselves-against-danger/)
-- [These Great Gifs Perfectly Describe How Periods Fe...](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-how-periods-feel/)
-- [Poor Service? Get Complaining Girl - Here's How! ....](https://money.allwomenstalk.com/tips-for-complaining-about-poor-service/)
-- [7 Ways to Feel like an Empowered Woman ...](https://inspiration.allwomenstalk.com/ways-to-feel-like-an-empowered-woman/)
-- [ten commandments ups lady](https://inspiration.allwomenstalk.com/commandments-for-being-a-fabulous-female/)
 - [Single Ladies, Rejoice! Here's How to Make 2015 Ou...](https://love.allwomenstalk.com/single-ladies-rejoice-heres-how-to-make-our-year/)
-- [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
 - [7 Things No Woman Should Be Shamed for ...](https://inspiration.allwomenstalk.com/things-no-woman-should-be-shamed-for/)
+- [Sly Tricks for Keeping Your Period a Secret ...](https://health.allwomenstalk.com/ways-to-keep-your-period-a-secret/)
+- [These Great Gifs Perfectly Describe How Periods Fe...](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-how-periods-feel/)
+- [ten commandments ups lady](https://inspiration.allwomenstalk.com/commandments-for-being-a-fabulous-female/)
+- [7 Ways to Feel like an Empowered Woman ...](https://inspiration.allwomenstalk.com/ways-to-feel-like-an-empowered-woman/)
+- [Poor Service? Get Complaining Girl - Here's How! ....](https://money.allwomenstalk.com/tips-for-complaining-about-poor-service/)
 - [7 "Psychotic" Things Women do That Are Actually He...](https://lifestyle.allwomenstalk.com/psychotic-things-women-do-that-are-actually-healthy/)
 - [8 Things to Avoid Saying during Sex ...](https://allwomenstalk.com/8-things-to-avoid-saying-during-sex/)
 - [9 Important Things Every Woman Should Stop Doing ....](https://inspiration.allwomenstalk.com/important-things-every-woman-should-stop-doing/)

@@ -3,7 +3,7 @@ title: "9 Amazing Fictional Women Who Are Inspirational in My Life ..."
 description: "River Song - \"Doctor Who\"; Ethel Mertz - “I Love Lucy”; Lucy Ricardo - “I Love Lucy”; Peggy Olson - “Mad Men”; Doctor 'Bones' Brennan - \"Bones\"; More ..."
 url: "https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/"
 category: "inspiration"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 9 Amazing Fictional Women Who Are Inspirational in My Life ...
@@ -68,15 +68,15 @@ The biggest pet peeve that I have is that some shows seem to cast female charact
 
 ## Related Posts
 
-- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
-- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
 - [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
-- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
-- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
+- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
+- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
 - [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
 - [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
 - [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
 - [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)

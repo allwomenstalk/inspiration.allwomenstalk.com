@@ -3,7 +3,7 @@ title: "Fictional Women That Bring a Whole New Meaning to Badass ..."
 description: "Dana Scully (X-Files); Ellen Ripley (Aliens); Aeryn Sun (Farscape); Olivia Pope (Scandal); Catherine Janeway (Star Trek Voyager); More ..."
 url: "https://inspiration.allwomenstalk.com/fictional-women-that-are-viciously-good-role-models/"
 category: "inspiration"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Fictional Women That Bring a Whole New Meaning to Badass ...
@@ -128,16 +128,16 @@ This article was updated by Sabrina Yates.
 
 ## Related Posts
 
-- [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
-- [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
-- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
-- [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
-- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
-- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
 - [feminist pop songs](https://music.allwomenstalk.com/fierce-feminist-anthems-for-when-you-want-to-feel-empowered/)
 - [elegant female movie characters](https://movies.allwomenstalk.com/fierce-female-movie-characters-who-dont-need-to-be-rescued/)
+- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
+- [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
+- [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
+- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
 - [denise key and peele actress](https://funny.allwomenstalk.com/hilarious-women-who-are-killing-the-comedy-game/)
+- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
 - [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
+- [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
 - [8 Female Bond Villains ...](https://movies.allwomenstalk.com/female-bond-villains/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

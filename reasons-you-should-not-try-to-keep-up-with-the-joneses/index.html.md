@@ -3,7 +3,7 @@ title: "7 Reasons You Should Not Try to Keep up with the Joneses ..."
 description: "It Hurts You Financially; It Isn’t Healthy; It is Just a Game; There Are More Important Things in Life; There Are Better Things to do with Your Money; More ..."
 url: "https://inspiration.allwomenstalk.com/reasons-you-should-not-try-to-keep-up-with-the-joneses/"
 category: "inspiration"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Reasons You Should Not Try to Keep up with the Joneses ...
@@ -42,16 +42,16 @@ Most people feel the pull to keep up with the Joneses at some time or another. H
 
 ## Related Posts
 
-- [is 30 too old to be single](https://love.allwomenstalk.com/reasons-to-stay-single-and-free-until-30/)
-- [offer your heart](https://love.allwomenstalk.com/reasons-why-you-should-not-give-your-heart-away/)
-- [why you shouldn't get a dog](https://lifestyle.allwomenstalk.com/valid-reasons-why-youre-not-ready-for-a-dog/)
-- [don't buy a car](https://money.allwomenstalk.com/reasons-not-to-buy-a-car-that-you-should-consider/)
 - [no date for prom](https://teen.allwomenstalk.com/reasons-why-you-dont-need-a-date-for-prom/)
-- [friends to dating](https://love.allwomenstalk.com/reasons-to-be-friends-before-you-start-dating/)
-- [never go back to what hurt you](https://love.allwomenstalk.com/reasons-why-you-should-never-go-back-to-your-ex-boyfriend/)
+- [offer your heart](https://love.allwomenstalk.com/reasons-why-you-should-not-give-your-heart-away/)
 - [what to do after college](https://teen.allwomenstalk.com/reasons-its-ok-to-not-know-what-you-want-to-do-after-college/)
-- [when is it okay to start dating](https://love.allwomenstalk.com/reasons-why-it-is-okay-to-start-dating-later/)
+- [friends to dating](https://love.allwomenstalk.com/reasons-to-be-friends-before-you-start-dating/)
+- [is 30 too old to be single](https://love.allwomenstalk.com/reasons-to-stay-single-and-free-until-30/)
+- [don't buy a car](https://money.allwomenstalk.com/reasons-not-to-buy-a-car-that-you-should-consider/)
 - [were going out tonight](https://funny.allwomenstalk.com/reasons-to-go-out-tonight-even-if-its-the-last-thing-you-want-to-do/)
+- [why you shouldn't get a dog](https://lifestyle.allwomenstalk.com/valid-reasons-why-youre-not-ready-for-a-dog/)
+- [never go back to what hurt you](https://love.allwomenstalk.com/reasons-why-you-should-never-go-back-to-your-ex-boyfriend/)
+- [when is it okay to start dating](https://love.allwomenstalk.com/reasons-why-it-is-okay-to-start-dating-later/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 - [7 Reasons to Not Be Married ...](https://allwomenstalk.com/7-reasons-to-not-be-married/)
 
