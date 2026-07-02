@@ -3,7 +3,7 @@ title: "Inspiring Quotes to Boost You up ⬆ when You're Feeling Blue ..."
 description: "Even the Strongest Have a Breaking Point; We've All Been There; Hang in There; That's Good Advice; Cry if You Need to; More ..."
 url: "https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/"
 category: "inspiration"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Inspiring Quotes to Boost You up ⬆ when You're Feeling Blue ...
@@ -112,16 +112,16 @@ In the words of R.E.M, everybody hurts sometimes. Maybe you're going through a b
 
 ## Related Posts
 
+- [girl fashion quotes](https://funny.allwomenstalk.com/funny-fashion-quotes-every-woman-will-understand/)
 - [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/quotes-for-your-bff-and-you/)
 - [roald dahl famous quote](https://inspiration.allwomenstalk.com/quotes-from-roald-dahl-to-inspire-you-today/)
-- [girl fashion quotes](https://funny.allwomenstalk.com/funny-fashion-quotes-every-woman-will-understand/)
+- [quarter life crisis instagram captions](https://inspiration.allwomenstalk.com/quotes-to-help-you-survive-your-quarter-life-crisis/)
 - [julia roberts personality type](https://inspiration.allwomenstalk.com/empowering-quotes-from-julia-roberts/)
 - [quotes about overwork](https://parenting.allwomenstalk.com/encouraging-quotes-for-overworked-parents/)
-- [quarter life crisis instagram captions](https://inspiration.allwomenstalk.com/quotes-to-help-you-survive-your-quarter-life-crisis/)
-- [small steps in right direction](https://inspiration.allwomenstalk.com/quotes-about-small-steps-that-will-inspire-your-personal-journey/)
-- [create the highest grandest vision possible](https://inspiration.allwomenstalk.com/empowering-quotes-from-oprah-herself/)
-- [mirror lies quotes](https://beauty.allwomenstalk.com/kick-ass-quotes-about-body-image/)
 - [not feeling beautiful](https://beauty.allwomenstalk.com/this-short-story-will-make-you-feel-beautiful/)
+- [small steps in right direction](https://inspiration.allwomenstalk.com/quotes-about-small-steps-that-will-inspire-your-personal-journey/)
+- [mirror lies quotes](https://beauty.allwomenstalk.com/kick-ass-quotes-about-body-image/)
+- [create the highest grandest vision possible](https://inspiration.allwomenstalk.com/empowering-quotes-from-oprah-herself/)
 - [30 Motivational Quotes for when You're Feeling dow...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [12 Inspirational Life Quotes to Get You through An...](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 

@@ -3,7 +3,7 @@ title: "7 Admirable Heroines from YA Literature ..."
 description: "Kay from Kaydreaming; Luna Lovegood from Harry Potter and the Order of the Phoenix; Primrose Everdeen from the Hunger Games; Jo March from Little Women; Meg Murry from a Wrinkle in Time; More ..."
 url: "https://inspiration.allwomenstalk.com/admirable-heroines-from-ya-literature/"
 category: "inspiration"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Admirable Heroines from YA Literature ...
@@ -56,16 +56,16 @@ It's important to find worthwhile role models in literature – of all ages. The
 
 ## Related Posts
 
-- [famous female aviation pioneers](https://celebs.allwomenstalk.com/amazing-pioneers-of-female-aviation/)
 - [These Choices WIll Make You a Role Model to Women ...](https://inspiration.allwomenstalk.com/ways-to-be-a-good-role-model/)
-- [joan trumpauer mulholland husband](https://movies.allwomenstalk.com/movies-that-empower-women/)
-- [7 Things to Love about Girl Meets World's Leading ...](https://celebs.allwomenstalk.com/things-to-love-about-girl-meets-worlds-leading-ladies/)
-- [9 Firsts for Women in Politics in the USA ...](https://lifestyle.allwomenstalk.com/firsts-for-women-in-politics-in-the-usa/)
-- [9 Amazing Biographical Movies about Women ...](https://movies.allwomenstalk.com/amazing-biographical-movies-about-women/)
 - [Girl Power: Taylor Swift's Cutest BFF Photos ...](https://celebs.allwomenstalk.com/girl-power-taylor-swifts-cutest-bff-photos/)
+- [7 Things to Love about Girl Meets World's Leading ...](https://celebs.allwomenstalk.com/things-to-love-about-girl-meets-worlds-leading-ladies/)
 - [9 Fun Facts about Tina Fey and Amy Poehler's Epic ...](https://7fun.net/fun-facts-about-tina-fey-and-amy-poehlers-epic-friendship/)
-- [7 Stereotypes about Women That Are Actually True ....](https://lifestyle.allwomenstalk.com/stereotypes-about-women-that-are-actually-true/)
 - [9 Heroic Women from World War I and II ...](https://celebs.allwomenstalk.com/heroic-women-from-world-war-i-and-ii/)
+- [famous female aviation pioneers](https://celebs.allwomenstalk.com/amazing-pioneers-of-female-aviation/)
+- [9 Amazing Biographical Movies about Women ...](https://movies.allwomenstalk.com/amazing-biographical-movies-about-women/)
+- [joan trumpauer mulholland husband](https://movies.allwomenstalk.com/movies-that-empower-women/)
+- [9 Firsts for Women in Politics in the USA ...](https://lifestyle.allwomenstalk.com/firsts-for-women-in-politics-in-the-usa/)
+- [7 Stereotypes about Women That Are Actually True ....](https://lifestyle.allwomenstalk.com/stereotypes-about-women-that-are-actually-true/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

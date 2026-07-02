@@ -3,7 +3,7 @@ title: "7 Profound Quotes from Nelson Mandela ..."
 description: "Keep Trying No Matter What; Let Go of Your Grudges; Everyone Can Be Brave; Education is Vital; Nothing is Unattainable; More ..."
 url: "https://inspiration.allwomenstalk.com/profound-quotes-from-nelson-mandela/"
 category: "inspiration"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Profound Quotes from Nelson Mandela ...
@@ -45,15 +45,15 @@ Nelson Mandela was a great man who will forever be a role model. His quotes are 
 ## Related Posts
 
 - [everything is copy meaning](https://inspiration.allwomenstalk.com/nora-ephron-quotes-to-inspire-you-as-a-woman-and-a-writer/)
-- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
-- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
-- [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
-- [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
-- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
 - [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
-- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
 - [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
+- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
+- [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
+- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
+- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 - [7 of My Favorite Friendship Quotes ...](https://allwomenstalk.com/7-of-my-favorite-friendship-quotes/)
 

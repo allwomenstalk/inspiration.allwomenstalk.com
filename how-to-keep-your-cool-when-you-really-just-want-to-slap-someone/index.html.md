@@ -3,7 +3,7 @@ title: "How to Keep Your Cool when You Really Just Want to Slap Someone ..."
 description: "Walk Away 💃🏻; Breath Deeply 🌬; Distract Yourself 🍻📲📺; Get Some Exercise 🏋🏽; Retail Therapy! 👠🎒; More ..."
 url: "https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-you-really-just-want-to-slap-someone/"
 category: "inspiration"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # How to Keep Your Cool when You Really Just Want to Slap Someone ...
@@ -16,7 +16,7 @@ When I'm in a moment of extreme anger and irritation, I immediately feel like sc
 
 ## 2. Breath Deeply 🌬
 
-Deep breathing is always a good idea! Used as a meditative technique, taking deep breaths calms your central nervous system, slows your heart rate, and reduces anxiety and stress. In a moment of chaos, instead of giving in to your natural desires of anger (and possibly, regret!), take a few deep breaths!
+Deep breathing is always a good idea! Used as a meditative technique, taking deep breaths calms your central nervous system, slows your [heart rate](https://calculatorsnest.com/heart-rate/), and reduces anxiety and stress. In a moment of chaos, instead of giving in to your natural desires of anger (and possibly, regret!), take a few deep breaths!
 
 ## 3. Distract Yourself 🍻📲📺
 
@@ -42,16 +42,16 @@ Just keep in mind that anger that lasts has no benefits whatsoever. In fact, it 
 
 ## Related Posts
 
-- [good and bad customer service stories](https://lifestyle.allwomenstalk.com/how-to-deal-with-bad-customer-service/)
-- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
-- [someone in a bubble](https://inspiration.allwomenstalk.com/how-to-recover-when-someone-bursts-your-bubble/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/negative-body-language-postures/)
-- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
-- [remove toxic person quotes](https://inspiration.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life/)
 - [moody partner in a relationship](https://love.allwomenstalk.com/how-to-deal-when-your-partner-is-moody/)
 - [parents dont like me](https://love.allwomenstalk.com/how-to-deal-when-his-parents-dont-like-you/)
-- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
+- [good and bad customer service stories](https://lifestyle.allwomenstalk.com/how-to-deal-with-bad-customer-service/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/negative-body-language-postures/)
+- [someone in a bubble](https://inspiration.allwomenstalk.com/how-to-recover-when-someone-bursts-your-bubble/)
+- [remove toxic person quotes](https://inspiration.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life/)
+- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
+- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
 - [things soccer moms say](https://funny.allwomenstalk.com/ways-to-handle-a-crazy-soccer-parent/)
+- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
 - [7 Reasons for Staying Calm when Someone Has Made Y...](https://lifestyle.allwomenstalk.com/reasons-for-staying-calm-when-someone-has-made-you-angry/)
 - [7 Ways to Stop Insulting Yourself when You're Upse...](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
 
