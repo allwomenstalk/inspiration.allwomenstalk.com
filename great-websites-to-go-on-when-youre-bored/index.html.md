@@ -50,9 +50,9 @@ Your Zen Life is a website perfect for anyone who loves spirituality, meditation
 
 Body, health, diet, beauty, fashion - you name it, the Lo Down has you covered! As the name suggests, this is Lo Bosworth's website, as in Lauren Conrad's BFF from MTV's Laguna Beach and The Hills. There's even a new addition to the site which is focused around more personal issues such as relationships, mental health, anxiety and stress. Two words: simply amazing! Last but not least, but this another great website to kill time on for when boredom strikes.
 
-## 11. [Mahjong 4 Friends](https://mahjong4friends.com/)
+## 11. Mahjong 4 Friends
 
-If you want a website that’s actually good for your brain, Mahjong 4 Friends is a brilliant way to beat boredom. Mahjong has exploded in popularity over the last few years, so there’s never been a better time to learn it — and this free site makes it easy to get started, whether you fancy American or Chinese Mahjong. It’s genuinely fun and just a little addictive: matching tiles, reading the board, and planning your next move. Best of all, because it keeps your mind working, it’s the rare time-killer that actually leaves you feeling sharper. Perfect for a quick game or a long, lazy afternoon.
+If you want a website that’s actually good for your brain, [Mahjong 4 Friends](https://mahjong4friends.com/) is a brilliant way to beat boredom. Mahjong has exploded in popularity over the last few years, so there’s never been a better time to learn it — and this free site makes it easy to get started, whether you fancy American or Chinese Mahjong. It’s genuinely fun and just a little addictive: matching tiles, reading the board, and planning your next move. Best of all, because it keeps your mind working, it’s the rare time-killer that actually leaves you feeling sharper. Perfect for a quick game or a long, lazy afternoon.
 
 ## Related Posts
 
