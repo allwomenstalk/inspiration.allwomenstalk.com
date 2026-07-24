@@ -3,7 +3,7 @@ title: "Random Acts of Kindness for the Run up to the Holidays ..."
 description: "Leave a Holiday Greeting Card 🎇 for Your Mail Carrier 📧; The Next Time You're Grabbing Coffee ☕, Remember to Pay It Forward; Give a Compliment to Someone Who Looks like They Could Really Use One 😚; Donate Money, Food 🍡 or Your Time 🕜 to Your Local Shelter or Soup Kitchen 🍲; Leave Sweet Post-it Notes around the House 🏠 for Your Partner to Find; More ..."
 url: "https://inspiration.allwomenstalk.com/random-acts-of-kindness-for-the-run-up-to-the-holidays/"
 category: "inspiration"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # Random Acts of Kindness for the Run up to the Holidays ...
@@ -112,15 +112,15 @@ Sometimes, a simple handshake or even just listening to them tell their story is
 
 ## Related Posts
 
-- [36 Best Christmas Gifts for Fitness for Women ...](https://fitene.com/best-christmas-gifts-for-fitness-for-women/)
-- [30 Thoughtful Gift Ideas to Buy Your Mom for Mothe...](https://lifestyle.allwomenstalk.com/thoughtful-gift-ideas-to-buy-your-mom-for-mothers-day/)
-- [creatology santa mug](https://lifestyle.allwomenstalk.com/christmas-gifts-for-friends-under-20/)
-- [The Absolute Best Gifts You'll Find for Mother's D...](https://lifestyle.allwomenstalk.com/the-absolute-best-gifts-youll-find-for-mothers-day/)
-- [Fab Gift Ideas for the Mom ‍ Who's Not so Vanilla ...](https://lifestyle.allwomenstalk.com/fab-gift-ideas-for-the-mom-whos-not-so-vanilla/)
 - [7 Modern Gift Inspos to Take Mother's Day to Anoth...](https://lifestyle.allwomenstalk.com/modern-gift-inspos-to-take-mothers-day-to-another-level/)
-- [The Best Gifts You Could Buy for the Grad in Your ...](https://teen.allwomenstalk.com/the-best-gifts-you-could-buy-for-the-grad-in-your-life/)
-- [edible gifts](https://lifestyle.allwomenstalk.com/edible-gifts/)
+- [creatology santa mug](https://lifestyle.allwomenstalk.com/christmas-gifts-for-friends-under-20/)
+- [30 Thoughtful Gift Ideas to Buy Your Mom for Mothe...](https://lifestyle.allwomenstalk.com/thoughtful-gift-ideas-to-buy-your-mom-for-mothers-day/)
+- [The Absolute Best Gifts You'll Find for Mother's D...](https://lifestyle.allwomenstalk.com/the-absolute-best-gifts-youll-find-for-mothers-day/)
 - [25 Best Amazon Gifts for Father's Day ...](https://lifestyle.allwomenstalk.com/best-amazon-gifts-for-your-man-on-fathers-day/)
+- [Fab Gift Ideas for the Mom ‍ Who's Not so Vanilla ...](https://lifestyle.allwomenstalk.com/fab-gift-ideas-for-the-mom-whos-not-so-vanilla/)
+- [edible gifts](https://lifestyle.allwomenstalk.com/edible-gifts/)
+- [36 Best Christmas Gifts for Fitness for Women ...](https://fitene.com/best-christmas-gifts-for-fitness-for-women/)
+- [The Best Gifts You Could Buy for the Grad in Your ...](https://teen.allwomenstalk.com/the-best-gifts-you-could-buy-for-the-grad-in-your-life/)
 - [6 Gift Ideas Perfect Enough for Any Occasion ...](https://lifestyle.allwomenstalk.com/gift-ideas-for-any-occasion/)
 - [10 Ways to save on Holiday Shopping ...](https://lifestyle.allwomenstalk.com/ways-to-save-on-holiday-shopping/)
 - [Holiday Scam-busters ...](https://allwomenstalk.com/holiday-scam-busters/)

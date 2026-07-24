@@ -3,7 +3,7 @@ title: "Inspiring Quotes about Leadership from Abraham Lincoln ..."
 description: "Responsibility; Commitment; Whatever You Are; Stand Firm; Sharpening the Axe; More ..."
 url: "https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/"
 category: "inspiration"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # Inspiring Quotes about Leadership from Abraham Lincoln ...
@@ -56,15 +56,15 @@ What’s your favorite line from Abraham Lincoln? Go ahead and share it!
 
 ## Related Posts
 
-- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
-- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
+- [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
+- [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
+- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 - [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
-- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
 - [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
 - [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
-- [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
+- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
 - [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
 - [The Kaiser of Quotable Quotes ...](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 - [8 Tips for Becoming a True Leader ...](https://allwomenstalk.com/8-tips-for-becoming-a-true-leader/)
