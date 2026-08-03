@@ -3,7 +3,7 @@ title: "7 Wise Words from Socrates That Ring True Even Today ..."
 description: "Wisdom; Rags and Riches; Busy Bee; Curiosity; Be Your Ideal; More ..."
 url: "https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/"
 category: "inspiration"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Wise Words from Socrates That Ring True Even Today ...
@@ -44,16 +44,16 @@ Despite the fact that he lived thousands of years ago, Socrates' words are still
 
 ## Related Posts
 
-- [it's our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
-- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
-- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
-- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
-- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
 - [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
-- [grey's anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
+- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
+- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
+- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
+- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
 - [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
+- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [grey's anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
+- [it's our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
 - [9 Principles to Live by for a Better Life ...](https://allwomenstalk.com/9-principles-to-live-by-for-a-better-life/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 
