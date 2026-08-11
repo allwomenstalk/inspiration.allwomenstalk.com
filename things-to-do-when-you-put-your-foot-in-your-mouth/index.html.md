@@ -3,7 +3,7 @@ title: "Things to do when You Put Your Foot in Your Mouth ..."
 description: "Apologize; Make a Joke; Let It Slide by; Explain What You Really Meant; Explain That Each Situation is Unique; More ..."
 url: "https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/"
 category: "inspiration"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # Things to do when You Put Your Foot in Your Mouth ...
@@ -42,14 +42,14 @@ These are 7 different responses you can use when you put your foot in your mouth
 
 ## Related Posts
 
-- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
-- [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
-- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
 - [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
+- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
 - [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
+- [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
 - [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
 - [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
 - [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
 - [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)

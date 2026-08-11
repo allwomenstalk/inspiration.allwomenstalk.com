@@ -3,7 +3,7 @@ title: "13 Common Beliefs of Unhappy People That You Should Stay Far Away from .
 description: "“Everything Needs to Be Perfect.”; “Things Are Either Black or White.”; “I Know What Other People Think about Me.”; “I Must Please Everyone.”; “Happiness Belongs Only to the People Who Are Really Lucky.”; More ..."
 url: "https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/"
 category: "inspiration"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # 13 Common Beliefs of Unhappy People That You Should Stay Far Away from ...
@@ -74,12 +74,12 @@ Written in collaboration with editor Vladlena Lee.
 - [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
 - [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
 - [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
-- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
 - [shortcuts in life](https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/)
 - [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
+- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
+- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
 - [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
 - [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
-- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
 - [8 Types of People You Should Avoid ...](https://allwomenstalk.com/8-types-of-people-you-should-avoid/)
 - [11 Popular Myths about Marriage You Should Ignore ...](https://love.allwomenstalk.com/popular-myths-about-marriage-you-should-ignore/)
 

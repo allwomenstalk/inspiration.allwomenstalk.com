@@ -3,7 +3,7 @@ title: "11 Weird Signs That Show You're Smart 🤓 ..."
 description: "You Took Music Lessons; You Are Thin; You Own a Cat; You Learn from Mistakes; You Argue Intelligently; More ..."
 url: "https://inspiration.allwomenstalk.com/weird-signs-that-show-youre-smart/"
 category: "inspiration"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # 11 Weird Signs That Show You're Smart 🤓 ...
@@ -91,16 +91,16 @@ These finding can explain the birth order effect because children that were born
 
 ## Related Posts
 
-- [am i more attractive than i think](https://beauty.allwomenstalk.com/signs-youre-more-attractive-than-you-think/)
 - [what is self absorbed mean](https://inspiration.allwomenstalk.com/signs-of-a-strong-personality-that-might-scare-people/)
-- [letterman signs](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
-- [low quality fabric](https://fashion.allwomenstalk.com/signs-your-clothing-is-low-quality/)
-- [partying too much](https://health.allwomenstalk.com/signs-you-party-too-hard-aka-you-drink-too-much/)
 - [how to know if your house is haunted quiz](https://lifestyle.allwomenstalk.com/signs-your-house-might-be-haunted/)
-- [too much fast food](https://diet.allwomenstalk.com/signs-youre-eating-too-much-processed-food/)
-- [10 Signs You're a Sex Addict ...](https://love.allwomenstalk.com/signs-youre-a-sex-addict/)
-- [signs a person is evil](https://inspiration.allwomenstalk.com/signs-that-someone-is-truly-evil/)
+- [low quality fabric](https://fashion.allwomenstalk.com/signs-your-clothing-is-low-quality/)
 - [15 Signs You Have Metabolism Problems ...](https://allwomenstalk.com/15-signs-you-have-metabolism-problems/)
+- [am i more attractive than i think](https://beauty.allwomenstalk.com/signs-youre-more-attractive-than-you-think/)
+- [letterman signs](https://allwomenstalk.com/the-late-show-with-david-lettermans-top-ten-signs-youre-a-shopaholic/)
+- [10 Signs You're a Sex Addict ...](https://love.allwomenstalk.com/signs-youre-a-sex-addict/)
+- [too much fast food](https://diet.allwomenstalk.com/signs-youre-eating-too-much-processed-food/)
+- [signs a person is evil](https://inspiration.allwomenstalk.com/signs-that-someone-is-truly-evil/)
+- [partying too much](https://health.allwomenstalk.com/signs-you-party-too-hard-aka-you-drink-too-much/)
 - [7 Signs You Are Popular in School ...](https://allwomenstalk.com/7-signs-you-are-popular-in-school/)
 - [9 Sure Signs of Insecurity You Should Be Aware of ...](https://lifestyle.allwomenstalk.com/sure-signs-of-insecurity-you-should-be-aware-of/)
 

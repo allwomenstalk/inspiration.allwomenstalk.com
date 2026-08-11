@@ -3,7 +3,7 @@ title: "In Honor of Mother's Day : 7 Things Mom Really Was Right about ..."
 description: "Don’t Touch Your Face; Be Yourself; The Best Revenge is Being Happy; Listen to Your Instincts; The Character of Your Friends Will Become Your Character; More ..."
 url: "https://inspiration.allwomenstalk.com/in-honor-of-mothers-day-things-mom-really-was-right-about/"
 category: "inspiration"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # In Honor of Mother's Day : 7 Things Mom Really Was Right about ...
@@ -57,15 +57,15 @@ These’re 7 **bits of advice that mom was right about**. Now it’s your turn. 
 ## Related Posts
 
 - [Letting Go of the past ...](https://inspiration.allwomenstalk.com/letting-go-of-the-past/)
-- [You Can Be Independent and Still do These 7 Things...](https://inspiration.allwomenstalk.com/you-can-be-independent-and-still-do-these-things/)
-- [riche le eye blinged](https://lifestyle.allwomenstalk.com/how-to-read-a-persons-face-to-know-what-theyre-thinking/)
-- [The Trick to Being Happy when Everything Seems lik...](https://inspiration.allwomenstalk.com/the-trick-to-being-happy-when-everything-seems-like-its-falling-apart/)
 - [Here's What Anyone Dealing with Depression Should ...](https://health.allwomenstalk.com/heres-what-anyone-dealing-with-depression-should-remember/)
 - [Stop Tearing Yourself down - Things You Deserve, E...](https://inspiration.allwomenstalk.com/stop-tearing-yourself-down-things-you-deserve-even-though-you-dont-believe-it/)
-- [The 7 Social Skills That Will Guarantee Your Succe...](https://inspiration.allwomenstalk.com/the-social-skills-that-will-guarantee-your-success-in-life/)
-- [7 Truths about Beauty You Discover as an Adult ...](https://beauty.allwomenstalk.com/truths-about-beauty-you-discover-as-an-adult/)
-- [You Don't Actually Need These 7 Things to Be Happy...](https://inspiration.allwomenstalk.com/you-dont-actually-need-these-things-to-be-happy/)
 - [What Even the Best of Us Struggle with ...](https://inspiration.allwomenstalk.com/what-even-the-best-of-us-struggle-with/)
+- [7 Truths about Beauty You Discover as an Adult ...](https://beauty.allwomenstalk.com/truths-about-beauty-you-discover-as-an-adult/)
+- [riche le eye blinged](https://lifestyle.allwomenstalk.com/how-to-read-a-persons-face-to-know-what-theyre-thinking/)
+- [The Trick to Being Happy when Everything Seems lik...](https://inspiration.allwomenstalk.com/the-trick-to-being-happy-when-everything-seems-like-its-falling-apart/)
+- [The 7 Social Skills That Will Guarantee Your Succe...](https://inspiration.allwomenstalk.com/the-social-skills-that-will-guarantee-your-success-in-life/)
+- [You Don't Actually Need These 7 Things to Be Happy...](https://inspiration.allwomenstalk.com/you-dont-actually-need-these-things-to-be-happy/)
+- [You Can Be Independent and Still do These 7 Things...](https://inspiration.allwomenstalk.com/you-can-be-independent-and-still-do-these-things/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 - [Best 7 Dating Tips ... from My Mother ...](https://allwomenstalk.com/best-7-dating-tips-from-my-mother/)
 

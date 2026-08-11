@@ -1,14 +1,24 @@
 ---
-title: "7 Inspirational Humans of New York (HONY) Stories ..."
+title: "7 Most Inspiring Stories from Humans of New York (HONY)"
 description: "Mott Hall Bridges Academy; Chris Shaw; Never Lay a Hand …; It Gets Real …; Pro Choice; More ..."
 url: "https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/"
 category: "inspiration"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
-# 7 Inspirational Humans of New York \(HONY\) Stories ...
+# 7 Most Inspiring Stories from Humans of New York \(HONY\)
 
-As an aspiring photographer myself, I found that Brandon, the photographer behind Humans of New York (HONY) is not only inspiring but the photos he takes and the beauty that he captures is truly inspirational. Have you ever seen Brandon's work? Have you ever taken a look at his Facebook page or even looked at humansofnewyork.com? Well, I'll give you a sneak peek into what makes HONY an amazing project and share some of my favorite and most inspirational stories that Brandon has captured!
+As an aspiring photographer myself, I found that Brandon Stanton, the creator and photographer behind Humans of New York (HONY), is not only inspiring but the photos he takes and the raw human stories he captures are deeply moving. Have you ever seen Brandon's work? Have you ever browsed the official [Humans of New York Facebook page](https://www.facebook.com/humansofnewyork) or spent hours scrolling through [humansofnewyork.com](https://www.humansofnewyork.com)? Over the years, these viral humans of new york posts have given millions of readers a profound look into resilience, vulnerability, and love. Well, I'll give you a sneak peek into what makes HONY an amazing project and share some of my favorite and most inspirational stories that Brandon has captured!
+
+| HONY Story Highlight | Primary Theme | Key Impact / Takeaway |
+| :--- | :--- | :--- |
+| Mott Hall Bridges Academy | Education & Hope | Raised over .4M for student trips & scholarships |
+| Chris Shaw | Artistic Passion | Boosted visibility & networking for an emerging painter |
+| Breaking Generational Cycles | Parenting & Growth | Overcoming past trauma to protect the next generation |
+| Facing Hard Realities | Family Dynamics | Owning difficult personal truths and emotional struggles |
+| Personal Choice & Grief | Relationship Vulnerability | Highlighting the complex emotional aftermath of big choices |
+| Father & Son Acceptance | Courage & Love | Heartwarming story of parental support during coming out |
+| High School Sweethearts | Romance & Connection | A sweet reminder of how love begins with friendship |
 
 ## 1. Mott Hall Bridges Academy
 
@@ -19,7 +29,7 @@ As an aspiring photographer myself, I found that Brandon, the photographer behin
 “How has she influenced you?”
 “When we get in trouble, she doesn’t suspend us. She calls us to her office and explains to us how society was built down around us. And she tells us that each time somebody fails out of school, a new jail cell gets built. And one time she made every student stand up, one at a time, and she told each one of us that we matter.”
 
-This story really, really got me. Just one picture Brandon took and over a million dollars was raised for education for Mott Hall Bridges Academy. Read up on the aftermath here: [humansofnewyork.com](https://www.humansofnewyork.com/post/115398420826/as-i-learned-in-the-aftermath-of-our-fundraiser)
+This story really, really got me. Just one picture Brandon took and over a million dollars was raised for education for Mott Hall Bridges Academy in Brooklyn. Principal Nadia Lopez showed how transformative leadership can shape young lives. You can learn more about the school's ongoing mission at the official [Mott Hall Bridges Academy site](https://mott-hall-bridges-academy.org) or read up on the original viral aftermath on [humansofnewyork.com](https://www.humansofnewyork.com/post/115398420826/as-i-learned-in-the-aftermath-of-our-fundraiser).
 
 ## 2. Chris Shaw
 
@@ -27,7 +37,7 @@ This story really, really got me. Just one picture Brandon took and over a milli
 
 “I’ve watched a lot of people who did worse than me in art school go on to have their own shows, and I’ve decided that some people just know how to make moves. I always hoped that after I graduated, someone would discover me, but it doesn’t really work that way. You have to network and create opportunities, but I’m not good at that, because I get nervous and overly quiet in social situations. I normally end up getting discouraged, and going back to my basement to paint.”
 
-Brandon took this photo back in January, shared Chris' name and guess what? It helped this particular artist get a leg up in the world and really get his art out there. How cool is that?
+Brandon took this photo back in January, shared Chris' name and guess what? It helped this particular artist get a leg up in the world and really get his art out there. How cool is that? It proves that sometimes sharing your honest vulnerability can spark unexpected support, much like the courage seen in other [emotional stories of openness](#6).
 
 ## 3. Never Lay a Hand …
 
@@ -35,7 +45,11 @@ Brandon took this photo back in January, shared Chris' name and guess what? It h
 
 “Never laid a hand on her. And that was huge for me. Because it was always the first thing my dad did.”
 
-How powerful is that to share that in a group of millions? I'm so, so proud of this dad, whoever he is. Never, ever lay a hand on your child, no matter how you were raised.
+How powerful is that to share that in a group of millions? I'm so, so proud of this dad, whoever he is. Never, ever lay a hand on your child, no matter how you were raised. Breaking generational cycles requires conscious effort and deep compassion. Key steps in breaking cycles include:
+
+- Recognizing harmful past patterns
+- Choosing positive emotional responses
+- Prioritizing open communication with your children
 
 ## 4. It Gets Real …
 
@@ -43,7 +57,7 @@ How powerful is that to share that in a group of millions? I'm so, so proud of t
 
 “She’s a mother in name only. We get in fights, but she’s always so drunk that she never remembers them. We live in the same house, but haven’t had a real conversation in over a year.”
 
-It's so hard to read things like this, but it's great that it can be all out there. Admitting and owning up to things is the first step.
+It's so hard to read things like this, but it's great that it can be all out there. Admitting and owning up to things is the first step. Being honest about painful family realities can be terrifying, but acknowledgement is essential for healing, just as seen in [breaking painful family patterns](#3).
 
 ## 5. Pro Choice
 
@@ -59,7 +73,7 @@ It's so hard to read things like this, but it's great that it can be all out the
 “Do you mind if I post your story?”
 “With my picture? I’d prefer not.”
 
-This is so inspiring, just because you make the choice doesn't mean that it won't be hard later on.
+This is so inspiring, just because you make the choice doesn't mean that it won't be hard later on. Complex emotional decisions carry weight, and acknowledging grief alongside personal choices is a crucial part of emotional maturity.
 
 ## 6. Coming out
 
@@ -67,7 +81,7 @@ This is so inspiring, just because you make the choice doesn't mean that it won'
 
 “We’d been having a sort of tacit conversation about it for a couple years. Then one day, his sister, who already knew, was teasing him about having a crush on a boy at school. And I heard him say: ‘Well, maybe it’s true!’ So I said: 'Son, we’ve never really talked about this. Are you gay?’ And even though he was 6'4”, he came over to me, curled up in my lap and just sobbed and sobbed. It was one of the most beautiful moments of my life, actually.“
 
-When I came out to my mom, it was in the middle of Olive Garden and I said that I fell in love with a girl – this is a beautiful story and definitely inspiring!
+When I came out to my mom, it was in the middle of Olive Garden and I said that I fell in love with a girl – this is a beautiful story and definitely inspiring! Parental acceptance creates an unbreakable foundation of trust and safety for young people navigating identity.
 
 ## 7. Falling in Love
 
@@ -79,21 +93,27 @@ When I came out to my mom, it was in the middle of Olive Garden and I said that 
 “So how did she find out?”
 “I wrote her a love letter.”
 
-This is such an adorable story! It's about love, relationships and figuring out your best friend!
+This is such an adorable story! It's about love, relationships and figuring out your best friend! Taking a leap of faith for love takes courage, as seen across many [inspiring community moments](#1).
 
-So, now that you've seen MY top HONY stories that inspired me, what about you? What's your favorite? Did you get sucked into Brandon's project for hours on end too?
+Why stories like these resonate so deeply with millions:
+
+- They remind us of our shared humanity
+- They capture genuine, unscripted emotion
+- They connect readers across different cultures and backgrounds
+
+So, now that you've seen MY top HONY stories that inspired me, what about you? What's your favorite? Did you get sucked into Brandon's project for hours on end too? Feel free to explore more work directly on the official [Humans of New York Instagram](https://www.instagram.com/humansofny/) page as well!
 
 ## Related Posts
 
-- [real wizards](https://lifestyle.allwomenstalk.com/real-wizards-who-would-have-been-a-match-for-harry-potter/)
-- [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
 - [most dangerous dictators in history](https://lifestyle.allwomenstalk.com/of-historys-deadliest-dictators-you-never-heard-of/)
+- [real wizards](https://lifestyle.allwomenstalk.com/real-wizards-who-would-have-been-a-match-for-harry-potter/)
 - [greg smith genius wife](https://lifestyle.allwomenstalk.com/child-geniuses-who-could-give-einstein-a-run-for-his-money/)
 - [weird science experiments in history](https://lifestyle.allwomenstalk.com/weird-experiments-even-wes-craven-wouldnt-have-thought-of/)
-- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
-- [scary military projects](https://lifestyle.allwomenstalk.com/strange-military-experiments-that-never-happened/)
 - [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
+- [scary military projects](https://lifestyle.allwomenstalk.com/strange-military-experiments-that-never-happened/)
 - [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
+- [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
+- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
 - [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [8 Celebrities Who Live in NYC ...](https://celebs.allwomenstalk.com/celebrities-who-live-in-nyc/)
