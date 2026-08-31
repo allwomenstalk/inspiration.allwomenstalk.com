@@ -56,16 +56,16 @@ Basically, treat people kindly. No one deserves to be on the receiving end of me
 
 ## Related Posts
 
-- [girls yoga pose](https://fitness.allwomenstalk.com/little-known-yoga-poses-for-girls-who-are-dying-for-more-energy/)
-- [funny names for your inner critic](https://inspiration.allwomenstalk.com/famous-women-advise-how-to-shut-down-your-inner-critic/)
-- [lonely women](https://love.allwomenstalk.com/essential-dating-rules-for-beautiful-but-single-women/)
-- [body makeover diet](https://beauty.allwomenstalk.com/things-girls-who-want-a-body-makeover-can-do-today/)
-- [simple good deeds](https://lifestyle.allwomenstalk.com/super-simple-digital-ways-for-girls-who-care-to-do-good-deeds/)
-- [get rid of all social media](https://apps.allwomenstalk.com/a-step-by-step-guide-on-how-to-remove-your-online-presence-for-those-who-are-tired-of-social-media/)
-- [my shy girlfriend](https://lifestyle.allwomenstalk.com/the-shy-girls-guide-to-making-new-friends-right-away/)
-- [irresistible feminine tattoos](https://beauty.allwomenstalk.com/secrets-to-being-super-seductive-and-irresistable-all-girls-need-to-know/)
 - [proof strategy girl](https://love.allwomenstalk.com/fool-proof-guide-to-girls-who-are-sick-of-dating-and-want-a-serious-relationship/)
+- [irresistible feminine tattoos](https://beauty.allwomenstalk.com/secrets-to-being-super-seductive-and-irresistable-all-girls-need-to-know/)
+- [funny names for your inner critic](https://inspiration.allwomenstalk.com/famous-women-advise-how-to-shut-down-your-inner-critic/)
+- [my shy girlfriend](https://lifestyle.allwomenstalk.com/the-shy-girls-guide-to-making-new-friends-right-away/)
+- [lonely women](https://love.allwomenstalk.com/essential-dating-rules-for-beautiful-but-single-women/)
 - [7 Reasons Women Get Called Sluts and Why It Needs ...](https://inspiration.allwomenstalk.com/reasons-women-get-called-sluts-and-why-it-needs-to-stop/)
+- [get rid of all social media](https://apps.allwomenstalk.com/a-step-by-step-guide-on-how-to-remove-your-online-presence-for-those-who-are-tired-of-social-media/)
+- [body makeover diet](https://beauty.allwomenstalk.com/things-girls-who-want-a-body-makeover-can-do-today/)
+- [girls yoga pose](https://fitness.allwomenstalk.com/little-known-yoga-poses-for-girls-who-are-dying-for-more-energy/)
+- [simple good deeds](https://lifestyle.allwomenstalk.com/super-simple-digital-ways-for-girls-who-care-to-do-good-deeds/)
 - [Real World Tips for Girls to Help Them Survive Har...](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-harsh-criticism/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 

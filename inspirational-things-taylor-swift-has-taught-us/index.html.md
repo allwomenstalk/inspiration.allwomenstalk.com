@@ -42,15 +42,15 @@ Whether Taylor Swift is already your role model or is just someone you listen to
 
 ## Related Posts
 
-- [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
 - [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
-- [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
 - [native language effect](https://lifestyle.allwomenstalk.com/surprising-ways-your-native-language-can-affect-your-life/)
-- [the holiday season is a perfect time to reflect](https://inspiration.allwomenstalk.com/important-things-to-reflect-upon-during-the-holiday-season/)
-- [just hanging out at home](https://lifestyle.allwomenstalk.com/ways-to-hang-out-by-yourself/)
-- [how to use enemies](https://inspiration.allwomenstalk.com/great-lessons-to-learn-from-your-enemies/)
+- [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
 - [jamila lyiscott ted talk](https://teen.allwomenstalk.com/ted-talks-every-teen-should-watch/)
+- [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
 - [you're not a bad person it's just a bad world](https://inspiration.allwomenstalk.com/bad-things-that-dont-make-you-a-bad-person/)
+- [how to use enemies](https://inspiration.allwomenstalk.com/great-lessons-to-learn-from-your-enemies/)
+- [just hanging out at home](https://lifestyle.allwomenstalk.com/ways-to-hang-out-by-yourself/)
+- [the holiday season is a perfect time to reflect](https://inspiration.allwomenstalk.com/important-things-to-reflect-upon-during-the-holiday-season/)
 - [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
 - [7 Life Lessons from Awkward ...](https://lifestyle.allwomenstalk.com/life-lessons-from-awkward/)
 - [7 Gossip Girl Moments You Can Learn from (and Love...](https://lifestyle.allwomenstalk.com/gossip-girl-moments-you-can-learn-from-and-love/)

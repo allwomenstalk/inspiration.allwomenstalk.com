@@ -68,16 +68,16 @@ There is no doubt Adele has said some truly inspiring things, many of which I pe
 
 ## Related Posts
 
-- [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
-- [great gatsby quotes about gatsby](https://inspiration.allwomenstalk.com/touching-quotes-from-the-great-gatsby/)
-- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
 - [jane austen quote](https://books.allwomenstalk.com/expressive-quotes-from-jane-austen/)
-- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
 - [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
-- [the best thing one can do when it's raining is to ...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
 - [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
-- [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
+- [the best thing one can do when it's raining is to ...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
 - [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
+- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
+- [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
+- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [great gatsby quotes about gatsby](https://inspiration.allwomenstalk.com/touching-quotes-from-the-great-gatsby/)
+- [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 

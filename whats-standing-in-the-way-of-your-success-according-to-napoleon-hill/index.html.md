@@ -74,16 +74,16 @@ Napoleon Hill is insightful and motivational - I highly recommend his books.
 
 ## Related Posts
 
-- [how to make a choice](https://lifestyle.allwomenstalk.com/methods-you-can-use-to-make-decisions/)
-- [butterfly method for subtracting fractions](https://lifestyle.allwomenstalk.com/math-hacks-thatll-make-your-life-much-easier/)
-- [how to have a lazy day](https://lifestyle.allwomenstalk.com/the-ultimate-guide-to-the-most-indulgent-lazy-day-you-deserve/)
 - [happier and healthier](https://inspiration.allwomenstalk.com/ways-to-be-happier-healthier-and-more-successful/)
-- [infographic examples about yourself](https://inspiration.allwomenstalk.com/infographics-thatll-help-you-learn-to-love-yourself/)
-- [infographics about life](https://inspiration.allwomenstalk.com/motivational-infographics-that-will-inspire-you-to-succeed/)
-- [i promise too](https://inspiration.allwomenstalk.com/promises-to-make-yourself-if-you-want-to-be-successful/)
 - [riche le stylo smoky shadow golden emerald](https://inspiration.allwomenstalk.com/success-tips-for-those-who-feel-like-they-are-lagging-behind/)
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/ask-yourself-these-questions-if-you-want-to-rethink-your-life/)
+- [how to have a lazy day](https://lifestyle.allwomenstalk.com/the-ultimate-guide-to-the-most-indulgent-lazy-day-you-deserve/)
+- [butterfly method for subtracting fractions](https://lifestyle.allwomenstalk.com/math-hacks-thatll-make-your-life-much-easier/)
+- [how to make a choice](https://lifestyle.allwomenstalk.com/methods-you-can-use-to-make-decisions/)
+- [i promise too](https://inspiration.allwomenstalk.com/promises-to-make-yourself-if-you-want-to-be-successful/)
+- [infographic examples about yourself](https://inspiration.allwomenstalk.com/infographics-thatll-help-you-learn-to-love-yourself/)
 - [my goal for the future](https://inspiration.allwomenstalk.com/great-goals-for-the-future/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/ask-yourself-these-questions-if-you-want-to-rethink-your-life/)
+- [infographics about life](https://inspiration.allwomenstalk.com/motivational-infographics-that-will-inspire-you-to-succeed/)
 - [Roadmap to Your Fabulous Life ...](https://allwomenstalk.com/roadmap-to-your-fabulous-life/)
 - [8 Tips on Succeeding in This World ...](https://allwomenstalk.com/8-tips-on-succeeding-in-this-world/)
 

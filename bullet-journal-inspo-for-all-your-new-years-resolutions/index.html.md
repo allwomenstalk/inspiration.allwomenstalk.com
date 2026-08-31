@@ -136,16 +136,16 @@ Which style is your favorite? What will be in your bullet journal this year?
 
 ## Related Posts
 
-- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
-- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
-- [bullet journal ideas netflix](https://books.allwomenstalk.com/bullet-journal-spreads-to-inspire-your-own-journal/)
-- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
-- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
-- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
 - [loreal paris riche le stylo eye avant azure](https://inspiration.allwomenstalk.com/finding-where-my-passion-lies/)
-- [start a clean slate](https://apps.allwomenstalk.com/ways-to-get-a-clean-digital-slate/)
-- [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
+- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
+- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
+- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
+- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
+- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
 - [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
+- [bullet journal ideas netflix](https://books.allwomenstalk.com/bullet-journal-spreads-to-inspire-your-own-journal/)
+- [start a clean slate](https://apps.allwomenstalk.com/ways-to-get-a-clean-digital-slate/)
 - [7 Cheery Quotes to Live by for the New Year ...](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
 - [11 Literary Quotes to Inspire Your New Year ...](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
 

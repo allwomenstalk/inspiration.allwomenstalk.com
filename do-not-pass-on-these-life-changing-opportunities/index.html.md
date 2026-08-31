@@ -52,16 +52,16 @@ You should always be trying to prioritise fun! Think about what will make you mo
 
 ## Related Posts
 
-- [Why It's Ok You do Not Know What You Want to do 🤔...](https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/)
-- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
 - [Why Being a Geek Isn't a Bad Thing ...](https://inspiration.allwomenstalk.com/why-being-a-geek-isnt-a-bad-thing/)
-- [Don't Take Your Second 2️⃣ and Third 3️⃣ Chance fo...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
-- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
 - [Exceptional Things Mentally Strong People do ...](https://inspiration.allwomenstalk.com/exceptional-things-mentally-strong-people-do/)
-- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
+- [Why It's Ok You do Not Know What You Want to do 🤔...](https://money.allwomenstalk.com/why-its-ok-you-do-not-know-what-you-want-to-do-now-you-have-graduated/)
 - [Why Forgiveness is Good for You ...](https://inspiration.allwomenstalk.com/why-forgiveness-is-good-for-you/)
-- [When 🤔 Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [Uncomfortable Things You Must Deal with Head on fo...](https://inspiration.allwomenstalk.com/uncomfortable-things-you-must-deal-with-head-on-for-a-comfortable-life/)
+- [pumpkin seeds quotes](https://inspiration.allwomenstalk.com/keep-the-faith-even-the-size-of-a-pumpkin-seed/)
 - [The Importance of a Support System when You Have a...](https://health.allwomenstalk.com/the-importance-of-a-support-system-when-you-have-a-mental-illness/)
+- [When 🤔 Not to Talk Yourself out of It ...](https://inspiration.allwomenstalk.com/when-not-to-talk-yourself-out-of-it/)
+- [A Better Way to Look at Death ...](https://inspiration.allwomenstalk.com/a-better-way-to-look-at-death/)
+- [Don't Take Your Second 2️⃣ and Third 3️⃣ Chance fo...](https://inspiration.allwomenstalk.com/dont-take-your-second-2-and-third-3-chance-for-granted/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [8 do's and Don'ts of Life ...](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
 

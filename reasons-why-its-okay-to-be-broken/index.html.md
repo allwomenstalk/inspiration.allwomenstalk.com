@@ -56,16 +56,16 @@ No one wants to feel broken, but it is something we can embrace as part of our j
 
 ## Related Posts
 
-- [i ain't even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
-- [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
-- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
 - [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
+- [don't fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
+- [i ain't even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
+- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
 - [love is no excuse](https://love.allwomenstalk.com/things-love-is-not-an-excuse-for/)
 - [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
-- [don't fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
-- [сколько разлагается пластик](https://lifestyle.allwomenstalk.com/reasons-not-to-leave-things-to-the-last-minute/)
 - [the longer you postpone working for your dreams](https://inspiration.allwomenstalk.com/reasons-you-might-be-delaying-pursuing-your-dreams/)
 - [why do i keep doing bad things](https://lifestyle.allwomenstalk.com/psychological-reasons-why-good-people-sometimes-do-bad-things/)
+- [сколько разлагается пластик](https://lifestyle.allwomenstalk.com/reasons-not-to-leave-things-to-the-last-minute/)
+- [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
 - [15 Benefits of a Relationship Break ...](https://love.allwomenstalk.com/benefits-of-a-relationship-break/)
 - [9 Things It's Okay to do after a Breakup ...](https://allwomenstalk.com/9-things-its-okay-to-do-after-a-breakup/)
 

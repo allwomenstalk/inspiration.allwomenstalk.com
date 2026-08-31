@@ -42,14 +42,14 @@ Do you know what you want out of life? What are the dreams in your heart? I'd lo
 
 ## Related Posts
 
-- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
-- [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
-- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
-- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
-- [trending self help books](https://books.allwomenstalk.com/amazing-self-help-books-that-will-immediately-get-you-back-on-your-feet/)
 - [techniques to improve emotional intelligence](https://inspiration.allwomenstalk.com/extremely-efficient-tips-to-improve-your-emotional-intelligence/)
-- [putting out positive energy](https://inspiration.allwomenstalk.com/ways-to-put-out-positive-energy/)
+- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
 - [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
+- [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
+- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
+- [putting out positive energy](https://inspiration.allwomenstalk.com/ways-to-put-out-positive-energy/)
+- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
+- [trending self help books](https://books.allwomenstalk.com/amazing-self-help-books-that-will-immediately-get-you-back-on-your-feet/)
 - [life plateau](https://inspiration.allwomenstalk.com/ways-to-move-past-plateaus-in-your-life/)
 - [kimberly fuhrman](https://health.allwomenstalk.com/health-gurus-to-listen-to-if-you-want-a-healthy-life/)
 - [7 Simple Secrets of Success ...](https://lifestyle.allwomenstalk.com/simple-secrets-of-success/)

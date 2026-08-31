@@ -70,16 +70,16 @@ Great literature provides us with invaluable life lessons, from processing love 
 
 ## Related Posts
 
-- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
-- [stephen king qoutes](https://movies.allwomenstalk.com/inspirational-quotes-from-stephen-king/)
-- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
-- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
-- [book quotes about new year](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
 - [words to describe a confident person](https://inspiration.allwomenstalk.com/powerful-words-that-confident-people-always-use/)
-- [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
+- [motivational quotes on finishing strong](https://inspiration.allwomenstalk.com/inspiring-quotes-thatll-get-you-to-the-finish-line/)
+- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
 - [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
 - [don't get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
-- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
+- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
+- [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
+- [stephen king qoutes](https://movies.allwomenstalk.com/inspirational-quotes-from-stephen-king/)
+- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
+- [book quotes about new year](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
 - [7 Must Read Literary Classics ...](https://allwomenstalk.com/7-must-read-literary-classics/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

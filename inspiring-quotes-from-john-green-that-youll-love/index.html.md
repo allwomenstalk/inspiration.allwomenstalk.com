@@ -56,16 +56,16 @@ There you have it! These are just seven out of MANY inspiring quotes from John G
 
 ## Related Posts
 
-- [jane austen quote](https://books.allwomenstalk.com/expressive-quotes-from-jane-austen/)
-- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
-- [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
 - [coco chanel - quotes, fashion & facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
-- [the best thing one can do when it's raining is to ...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
-- [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
+- [quote from adele](https://inspiration.allwomenstalk.com/adele-quotes-you-should-pay-attention-to/)
 - [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
+- [jane austen quote](https://books.allwomenstalk.com/expressive-quotes-from-jane-austen/)
+- [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
+- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
 - [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
-- [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
 - [great gatsby quotes about gatsby](https://inspiration.allwomenstalk.com/touching-quotes-from-the-great-gatsby/)
+- [the best thing one can do when it's raining is to ...](https://inspiration.allwomenstalk.com/enlightening-quotes-about-acceptance/)
+- [jessica day character traits](https://funny.allwomenstalk.com/most-relatable-jessica-day-quotes-that-prove-youre-just-like-her/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

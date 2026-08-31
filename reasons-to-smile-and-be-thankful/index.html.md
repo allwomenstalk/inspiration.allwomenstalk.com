@@ -42,16 +42,16 @@ These are all my reasons to be thankful and smile for each day. Try and look at 
 
 ## Related Posts
 
+- [why i should become a teacher](https://lifestyle.allwomenstalk.com/wonderful-reasons-why-you-should-become-a-teacher/)
+- [warum fallen muffins ein](https://food.allwomenstalk.com/reasons-to-say-yes-to-muffins/)
+- [hostel advantages](https://travel.allwomenstalk.com/reasons-to-stay-in-a-hostel/)
+- [why go back to college](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-college/)
+- [spelling properly](https://lifestyle.allwomenstalk.com/reasons-why-good-spelling-matters/)
+- [benefits of thrift shopping](https://lifestyle.allwomenstalk.com/awesome-reasons-to-go-thrift-shopping/)
+- [reasons why i need a phone](https://lifestyle.allwomenstalk.com/advantages-of-not-owning-a-smartphone/)
+- [happy hours-life](https://lifestyle.allwomenstalk.com/reasons-you-need-happy-hour-in-your-life/)
 - [good reasons to become a nurse](https://lifestyle.allwomenstalk.com/reasons-its-great-to-be-a-nurse/)
 - [should guys make the first move](https://love.allwomenstalk.com/reasons-to-make-the-first-move/)
-- [why i should become a teacher](https://lifestyle.allwomenstalk.com/wonderful-reasons-why-you-should-become-a-teacher/)
-- [hostel advantages](https://travel.allwomenstalk.com/reasons-to-stay-in-a-hostel/)
-- [spelling properly](https://lifestyle.allwomenstalk.com/reasons-why-good-spelling-matters/)
-- [why go back to college](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-college/)
-- [reasons why i need a phone](https://lifestyle.allwomenstalk.com/advantages-of-not-owning-a-smartphone/)
-- [warum fallen muffins ein](https://food.allwomenstalk.com/reasons-to-say-yes-to-muffins/)
-- [happy hours-life](https://lifestyle.allwomenstalk.com/reasons-you-need-happy-hour-in-your-life/)
-- [benefits of thrift shopping](https://lifestyle.allwomenstalk.com/awesome-reasons-to-go-thrift-shopping/)
 - [5 Reasons to Smile about Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-smile-about-your-garden/)
 - [5 Reasons to Be Thankful for the Spring ...](https://gardening.allwomenstalk.com/5-reasons-to-be-thankful-for-the-spring/)
 

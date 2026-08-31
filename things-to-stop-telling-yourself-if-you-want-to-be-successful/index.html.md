@@ -42,16 +42,16 @@ Now I want to hear from you! Do you tell yourself any of these bad beliefs about
 
 ## Related Posts
 
-- [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
-- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
+- [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
 - [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
-- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
-- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
-- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
-- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
 - [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
 - [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
-- [money is the only thing that matters](https://money.allwomenstalk.com/things-that-matter-more-than-money/)
+- [what you think is what you say what you say is wha...](https://inspiration.allwomenstalk.com/tips-for-how-to-stop-saying-everything-you-think/)
+- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
+- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [kohlbergs stages of moral development](https://lifestyle.allwomenstalk.com/things-you-need-to-know-about-kohlbergs-stages-of-moral-development/)
+- [navigating your 20s](https://lifestyle.allwomenstalk.com/things-to-know-about-your-20s/)
 - [10 Things You Need to Stop Doing in Your Everyday ...](https://allwomenstalk.com/10-things-you-need-to-stop-doing-in-your-everyday-life/)
 - [8 Things You Should Stop Doing to Yourself ...](https://lifestyle.allwomenstalk.com/things-you-should-stop-doing-to-yourself/)
 

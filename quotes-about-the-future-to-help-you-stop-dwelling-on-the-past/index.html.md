@@ -56,14 +56,14 @@ These are just a few of my favorite quotes about the future. Which are yours and
 
 ## Related Posts
 
-- [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
-- [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
 - [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
-- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
+- [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
+- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
 - [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
 - [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
-- [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
-- [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
+- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
 - [ayn rand atlas shrugged quotes](https://inspiration.allwomenstalk.com/ayn-rand-quotes-to-inspire-your-inner-objectivist/)
 - [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
 - [8 Tips for Forgetting the past ...](https://love.allwomenstalk.com/tips-for-forgetting-the-past/)

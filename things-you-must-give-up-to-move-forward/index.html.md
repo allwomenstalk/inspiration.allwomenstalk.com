@@ -40,16 +40,16 @@ Stop living life at such a fast pace that you don’t have time to take heed and
 
 ## Related Posts
 
-- [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
-- [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
-- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
-- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
-- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
-- [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
+- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
+- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
+- [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
 - [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
+- [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
 - [wemmmmm](https://inspiration.allwomenstalk.com/hacks-for-making-difficult-decisions/)
+- [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
+- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
 - [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
 - [10 Things You Need to Stop Doing in Your Everyday ...](https://allwomenstalk.com/10-things-you-need-to-stop-doing-in-your-everyday-life/)
 

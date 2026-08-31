@@ -56,16 +56,16 @@ Taking chances is something that can take you to higher places and lead you to m
 
 ## Related Posts
 
-- [why i should become a teacher](https://lifestyle.allwomenstalk.com/wonderful-reasons-why-you-should-become-a-teacher/)
-- [why go back to college](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-college/)
 - [reasons why i need a phone](https://lifestyle.allwomenstalk.com/advantages-of-not-owning-a-smartphone/)
-- [thankful smile](https://inspiration.allwomenstalk.com/reasons-to-smile-and-be-thankful/)
-- [benefits of thrift shopping](https://lifestyle.allwomenstalk.com/awesome-reasons-to-go-thrift-shopping/)
-- [happy hours-life](https://lifestyle.allwomenstalk.com/reasons-you-need-happy-hour-in-your-life/)
-- [should guys make the first move](https://love.allwomenstalk.com/reasons-to-make-the-first-move/)
-- [hostel advantages](https://travel.allwomenstalk.com/reasons-to-stay-in-a-hostel/)
 - [warum fallen muffins ein](https://food.allwomenstalk.com/reasons-to-say-yes-to-muffins/)
+- [why go back to college](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-college/)
+- [benefits of thrift shopping](https://lifestyle.allwomenstalk.com/awesome-reasons-to-go-thrift-shopping/)
+- [should guys make the first move](https://love.allwomenstalk.com/reasons-to-make-the-first-move/)
+- [why i should become a teacher](https://lifestyle.allwomenstalk.com/wonderful-reasons-why-you-should-become-a-teacher/)
+- [hostel advantages](https://travel.allwomenstalk.com/reasons-to-stay-in-a-hostel/)
+- [thankful smile](https://inspiration.allwomenstalk.com/reasons-to-smile-and-be-thankful/)
 - [spelling properly](https://lifestyle.allwomenstalk.com/reasons-why-good-spelling-matters/)
+- [happy hours-life](https://lifestyle.allwomenstalk.com/reasons-you-need-happy-hour-in-your-life/)
 - [7 Reasons to Love Traveling ...](https://allwomenstalk.com/7-reasons-to-love-traveling/)
 - [7 Reasons to Make a Career Change ...](https://allwomenstalk.com/7-reasons-to-make-a-career-change/)
 

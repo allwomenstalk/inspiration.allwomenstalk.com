@@ -42,16 +42,16 @@ We all get negative thoughts from time to time, but from my personal experience 
 
 ## Related Posts
 
+- [rough day bad day quotes](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-on-a-bad-day/)
 - [not feeling yourself](https://inspiration.allwomenstalk.com/ways-to-feel-like-yourself-again/)
+- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
 - [physical activities that reduce stress](https://fitness.allwomenstalk.com/activities-that-reduce-stress-and-give-you-exercise/)
 - [letting your guard down in a relationship](https://love.allwomenstalk.com/ways-to-let-your-guard-down-while-avoiding-getting-hurt/)
+- [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
 - [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
+- [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
 - [how do i free my mind](https://inspiration.allwomenstalk.com/ways-to-free-your-mind-immediately-that-really-do-work/)
 - [how to keep busy yourself](https://lifestyle.allwomenstalk.com/ways-to-keep-yourself-busy-and-productive/)
-- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
-- [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
-- [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
-- [rough day bad day quotes](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-on-a-bad-day/)
 - [7 Ways to Stop Overthinking Everything ...](https://allwomenstalk.com/ways-to-stop-overthinking-everything/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 

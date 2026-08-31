@@ -42,16 +42,16 @@ Though I joke we are going to skip next December 31st when I turn 30, I’m trul
 
 ## Related Posts
 
-- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
-- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
-- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
-- [in what ways do you think we're similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
-- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
-- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
 - [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
+- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
+- [in what ways do you think we're similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
+- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
 - [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
 - [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
+- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
 - [skills to learn before 20](https://inspiration.allwomenstalk.com/lifesaving-skills-to-learn-before-you-reach-20/)
+- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
+- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
 - [7 Things That Get Better with Age ...](https://lifestyle.allwomenstalk.com/things-that-get-better-with-age/)
 - [10 Great Points about Turning 40 ...](https://allwomenstalk.com/10-great-points-about-turning-40/)
 

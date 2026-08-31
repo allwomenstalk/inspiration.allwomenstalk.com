@@ -58,16 +58,16 @@ You don’t have to wait till New Year’s to set resolutions. Every day is a ne
 
 ## Related Posts
 
-- [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
 - [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
-- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
-- [establish yourself](https://inspiration.allwomenstalk.com/inspiring-ways-to-establish-yourself-as-a-leader/)
-- [write any two ways of helping others](https://inspiration.allwomenstalk.com/amazing-ways-to-help-others-and-make-a-difference/)
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
-- [kind things to do for yourself](https://inspiration.allwomenstalk.com/kind-things-to-do-for-yourself-today/)
-- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
+- [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
 - [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
+- [write any two ways of helping others](https://inspiration.allwomenstalk.com/amazing-ways-to-help-others-and-make-a-difference/)
+- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
+- [kind things to do for yourself](https://inspiration.allwomenstalk.com/kind-things-to-do-for-yourself-today/)
+- [establish yourself](https://inspiration.allwomenstalk.com/inspiring-ways-to-establish-yourself-as-a-leader/)
+- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [5 Ways to Be the Best Version of Yourself ...](https://allwomenstalk.com/ways-to-be-the-best-version-of-yourself/)
 

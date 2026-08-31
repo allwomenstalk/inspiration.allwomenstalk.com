@@ -56,16 +56,16 @@ These are some of my favorite Deepak Chopra quotes and there are no many more. W
 
 ## Related Posts
 
+- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
+- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
+- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
+- [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
+- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 - [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
+- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
 - [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
 - [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
-- [stand firm quotes](https://inspiration.allwomenstalk.com/leadership-quotes-from-abraham-lincoln/)
-- [a little help goes a long way](https://books.allwomenstalk.com/magnificent-quotes-from-charles-dickens/)
-- [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
-- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
-- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
-- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [8 Benefits of Meditation ...](https://allwomenstalk.com/8-benefits-of-meditation/)
 - [8 Ideas to Help You Meditate ...](https://health.allwomenstalk.com/ideas-to-help-you-meditate/)
 

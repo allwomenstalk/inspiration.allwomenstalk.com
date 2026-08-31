@@ -42,16 +42,16 @@ These are 7 awesome things about being the funny one. Are you the funny one in y
 
 ## Related Posts
 
-- [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
-- [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
+- [the holiday season is a perfect time to reflect](https://inspiration.allwomenstalk.com/important-things-to-reflect-upon-during-the-holiday-season/)
 - [irritating facebook posts](https://funny.allwomenstalk.com/annoying-facebook-habits-we-all-have/)
+- [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
+- [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
 - [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
-- [native language effect](https://lifestyle.allwomenstalk.com/surprising-ways-your-native-language-can-affect-your-life/)
+- [just hanging out at home](https://lifestyle.allwomenstalk.com/ways-to-hang-out-by-yourself/)
+- [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
 - [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
 - [how to use enemies](https://inspiration.allwomenstalk.com/great-lessons-to-learn-from-your-enemies/)
-- [the holiday season is a perfect time to reflect](https://inspiration.allwomenstalk.com/important-things-to-reflect-upon-during-the-holiday-season/)
-- [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
-- [just hanging out at home](https://lifestyle.allwomenstalk.com/ways-to-hang-out-by-yourself/)
+- [native language effect](https://lifestyle.allwomenstalk.com/surprising-ways-your-native-language-can-affect-your-life/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

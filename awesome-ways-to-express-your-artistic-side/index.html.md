@@ -42,14 +42,14 @@ Let go of the idea that being artistic is only worthwhile if you can make a livi
 
 ## Related Posts
 
-- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
-- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
 - [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
-- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
 - [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
 - [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
 - [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
+- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
 - [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
 - [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
 - [7 Creative Things to do with Your Child's Artwork ...](https://parenting.allwomenstalk.com/7-creative-things-to-do-with-your-childs-artwork/)

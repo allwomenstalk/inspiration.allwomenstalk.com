@@ -38,16 +38,16 @@ What other things did you write on your list that will help you start your year 
 
 ## Related Posts
 
-- [setback and relax](https://inspiration.allwomenstalk.com/ways-to-turn-a-setback-into-success/)
-- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
-- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
+- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
 - [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
-- [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
-- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
 - [happy life rules](https://inspiration.allwomenstalk.com/rules-to-live-by-for-a-happier-life/)
 - [how to practice self love every day](https://inspiration.allwomenstalk.com/ways-to-practice-self-love-2/)
-- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
+- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
+- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
+- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
+- [setback and relax](https://inspiration.allwomenstalk.com/ways-to-turn-a-setback-into-success/)
 - [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
+- [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
 - [5 New Year's Resolutions to Keep ...](https://allwomenstalk.com/5-new-years-resolutions-to-keep/)
 - [8 Ways to Boost Your Energy in the New Year ...](https://food.allwomenstalk.com/ways-to-boost-your-energy-in-the-new-year/)
 

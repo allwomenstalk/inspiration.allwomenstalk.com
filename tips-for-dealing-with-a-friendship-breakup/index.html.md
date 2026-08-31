@@ -42,16 +42,16 @@ Dealing with a friendship ending is never easy. What did you do to get yourself 
 
 ## Related Posts
 
+- [7 Biggest Breakup Mistakes to Avoid like the Plagu...](https://love.allwomenstalk.com/biggest-breakup-mistakes-to-avoid-like-the-plague/)
+- [7 Tips on Maintaining Relationships when You're De...](https://love.allwomenstalk.com/tips-on-maintaining-relationships-when-youre-depressed/)
+- [best ways to get over a guy](https://love.allwomenstalk.com/tips-to-get-over-a-guy-you-cant-be-with/)
 - [7 Completely Honest and Blunt Break up Lines ...](https://funny.allwomenstalk.com/completely-honest-and-blunt-break-up-lines/)
 - [7 Ways to Get over Your First Love ...](https://love.allwomenstalk.com/ways-to-get-over-your-first-love/)
-- [7 Tips on Maintaining Relationships when You're De...](https://love.allwomenstalk.com/tips-on-maintaining-relationships-when-youre-depressed/)
-- [7 Ways to Heal after Your First Big Heartbreak ...](https://love.allwomenstalk.com/ways-to-heal-after-your-first-big-heartbreak/)
 - [how to forget the ex](https://love.allwomenstalk.com/ways-to-forget-about-your-ex-and-move-on/)
-- [best ways to get over a guy](https://love.allwomenstalk.com/tips-to-get-over-a-guy-you-cant-be-with/)
-- [7 Biggest Breakup Mistakes to Avoid like the Plagu...](https://love.allwomenstalk.com/biggest-breakup-mistakes-to-avoid-like-the-plague/)
+- [7 Ways to Heal after Your First Big Heartbreak ...](https://love.allwomenstalk.com/ways-to-heal-after-your-first-big-heartbreak/)
+- [loreal paris color riche le stylo eye shadow glist...](https://love.allwomenstalk.com/ways-to-comfort-a-friend-going-through-a-breakup/)
 - [7 Positive Ways to Rebound from Disappointment ...](https://inspiration.allwomenstalk.com/positive-ways-to-rebound-from-disappointment/)
 - [7 Ways to Get along with Your Spouse's Ex ...](https://love.allwomenstalk.com/ways-to-get-along-with-your-spouses-ex/)
-- [loreal paris color riche le stylo eye shadow glist...](https://love.allwomenstalk.com/ways-to-comfort-a-friend-going-through-a-breakup/)
 - [7 Ways to Deal with Mutual Friends after a Breakup...](https://allwomenstalk.com/7-ways-to-deal-with-mutual-friends-after-a-breakup/)
 - [7 Ways to Gracefully End a Friendship ...](https://allwomenstalk.com/7-ways-to-gracefully-end-a-friendship/)
 

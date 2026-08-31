@@ -43,16 +43,16 @@ Ayn Rand’s works have helped shape many brilliant minds in both our history’
 
 ## Related Posts
 
-- [best quotes by confucius](https://inspiration.allwomenstalk.com/philosophical-quotes-from-confucius/)
 - [famous quotes on time management](https://inspiration.allwomenstalk.com/inspirational-time-management-quotes-that-will-help-you-stay-focused/)
 - [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
-- [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
-- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
-- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
-- [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
-- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
-- [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
 - [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
+- [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
+- [words for meditate](https://inspiration.allwomenstalk.com/single-inspirational-words-to-meditate-on/)
+- [best quotes by confucius](https://inspiration.allwomenstalk.com/philosophical-quotes-from-confucius/)
+- [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
+- [end of school year quotes](https://teen.allwomenstalk.com/inspirational-quotes-to-help-you-finish-the-school-year/)
+- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
+- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [7 Inspiring Career Quotes ...](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
 

@@ -46,15 +46,15 @@ Sources:
 
 ## Related Posts
 
-- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
-- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
-- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
-- [what are a man's obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
+- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
 - [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
+- [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
+- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
 - [single girl bucket list](https://lifestyle.allwomenstalk.com/a-realistic-bucket-list-for-college-girls/)
 - [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
-- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
-- [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
+- [what are a man's obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
+- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
+- [gym girl wedgie](https://fitness.allwomenstalk.com/awkward-gym-moments-every-girl-has-endured/)
 - [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
 - [7 Tips for Finding Your Career Calling in Life ...](https://lifestyle.allwomenstalk.com/tips-for-finding-your-career-calling-in-life/)
 - [The Average Girl's Guide to Having an Exciting Lif...](https://lifestyle.allwomenstalk.com/an-average-girls-guide-to-living-an-exciting-life/)

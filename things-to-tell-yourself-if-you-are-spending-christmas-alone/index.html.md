@@ -52,16 +52,16 @@ There is no rule set in stone stating that there is only one proper way to spend
 
 ## Related Posts
 
-- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
-- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
-- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
-- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
 - [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
-- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
-- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
+- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
+- [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
+- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
+- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
+- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
+- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
 - [10 Ways to Cheer Yourself up ...](https://allwomenstalk.com/10-ways-to-cheer-yourself-up/)
 - [8 Things to Keep You Occupied when You're Alone .....](https://allwomenstalk.com/8-things-to-keep-you-occupied-when-youre-alone/)
 

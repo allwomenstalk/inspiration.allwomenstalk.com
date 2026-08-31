@@ -54,15 +54,15 @@ Practice these inspiring French phrases and who knows? You might be able to util
 
 ## Related Posts
 
-- [perfect friend](https://lifestyle.allwomenstalk.com/how-to-not-resent-your-perfect-friend/)
-- [jealousy is unbecoming](https://inspiration.allwomenstalk.com/how-to-turn-jealousy-into-inspiration/)
-- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
-- [intense love quotes for him](https://love.allwomenstalk.com/quotes-about-intense-love/)
-- [quotes about eleanor roosevelt](https://inspiration.allwomenstalk.com/quotes-from-eleanor-roosevelt/)
-- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
 - [maya angelou inspirational quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-from-maya-angelou/)
-- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
 - [kaiser quotes](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
+- [perfect friend](https://lifestyle.allwomenstalk.com/how-to-not-resent-your-perfect-friend/)
+- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
+- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
+- [quotes about eleanor roosevelt](https://inspiration.allwomenstalk.com/quotes-from-eleanor-roosevelt/)
+- [intense love quotes for him](https://love.allwomenstalk.com/quotes-about-intense-love/)
+- [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
+- [jealousy is unbecoming](https://inspiration.allwomenstalk.com/how-to-turn-jealousy-into-inspiration/)
 - [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [8 Things That Really Inspire Me ...](https://allwomenstalk.com/8-things-that-really-inspire-me/)

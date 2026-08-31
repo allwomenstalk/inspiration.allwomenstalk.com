@@ -45,16 +45,16 @@ Are you suffering from a case of FoMo? You can find out by doing a quiz at [rate
 
 ## Related Posts
 
-- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
-- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
 - [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
+- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
+- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
 - [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
 - ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
 - [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
-- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
 - [How to Get through a Stressful Time ...](https://allwomenstalk.com/how-to-get-through-a-stressful-time-2/)
 - [Finding Peace of Mind ...](https://allwomenstalk.com/finding-peace-of-mind-in-2021/)
 

@@ -104,16 +104,16 @@ Why not let your sister know why you think she's so awesome?
 
 ## Related Posts
 
-- [monica frizzy hair episode](https://movies.allwomenstalk.com/reasons-why-f-r-i-e-n-d-s-is-still-an-awesome-t-v-show/)
-- [minions parachute](https://movies.allwomenstalk.com/reasons-why-the-minions-are-better-than-the-penguins/)
-- [rosamund pike height and weight](https://movies.allwomenstalk.com/reasons-why-rosamund-pike-should-win-best-actress-oscar/)
 - [ryot wilson](https://celebs.allwomenstalk.com/awesome-reasons-to-love-rebel-wilson/)
-- [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
-- [what is cosplay](https://lifestyle.allwomenstalk.com/fun-reasons-to-cosplay/)
+- [rosamund pike height and weight](https://movies.allwomenstalk.com/reasons-why-rosamund-pike-should-win-best-actress-oscar/)
 - [best ayn rand book](https://books.allwomenstalk.com/reasons-to-love-ayn-rand/)
 - [spirt animal quiz](https://celebs.allwomenstalk.com/reasons-why-anna-kendrick-is-everyones-spirit-animal/)
-- [why are cupcakes so popular](https://food.allwomenstalk.com/reasons-we-love-cupcakes-so-much/)
 - [taylor swift mae whitman](https://celebs.allwomenstalk.com/reasons-to-love-mae-whitman/)
+- [what is cosplay](https://lifestyle.allwomenstalk.com/fun-reasons-to-cosplay/)
+- [minions parachute](https://movies.allwomenstalk.com/reasons-why-the-minions-are-better-than-the-penguins/)
+- [monica frizzy hair episode](https://movies.allwomenstalk.com/reasons-why-f-r-i-e-n-d-s-is-still-an-awesome-t-v-show/)
+- [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
+- [why are cupcakes so popular](https://food.allwomenstalk.com/reasons-we-love-cupcakes-so-much/)
 - [10 Reasons Why Cats Are a Girl's Best Friend ...](https://allwomenstalk.com/10-reasons-why-cats-are-a-girls-best-friend/)
 - [8 Reasons You Need a Best Friend ...](https://allwomenstalk.com/8-reasons-you-need-a-best-friend/)
 

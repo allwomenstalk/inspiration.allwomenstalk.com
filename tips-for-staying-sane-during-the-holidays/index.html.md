@@ -50,16 +50,16 @@ These are some easy tips to survive the holidays. Remember, throw guilt out of t
 
 ## Related Posts
 
-- [down in the dumps quotes](https://inspiration.allwomenstalk.com/ways-to-clear-your-mind-when-you-re-down-in-the-dumps/)
 - [Exceptional Ways to Avoid Stress to Stick to Your ...](https://inspiration.allwomenstalk.com/ways-to-avoid-stress-so-you-can-stick-to-your-goals/)
-- [sunday night blues](https://lifestyle.allwomenstalk.com/ways-to-nix-the-sunday-night-blues/)
+- [Little Ways to Improve Your Mood when You're Not F...](https://inspiration.allwomenstalk.com/little-ways-to-improve-your-mood/)
+- [Just Stop and Breathe ...](https://inspiration.allwomenstalk.com/just-stop-and-breathe/)
+- [down in the dumps quotes](https://inspiration.allwomenstalk.com/ways-to-clear-your-mind-when-you-re-down-in-the-dumps/)
 - [Inspirational Reasons How Meditation Keeps Me Sane...](https://health.allwomenstalk.com/how-meditation-keeps-me-sane/)
 - [Inspirational Ways to Take Stress off Your Mind fo...](https://health.allwomenstalk.com/ways-to-take-your-mind-off-stress/)
-- [Just Stop and Breathe ...](https://inspiration.allwomenstalk.com/just-stop-and-breathe/)
-- [Genius Ways to Improve Your Concentration for Bett...](https://inspiration.allwomenstalk.com/ways-to-improve-your-concentration/)
-- [Little Ways to Improve Your Mood when You're Not F...](https://inspiration.allwomenstalk.com/little-ways-to-improve-your-mood/)
-- [coffee and stress](https://health.allwomenstalk.com/the-relationship-between-coffee-and-stress/)
+- [sunday night blues](https://lifestyle.allwomenstalk.com/ways-to-nix-the-sunday-night-blues/)
 - [Enjoyable Self-care Tips for Stressful Times in Li...](https://health.allwomenstalk.com/tips-for-self-care-when-youre-stressed/)
+- [coffee and stress](https://health.allwomenstalk.com/the-relationship-between-coffee-and-stress/)
+- [Genius Ways to Improve Your Concentration for Bett...](https://inspiration.allwomenstalk.com/ways-to-improve-your-concentration/)
 - [7 Ways to Handle Holiday Stress ...](https://health.allwomenstalk.com/ways-to-handle-holiday-stress/)
 - [7 Extremely Useful Tips on How to Get into the Chr...](https://lifestyle.allwomenstalk.com/extremely-useful-tips-on-how-to-get-into-the-christmas-spirit/)
 

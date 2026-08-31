@@ -80,16 +80,16 @@ The finish line isn't nearly as hard to reach as it may seem sometimes. Instead 
 
 ## Related Posts
 
-- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
-- [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
-- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
-- [don't get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
-- [life lessons speech](https://inspiration.allwomenstalk.com/great-speeches-that-will-teach-you-valuable-life-lessons/)
-- [words to describe a confident person](https://inspiration.allwomenstalk.com/powerful-words-that-confident-people-always-use/)
-- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
 - [stephen king qoutes](https://movies.allwomenstalk.com/inspirational-quotes-from-stephen-king/)
+- [you look good even on your worst days](https://beauty.allwomenstalk.com/ways-to-feel-beautiful-even-on-your-worst-day/)
+- [words to describe a confident person](https://inspiration.allwomenstalk.com/powerful-words-that-confident-people-always-use/)
+- [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
+- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
 - [book quotes about new year](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
+- [life lessons speech](https://inspiration.allwomenstalk.com/great-speeches-that-will-teach-you-valuable-life-lessons/)
+- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
 - [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
+- [don't get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
 - [7 Motivational Quotes for Runners ...](https://allwomenstalk.com/7-motivational-quotes-for-runners/)
 - [10 Motivational Phrases That Actually Work ...](https://lifestyle.allwomenstalk.com/motivational-phrases-that-actually-work/)
 

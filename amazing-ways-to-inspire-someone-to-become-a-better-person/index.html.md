@@ -58,16 +58,16 @@ Leading others to goodness and a positive life presents a great example. It lead
 
 ## Related Posts
 
-- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
-- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
-- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
-- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
-- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
-- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
 - [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
-- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
+- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
+- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
+- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
+- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
+- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
+- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
+- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [10 Ways to Help Other People ...](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
 

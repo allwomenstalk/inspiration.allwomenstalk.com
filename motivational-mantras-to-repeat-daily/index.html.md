@@ -48,16 +48,16 @@ P.S: Don't worry if none of these mantras fit your life goals the best. Be creat
 
 ## Related Posts
 
-- [how to become more ambitious](https://inspiration.allwomenstalk.com/ways-to-be-more-ambitious-and-achieve-all-your-goals/)
-- [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
-- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
 - [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
-- [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
 - [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
 - [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
-- [resourceful people](https://inspiration.allwomenstalk.com/ways-to-to-be-more-resourceful-in-life/)
+- [how to become more ambitious](https://inspiration.allwomenstalk.com/ways-to-be-more-ambitious-and-achieve-all-your-goals/)
 - [acts of self love](https://inspiration.allwomenstalk.com/daily-acts-of-self-love-that-will-make-your-week/)
 - [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
+- [resourceful people](https://inspiration.allwomenstalk.com/ways-to-to-be-more-resourceful-in-life/)
+- [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
+- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
+- [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
 - [7 Ways You Can Motivate Yourself ...](https://allwomenstalk.com/7-ways-you-can-motivate-yourself/)
 - [7 Powerful Daily Reminders ...](https://inspiration.allwomenstalk.com/powerful-daily-reminders/)
 

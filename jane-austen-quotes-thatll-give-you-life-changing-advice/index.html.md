@@ -56,16 +56,16 @@ If you didn’t already love Jane Austen, I hope you do now! She was so wise and
 
 ## Related Posts
 
-- [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
-- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
+- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
 - [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
 - [a quote from lupita nyong'o](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
 - [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
-- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
-- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
+- [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
 - [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
-- [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
 - [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
+- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
+- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
+- [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
 - [7 Reasons I Love Jane Austen's Novels ...](https://allwomenstalk.com/7-reasons-i-love-jane-austens-novels/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

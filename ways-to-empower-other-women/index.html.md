@@ -42,16 +42,16 @@ By empowering other women, we are allowing each other to reach our highest poten
 
 ## Related Posts
 
-- [what are the advantages of being a girl](https://inspiration.allwomenstalk.com/reasons-its-great-to-be-a-girl/)
-- [good manners girl](https://inspiration.allwomenstalk.com/manners-every-girl-should-have/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/body-image-issues-girls-face/)
 - [sapphic teens](https://lifestyle.allwomenstalk.com/must-know-websites-for-girls-who-like-girls/)
-- [what to teach your daughter](https://parenting.allwomenstalk.com/ways-to-teach-your-daughter-to-be-a-lady/)
-- [women are doing it for themselves](https://lifestyle.allwomenstalk.com/things-independent-women-should-learn-to-do-themselves/)
+- [good manners girl](https://inspiration.allwomenstalk.com/manners-every-girl-should-have/)
 - [life with a college girl](https://lifestyle.allwomenstalk.com/mistakes-every-girl-makes-her-freshman-year-in-college/)
+- [what to teach your daughter](https://parenting.allwomenstalk.com/ways-to-teach-your-daughter-to-be-a-lady/)
 - [girl talk mtv](https://movies.allwomenstalk.com/things-mtvs-girl-code-has-taught-women/)
 - [without manners](https://lifestyle.allwomenstalk.com/must-have-manners-many-women-dont-use-but-should/)
+- [what are the advantages of being a girl](https://inspiration.allwomenstalk.com/reasons-its-great-to-be-a-girl/)
+- [women are doing it for themselves](https://lifestyle.allwomenstalk.com/things-independent-women-should-learn-to-do-themselves/)
 - [list of movie cliches](https://movies.allwomenstalk.com/romantic-movie-cliches-girls-crave-in-real-life/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/body-image-issues-girls-face/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [7 Tips on How to Be a Lady ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-a-lady/)
 

@@ -68,16 +68,16 @@ Do you employ any or all of the steps that encompass the Law of Attraction? Do y
 
 ## Related Posts
 
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
-- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
-- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
-- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
-- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
-- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
-- [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
 - [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
 - [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
+- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
+- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
+- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
+- [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
+- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
+- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
 - [9 Ways to Get the Promotion You Want ...](https://allwomenstalk.com/9-ways-to-get-the-promotion-you-want/)
 - [8 Things You Can Achieve ... Even if You Don't Thi...](https://allwomenstalk.com/8-things-you-can-achieve-even-if-you-dont-think-you-can/)
 

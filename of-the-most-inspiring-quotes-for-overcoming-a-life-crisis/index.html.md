@@ -106,16 +106,16 @@ These curated **crisis quotes** are part of a personal collection I have kept fo
 
 ## Related Posts
 
-- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
 - [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
 - [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
 - [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
-- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
 - [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
-- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
-- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
 - [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
+- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
+- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
+- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
 - [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
+- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

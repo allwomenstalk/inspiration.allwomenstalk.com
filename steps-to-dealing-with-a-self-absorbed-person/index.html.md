@@ -42,16 +42,16 @@ Do you have a self-absorbed person in your life? How do you deal? Please share y
 
 ## Related Posts
 
+- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
+- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
+- [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
 - [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
 - [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
 - [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
 - [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
-- [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
-- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
-- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [Clever Ways to Survive an Awkward Situation ...](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
 - [Dealing with Passive, Aggressive Family, Friends a...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
 

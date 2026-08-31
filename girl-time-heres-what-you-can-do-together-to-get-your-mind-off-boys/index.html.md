@@ -42,16 +42,16 @@ These are 7 ideas for girl time to get your mind off of boys. What’s your favo
 
 ## Related Posts
 
-- [how to be a girl that everyone likes](https://lifestyle.allwomenstalk.com/how-to-be-the-girl-everyone-wants-to-hang-out-with/)
-- [independant girls](https://inspiration.allwomenstalk.com/forget-relationship-goals-here-are-some-independent-girl-goals/)
-- [the girls before bedtime](https://beauty.allwomenstalk.com/things-every-girl-must-do-before-bed-to-look-pretty-in-the-morning/)
-- [lazy girl quotes](https://funny.allwomenstalk.com/life-hacks-you-need-if-you-want-to-maintain-your-reputation-as-a-lazy-girl/)
-- [to do list for girls](https://inspiration.allwomenstalk.com/the-ultimate-to-do-list-for-every-single-girl/)
-- [things every woman should own](https://inspiration.allwomenstalk.com/things-every-girl-should-do-at-least-once-in-her-life/)
-- [bussnise card](https://money.allwomenstalk.com/have-you-ever-wondered-how-to-stand-out-as-a-woman-in-the-business-world/)
-- [judging a woman by her clothes quotes](https://fashion.allwomenstalk.com/this-is-why-its-time-to-stop-judging-women-based-on-their-clothes/)
-- [funny busty](https://funny.allwomenstalk.com/these-busty-girl-problems-are-hilariously-true/)
 - [beauty bucket list](https://beauty.allwomenstalk.com/your-beauty-bucket-list-what-every-woman-should-do-before/)
+- [independant girls](https://inspiration.allwomenstalk.com/forget-relationship-goals-here-are-some-independent-girl-goals/)
+- [things every woman should own](https://inspiration.allwomenstalk.com/things-every-girl-should-do-at-least-once-in-her-life/)
+- [the girls before bedtime](https://beauty.allwomenstalk.com/things-every-girl-must-do-before-bed-to-look-pretty-in-the-morning/)
+- [to do list for girls](https://inspiration.allwomenstalk.com/the-ultimate-to-do-list-for-every-single-girl/)
+- [how to be a girl that everyone likes](https://lifestyle.allwomenstalk.com/how-to-be-the-girl-everyone-wants-to-hang-out-with/)
+- [judging a woman by her clothes quotes](https://fashion.allwomenstalk.com/this-is-why-its-time-to-stop-judging-women-based-on-their-clothes/)
+- [bussnise card](https://money.allwomenstalk.com/have-you-ever-wondered-how-to-stand-out-as-a-woman-in-the-business-world/)
+- [lazy girl quotes](https://funny.allwomenstalk.com/life-hacks-you-need-if-you-want-to-maintain-your-reputation-as-a-lazy-girl/)
+- [funny busty](https://funny.allwomenstalk.com/these-busty-girl-problems-are-hilariously-true/)
 - [11 Ways to Keep Your Mind off a Breakup ...](https://love.allwomenstalk.com/ways-to-keep-your-mind-off-of-a-breakup/)
 - [Things to Take Your Mind off Your Heartbreak ...](https://love.allwomenstalk.com/things-to-take-your-mind-off-your-heartbreak/)
 

@@ -72,16 +72,16 @@ In this super modern age of technology and cutting edge everything, it is often 
 
 ## Related Posts
 
-- [Awesome Morning Self Care Routine for a Better Day...](https://health.allwomenstalk.com/awesome-morning-self-care-routine-for-a-better-day/)
-- [10 Notes to Self That Will Make You Happier and St...](https://inspiration.allwomenstalk.com/notes-to-self-that-will-make-you-happier-and-stronger/)
 - [Things Everyone 🤗 Can do to Feel More Productive ...](https://inspiration.allwomenstalk.com/things-everyone-can-do-to-feel-more-productive/)
-- [Inspirational Ways to Attract Friends ...](https://lifestyle.allwomenstalk.com/inspirational-ways-to-attract-friends/)
 - [how to wake up happier](https://inspiration.allwomenstalk.com/ways-to-wake-up-happier-than-you-did-yesterday/)
-- [how to break the habit of being lazy](https://inspiration.allwomenstalk.com/important-habits-to-help-you-stop-being-so-damn-lazy/)
+- [Awesome Morning Self Care Routine for a Better Day...](https://health.allwomenstalk.com/awesome-morning-self-care-routine-for-a-better-day/)
 - [8 Awesome Ways to Strengthen Your Heart for a Long...](https://health.allwomenstalk.com/awesome-ways-to-strengthen-your-heart-for-a-longer-life/)
-- [Awesome Ways to French-ify Your Life ...](https://lifestyle.allwomenstalk.com/awesome-ways-to-french-ify-your-life/)
-- [The Tricks to Making Yourself Happier ...](https://inspiration.allwomenstalk.com/the-tricks-to-making-yourself-happier/)
+- [how to break the habit of being lazy](https://inspiration.allwomenstalk.com/important-habits-to-help-you-stop-being-so-damn-lazy/)
+- [Inspirational Ways to Attract Friends ...](https://lifestyle.allwomenstalk.com/inspirational-ways-to-attract-friends/)
+- [10 Notes to Self That Will Make You Happier and St...](https://inspiration.allwomenstalk.com/notes-to-self-that-will-make-you-happier-and-stronger/)
 - [5 Personal Investments That Will Improve Your Life...](https://inspiration.allwomenstalk.com/personal-investments-that-will-improve-your-life/)
+- [The Tricks to Making Yourself Happier ...](https://inspiration.allwomenstalk.com/the-tricks-to-making-yourself-happier/)
+- [Awesome Ways to French-ify Your Life ...](https://lifestyle.allwomenstalk.com/awesome-ways-to-french-ify-your-life/)
 - [8 Delightful and Fun Ways to Pamper Yourself ...](https://health.allwomenstalk.com/delightful-and-fun-ways-to-pamper-yourself/)
 - [7 Easy Ways to Improve Your Health Today ...](https://allwomenstalk.com/7-easy-ways-to-improve-your-health-today/)
 

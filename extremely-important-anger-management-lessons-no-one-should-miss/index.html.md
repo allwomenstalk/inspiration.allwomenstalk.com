@@ -44,16 +44,16 @@ There are a lot of things you can do to calm down when you are feeling angry. Ca
 
 ## Related Posts
 
-- [10 lies they tell you in high school](https://teen.allwomenstalk.com/lies-you-were-told-in-high-school/)
-- [gordon ramsay meal kits](https://food.allwomenstalk.com/things-to-learn-from-gordon-ramsay/)
 - [what's art therapy](https://health.allwomenstalk.com/interesting-things-to-know-about-art-therapy/)
-- [how achieve your dreams](https://inspiration.allwomenstalk.com/things-standing-in-the-way-of-achieving-your-dreams/)
-- [websites to learn new skills](https://lifestyle.allwomenstalk.com/websites-that-will-teach-you-valuable-life-skills/)
-- [• was the first known greek scientist • believed a...](https://lifestyle.allwomenstalk.com/philosophers-from-ancient-history-that-we-still-talk-about-today/)
-- [habits people have](https://lifestyle.allwomenstalk.com/habits-that-most-people-have/)
-- [what does it mean when it feels like you've known ...](https://lifestyle.allwomenstalk.com/things-that-happen-when-youve-known-someone-forever/)
-- [cristina yang aesthetic](https://movies.allwomenstalk.com/important-life-lessons-from-cristina-yang/)
 - [how to keep your life private on social media](https://lifestyle.allwomenstalk.com/parts-of-your-life-to-keep-private-and-off-social-media/)
+- [how achieve your dreams](https://inspiration.allwomenstalk.com/things-standing-in-the-way-of-achieving-your-dreams/)
+- [10 lies they tell you in high school](https://teen.allwomenstalk.com/lies-you-were-told-in-high-school/)
+- [habits people have](https://lifestyle.allwomenstalk.com/habits-that-most-people-have/)
+- [websites to learn new skills](https://lifestyle.allwomenstalk.com/websites-that-will-teach-you-valuable-life-skills/)
+- [cristina yang aesthetic](https://movies.allwomenstalk.com/important-life-lessons-from-cristina-yang/)
+- [what does it mean when it feels like you've known ...](https://lifestyle.allwomenstalk.com/things-that-happen-when-youve-known-someone-forever/)
+- [gordon ramsay meal kits](https://food.allwomenstalk.com/things-to-learn-from-gordon-ramsay/)
+- [• was the first known greek scientist • believed a...](https://lifestyle.allwomenstalk.com/philosophers-from-ancient-history-that-we-still-talk-about-today/)
 - [7 Ways to Deal with Anger ...](https://allwomenstalk.com/7-ways-to-deal-with-anger/)
 - [7 Tips on Controlling Your Attitude ...](https://allwomenstalk.com/7-tips-on-controlling-your-attitude/)
 

@@ -44,16 +44,16 @@ People who are super self-obsessed simply can’t put themselves in someone else
 
 ## Related Posts
 
-- [Zip It! Top 10 Things That You Shouldn’t Say to Hi...](https://allwomenstalk.com/zip-it-top-10-things-that-you-shouldnt-say-to-him/)
-- [7 Health Rules You Should Break...](https://allwomenstalk.com/7-health-rules-you-should-break/)
-- [ts seductive](https://allwomenstalk.com/5-donts-when-girl-talking/)
 - [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
-- [10+ Critical Don'ts to Avoid when Arguing ...](https://allwomenstalk.com/10-critical-donts-to-avoid-when-arguing/)
-- [Don't Say It! Top Ten Lines a Woman Should Never H...](https://allwomenstalk.com/top-ten-lines-a-woman-should-never-hear-from-you/)
 - [not late party](https://allwomenstalk.com/what-not-to-party-dont-come-too-late/)
-- [10 Foods to Never Put in Your Mouth ...](https://allwomenstalk.com/10-foods-to-never-put-in-your-mouth/)
-- [12 Bad Habits You Should Break Right Now ...](https://allwomenstalk.com/12-bad-habits-you-should-break-right-now/)
+- [Don't Say It! Top Ten Lines a Woman Should Never H...](https://allwomenstalk.com/top-ten-lines-a-woman-should-never-hear-from-you/)
 - [What Not to Party: Don't Pretend to like Something](https://allwomenstalk.com/what-not-to-party-dont-pretend-to-like-something/)
+- [ts seductive](https://allwomenstalk.com/5-donts-when-girl-talking/)
+- [Zip It! Top 10 Things That You Shouldn’t Say to Hi...](https://allwomenstalk.com/zip-it-top-10-things-that-you-shouldnt-say-to-him/)
+- [10+ Critical Don'ts to Avoid when Arguing ...](https://allwomenstalk.com/10-critical-donts-to-avoid-when-arguing/)
+- [12 Bad Habits You Should Break Right Now ...](https://allwomenstalk.com/12-bad-habits-you-should-break-right-now/)
+- [10 Foods to Never Put in Your Mouth ...](https://allwomenstalk.com/10-foods-to-never-put-in-your-mouth/)
+- [7 Health Rules You Should Break...](https://allwomenstalk.com/7-health-rules-you-should-break/)
 - [8 do's and Don'ts of Life ...](https://lifestyle.allwomenstalk.com/dos-and-donts-of-life/)
 - [7 Celebrity Self-Help Books You Probably Shouldn't...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
 

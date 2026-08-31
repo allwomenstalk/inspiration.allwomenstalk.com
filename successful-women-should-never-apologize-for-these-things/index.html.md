@@ -116,16 +116,16 @@ What are you sick to death of apologizing for?
 
 ## Related Posts
 
-- [is the theme “eventually you have to stand up for ...](https://books.allwomenstalk.com/tips-for-young-writers-who-want-to-be-taken-more-seriously/)
 - [essential massage & facials of riverview photos](https://beauty.allwomenstalk.com/pieces-of-etiquette-for-ladies-who-love-the-spa/)
-- [up the career ladder lipstick in hand](https://lifestyle.allwomenstalk.com/how-to-scale-the-career-ladder-while-youre-young/)
-- [high school freshman survival guide](https://teen.allwomenstalk.com/the-best-survival-tips-for-high-school-girls/)
-- [unhealthy fridge snacks](https://food.allwomenstalk.com/healthy-choices-for-midnight-fridge-raiders/)
-- [fomo umm](https://inspiration.allwomenstalk.com/this-is-how-girls-with-fomo-can-kill-it-for-good/)
 - [curvy weather women](https://fashion.allwomenstalk.com/hot-weather-woes-every-cute-curvy-girl-goes-through/)
 - [girls six pack](https://fitness.allwomenstalk.com/these-are-the-habits-of-girls-with-killer-abs/)
-- [petite females](https://lifestyle.allwomenstalk.com/petite-girls-can-relate-to-these-problems-all-too-well/)
+- [high school freshman survival guide](https://teen.allwomenstalk.com/the-best-survival-tips-for-high-school-girls/)
+- [is the theme “eventually you have to stand up for ...](https://books.allwomenstalk.com/tips-for-young-writers-who-want-to-be-taken-more-seriously/)
+- [up the career ladder lipstick in hand](https://lifestyle.allwomenstalk.com/how-to-scale-the-career-ladder-while-youre-young/)
+- [fomo umm](https://inspiration.allwomenstalk.com/this-is-how-girls-with-fomo-can-kill-it-for-good/)
 - [talkative women](https://lifestyle.allwomenstalk.com/undeniable-things-every-talkative-woman-understands/)
+- [unhealthy fridge snacks](https://food.allwomenstalk.com/healthy-choices-for-midnight-fridge-raiders/)
+- [petite females](https://lifestyle.allwomenstalk.com/petite-girls-can-relate-to-these-problems-all-too-well/)
 - [Top 7 Things to Never Say to Women ...](https://allwomenstalk.com/top-7-things-to-never-say-to-women/)
 - [7 Things Only Women Can Get Away with ...](https://allwomenstalk.com/7-things-only-women-can-get-away-with/)
 

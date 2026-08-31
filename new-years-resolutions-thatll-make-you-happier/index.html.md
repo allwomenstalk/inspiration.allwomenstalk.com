@@ -116,16 +116,16 @@ If you want next year to be better than this one, you need to pick a perfect res
 
 ## Related Posts
 
-- [Great Ways to Help You Stop Fearing the Future ...](https://inspiration.allwomenstalk.com/how-to-stop-fearing-the-future/)
-- [Nix These Things to Be Instantly ⏱ Happier ...](https://inspiration.allwomenstalk.com/nix-these-things-to-be-instantly-happier/)
-- [The Best Ways to Develop Mental Strength ...](https://vityle.com/the-best-ways-to-develop-mental-strength/)
-- [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
-- [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
-- [Check out These Websites to Boost Brain Power 🤓 ....](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
-- [10 Habits That'll Start Your Year off the Right Wa...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
 - [The Science of Motivation ...](https://inspiration.allwomenstalk.com/the-science-of-motivation/)
+- [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
+- [The Best Ways to Develop Mental Strength ...](https://vityle.com/the-best-ways-to-develop-mental-strength/)
+- [Great Ways to Help You Stop Fearing the Future ...](https://inspiration.allwomenstalk.com/how-to-stop-fearing-the-future/)
+- [10 Habits That'll Start Your Year off the Right Wa...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
 - [Websites That Will Help You Keep Your New Year's R...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
+- [Check out These Websites to Boost Brain Power 🤓 ....](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
 - [Rules for Setting New Year's Resolutions That You'...](https://inspiration.allwomenstalk.com/rules-for-setting-new-years-resolutions-that-youll-actually-keep/)
+- [Nix These Things to Be Instantly ⏱ Happier ...](https://inspiration.allwomenstalk.com/nix-these-things-to-be-instantly-happier/)
+- [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
 - [11 New Year's Resolutions You Should Try This Year...](https://allwomenstalk.com/7-new-years-resolutions-you-should-try/)
 - [7 Things I Will Put in My New Year's Resolution .....](https://allwomenstalk.com/7-things-i-will-put-in-my-new-years-resolution/)
 

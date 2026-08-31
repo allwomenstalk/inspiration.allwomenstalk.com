@@ -137,16 +137,16 @@ Feeling better? Which quote is your favorite?
 
 ## Related Posts
 
-- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
-- [uplifting posters](https://inspiration.allwomenstalk.com/the-most-uplifting-quotes-from-motivational-posters/)
-- [one day is good one day is bad](https://inspiration.allwomenstalk.com/read-these-quotes-after-a-really-rough-day/)
 - [big words for strong](https://lifestyle.allwomenstalk.com/strong-words-thatll-help-you-win-arguments/)
-- [a bad day doesn't mean a bad life](https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/)
 - [nail quotes sayings](https://travel.allwomenstalk.com/these-beachy-quotes-will-make-you-feel-like-youre-on-vacay-even-when-youre-not/)
-- [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
-- [inspire never stop learning quotes](https://inspiration.allwomenstalk.com/stimulating-quotes-thatll-inspire-you-to-learn/)
+- [a bad day doesn't mean a bad life](https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/)
 - [amy schumer quotes](https://funny.allwomenstalk.com/quotes-from-amy-schumer-that-will-make-you-think/)
+- [inspire never stop learning quotes](https://inspiration.allwomenstalk.com/stimulating-quotes-thatll-inspire-you-to-learn/)
+- [one day is good one day is bad](https://inspiration.allwomenstalk.com/read-these-quotes-after-a-really-rough-day/)
 - [shes right you know](https://funny.allwomenstalk.com/shes-right-you-know-check-out-these-quotes-from-amy-poehler/)
+- [uplifting posters](https://inspiration.allwomenstalk.com/the-most-uplifting-quotes-from-motivational-posters/)
+- [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
+- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
 - [30 Motivational Quotes for when You're Feeling dow...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [11 Uplifting Quotes to Make You Feel Better ...](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
 

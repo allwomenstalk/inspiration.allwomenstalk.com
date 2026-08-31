@@ -114,16 +114,16 @@ Beer. Good old beer.
 
 ## Related Posts
 
-- [signs you should not accept job offer](https://money.allwomenstalk.com/signs-you-shouldnt-actually-accept-a-job-offer/)
-- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
-- [signs that your hair is damaged](https://hair.allwomenstalk.com/signs-your-hair-is-damaged-and-needs-attention/)
-- [should i drop a course](https://teen.allwomenstalk.com/signs-you-should-drop-that-class-asap/)
-- [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
-- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
-- [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
-- [signs you're a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
-- [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
 - [lobster romantic meaning](https://love.allwomenstalk.com/this-is-how-you-know-youve-found-your-lobster/)
+- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
+- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
+- [should i drop a course](https://teen.allwomenstalk.com/signs-you-should-drop-that-class-asap/)
+- [signs you're a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
+- [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
+- [signs you should not accept job offer](https://money.allwomenstalk.com/signs-you-shouldnt-actually-accept-a-job-offer/)
+- [signs that your hair is damaged](https://hair.allwomenstalk.com/signs-your-hair-is-damaged-and-needs-attention/)
+- [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
+- [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
 - [8 Signs You Are a Terrible Girlfriend ...](https://allwomenstalk.com/8-signs-you-are-a-terrible-girlfriend/)
 - [7 Times It DOESN'T Pay to Be Girly ...](https://allwomenstalk.com/7-times-it-doesnt-pay-to-be-girly/)
 

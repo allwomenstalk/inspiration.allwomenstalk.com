@@ -56,16 +56,16 @@ From this moment on, I am making a promise to myself that I intend to keep. I'm 
 
 ## Related Posts
 
+- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
+- [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
 - [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
 - [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
-- [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
-- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
-- [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
-- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
 - [einstein quotes about change](https://inspiration.allwomenstalk.com/most-inspiring-quotes-from-albert-einstein-to-help-you-get-back-on-your-feet/)
-- [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
+- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [7 Celebrity Quotes We Should Actually Live by ...](https://celebs.allwomenstalk.com/celebrity-quotes-we-should-actually-live-by/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

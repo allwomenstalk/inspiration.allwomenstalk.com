@@ -57,15 +57,15 @@ _psychologytoday.com_
 
 ## Related Posts
 
+- [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
 - [how to give back to your community](https://lifestyle.allwomenstalk.com/ways-to-give-back-to-your-community/)
-- [short motivational mantras](https://inspiration.allwomenstalk.com/motivational-mantras-to-repeat-daily/)
 - [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
-- [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
+- [short motivational mantras](https://inspiration.allwomenstalk.com/motivational-mantras-to-repeat-daily/)
 - [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
 - [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
-- [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
 - [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
-- [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
+- [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
+- [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
 - [how to become more ambitious](https://inspiration.allwomenstalk.com/ways-to-be-more-ambitious-and-achieve-all-your-goals/)
 - [8 Tips to Change Your Life ...](https://lifestyle.allwomenstalk.com/tips-to-change-your-life/)
 - [9 Habits That Can Change Your Life ...](https://allwomenstalk.com/habits-that-can-change-your-life/)

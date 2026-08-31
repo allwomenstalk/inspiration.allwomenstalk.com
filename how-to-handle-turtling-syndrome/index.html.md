@@ -25,15 +25,15 @@ Take this time to try some new things, maybe learn how to meditate, do yoga, try
 ## Related Posts
 
 - [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
-- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
 - [8 Tips for Finding an Alternative Therapist ...](https://allwomenstalk.com/8-tips-for-finding-an-alternative-therapist/)
-- [7 Ways to Deal with His Overprotective Mum ...](https://7fun.net/7-ways-to-deal-with-his-overprotective-mum/)
-- [8 Ways to Get Rid of Salesmen ...](https://allwomenstalk.com/8-ways-to-get-rid-of-salesmen/)
-- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
-- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
-- [how to prevent shyness](https://allwomenstalk.com/10-ways-to-overcome-shyness/)
+- [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
 - [8 Ways to Spot a New BFF ...](https://allwomenstalk.com/8-ways-to-spot-a-new-bff/)
 - [7 Know-How's to Spot a Liar ...](https://allwomenstalk.com/7-know-hows-to-spot-a-liar/)
+- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
+- [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
+- [8 Ways to Get Rid of Salesmen ...](https://allwomenstalk.com/8-ways-to-get-rid-of-salesmen/)
+- [7 Ways to Deal with His Overprotective Mum ...](https://7fun.net/7-ways-to-deal-with-his-overprotective-mum/)
+- [how to prevent shyness](https://allwomenstalk.com/10-ways-to-overcome-shyness/)
 - [How to Get through a Stressful Time ...](https://allwomenstalk.com/how-to-get-through-a-stressful-time-2/)
 - [How to Reduce Stress ...](https://allwomenstalk.com/how-to-reduce-stress/)
 

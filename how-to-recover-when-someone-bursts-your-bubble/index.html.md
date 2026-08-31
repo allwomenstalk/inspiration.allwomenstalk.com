@@ -58,16 +58,16 @@ These people are toxic, negative, no matter what you do. They will always suck y
 
 ## Related Posts
 
-- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
-- [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
-- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
-- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
-- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
-- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
-- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
-- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
 - [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
+- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
+- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
+- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
+- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
 - [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
+- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
+- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
+- [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
+- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
 - [7 Tips on How to Get through a Break up ...](https://love.allwomenstalk.com/tips-on-how-to-get-through-a-break-up/)
 - [9 Ways to Bounce Back from a Break up ...](https://allwomenstalk.com/9-ways-to-bounce-back-from-a-break-up/)
 

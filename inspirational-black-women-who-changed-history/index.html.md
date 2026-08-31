@@ -56,16 +56,16 @@ There are so many black female role models in history and alive today, too, so m
 
 ## Related Posts
 
-- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
-- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
-- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
-- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
-- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
-- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
 - [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
-- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
+- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
+- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
+- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
 - [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
+- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
+- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
+- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 - [5 Great Women to Admire...](https://allwomenstalk.com/5-great-women-to-admire/)
 

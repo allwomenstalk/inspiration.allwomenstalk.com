@@ -56,16 +56,16 @@ The universe isn't something that we usually talk about or even think about, but
 
 ## Related Posts
 
-- [never mess with a tough girl](https://funny.allwomenstalk.com/quotes-that-prove-you-should-never-mess-with-a-woman/)
-- [dressing room quotes](https://inspiration.allwomenstalk.com/motivational-words-you-need-on-your-dressing-room-mirror/)
-- [i love shopping images](https://funny.allwomenstalk.com/love-shopping-these-funny-shopping-quotes-are-perfect-for-you/)
 - [reciprocated love](https://love.allwomenstalk.com/beautiful-quotes-to-help-you-deal-with-unrequited-love/)
-- [dream goals in life quotes](https://funny.allwomenstalk.com/silly-but-still-motivational-quotes-about-following-your-dreams/)
-- [quote life is an adventure](https://inspiration.allwomenstalk.com/quotes-about-adventure-thatll-make-you-want-to-experience-more-in-life/)
-- [the little prince rose quote](https://books.allwomenstalk.com/quotes-from-the-little-prince-that-will-inspire-you/)
-- [little but fierce tattoo](https://beauty.allwomenstalk.com/tattoo-quotes-from-classic-literature-for-your-first-tattoo/)
-- [things are getting worse please send chocolate](https://funny.allwomenstalk.com/the-truth-is-out-quotes-about-chocolate-we-can-all-relate-to/)
 - [if you can't help someone don't hurt them](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-dalai-lama-about-true-peace/)
+- [quote life is an adventure](https://inspiration.allwomenstalk.com/quotes-about-adventure-thatll-make-you-want-to-experience-more-in-life/)
+- [little but fierce tattoo](https://beauty.allwomenstalk.com/tattoo-quotes-from-classic-literature-for-your-first-tattoo/)
+- [dressing room quotes](https://inspiration.allwomenstalk.com/motivational-words-you-need-on-your-dressing-room-mirror/)
+- [the little prince rose quote](https://books.allwomenstalk.com/quotes-from-the-little-prince-that-will-inspire-you/)
+- [i love shopping images](https://funny.allwomenstalk.com/love-shopping-these-funny-shopping-quotes-are-perfect-for-you/)
+- [dream goals in life quotes](https://funny.allwomenstalk.com/silly-but-still-motivational-quotes-about-following-your-dreams/)
+- [things are getting worse please send chocolate](https://funny.allwomenstalk.com/the-truth-is-out-quotes-about-chocolate-we-can-all-relate-to/)
+- [never mess with a tough girl](https://funny.allwomenstalk.com/quotes-that-prove-you-should-never-mess-with-a-woman/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 - [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 

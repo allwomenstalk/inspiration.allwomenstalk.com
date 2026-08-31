@@ -42,16 +42,16 @@ Being multi-racial still isn’t easy; you may feel like you need to choose side
 
 ## Related Posts
 
-- [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
 - [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
-- [always saying i love you](https://love.allwomenstalk.com/phrases-that-are-more-meaningful-than-saying-i-love-you/)
-- [i wish i was curvy](https://lifestyle.allwomenstalk.com/heres-why-its-great-to-be-a-curvy-girl/)
 - [better than your boyfriend](https://funny.allwomenstalk.com/reasons-netflix-is-better-than-a-boyfriend/)
+- [the cutest couple in the world](https://celebs.allwomenstalk.com/this-is-why-chip-and-joanna-are-the-cutest-couple-around/)
+- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
+- [always saying i love you](https://love.allwomenstalk.com/phrases-that-are-more-meaningful-than-saying-i-love-you/)
+- [chandler dance gif](https://lifestyle.allwomenstalk.com/why-its-oh-so-easy-to-relate-to-chandler-bing/)
+- [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
+- [i wish i was curvy](https://lifestyle.allwomenstalk.com/heres-why-its-great-to-be-a-curvy-girl/)
 - [diary of a genius](https://inspiration.allwomenstalk.com/why-bridget-jones-is-a-genius-for-keeping-a-diary/)
 - [how many people watch the pll](https://movies.allwomenstalk.com/this-is-why-young-women-will-love-to-watch-pretty-little-liars/)
-- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
-- [chandler dance gif](https://lifestyle.allwomenstalk.com/why-its-oh-so-easy-to-relate-to-chandler-bing/)
-- [the cutest couple in the world](https://celebs.allwomenstalk.com/this-is-why-chip-and-joanna-are-the-cutest-couple-around/)
 - [8 Reasons Why I Love Being a Mom ...](https://parenting.allwomenstalk.com/8-reasons-why-i-love-being-a-mom/)
 - [7 Reasons I Love Being a Mommy ...](https://allwomenstalk.com/7-reasons-i-love-being-a-mommy/)
 

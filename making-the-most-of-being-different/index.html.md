@@ -72,16 +72,16 @@ Young women are constantly under pressure to be "just like the girl in the gloss
 
 ## Related Posts
 
-- [gut instincts you should never ignore in a relatio...](https://lifestyle.allwomenstalk.com/gut-feelings-you-should-never-ignore/)
-- [reasons why you are amazing](https://love.allwomenstalk.com/reasons-youre-more-desirable-than-you-think/)
-- [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
-- [do all geniuses talk to themselves](https://lifestyle.allwomenstalk.com/people-who-talk-to-themselves-arent-crazy-theyre-geniuses/)
-- [types of friends in a group of 5](https://lifestyle.allwomenstalk.com/types-of-friends-we-all-have-or-have-had/)
-- [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
-- [dreaming of running effortlessly](https://lifestyle.allwomenstalk.com/what-these-dreams-are-trying-to-tell-you/)
-- [should you listen to your heart or head](https://love.allwomenstalk.com/times-when-you-should-listen-to-your-head-over-your-heart/)
-- [short stories about happiness](https://love.allwomenstalk.com/short-story-the-key-to-happiness/)
 - [how to read people](https://lifestyle.allwomenstalk.com/how-to-read-people/)
+- [should you listen to your heart or head](https://love.allwomenstalk.com/times-when-you-should-listen-to-your-head-over-your-heart/)
+- [dreaming of running effortlessly](https://lifestyle.allwomenstalk.com/what-these-dreams-are-trying-to-tell-you/)
+- [types of friends in a group of 5](https://lifestyle.allwomenstalk.com/types-of-friends-we-all-have-or-have-had/)
+- [post grad life](https://lifestyle.allwomenstalk.com/the-downside-to-life-as-a-post-grad/)
+- [gut instincts you should never ignore in a relatio...](https://lifestyle.allwomenstalk.com/gut-feelings-you-should-never-ignore/)
+- [always yourself](https://inspiration.allwomenstalk.com/the-real-reasons-why-you-should-always-be-yourself/)
+- [reasons why you are amazing](https://love.allwomenstalk.com/reasons-youre-more-desirable-than-you-think/)
+- [short stories about happiness](https://love.allwomenstalk.com/short-story-the-key-to-happiness/)
+- [do all geniuses talk to themselves](https://lifestyle.allwomenstalk.com/people-who-talk-to-themselves-arent-crazy-theyre-geniuses/)
 - [5 Ways to Be the Best Version of Yourself ...](https://allwomenstalk.com/ways-to-be-the-best-version-of-yourself/)
 - [Be an Original ...](https://allwomenstalk.com/be-an-original/)
 

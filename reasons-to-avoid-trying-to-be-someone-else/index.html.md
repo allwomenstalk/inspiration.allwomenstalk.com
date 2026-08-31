@@ -42,16 +42,16 @@ It's fine to want to be more like someone else, but it's not healthy to always w
 
 ## Related Posts
 
+- [don't fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
+- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
 - [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
+- [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
+- [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
+- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
+- [the longer you postpone working for your dreams](https://inspiration.allwomenstalk.com/reasons-you-might-be-delaying-pursuing-your-dreams/)
+- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
 - [i ain't even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
 - [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
-- [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
-- [don't fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
-- [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
-- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
-- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
-- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
-- [the longer you postpone working for your dreams](https://inspiration.allwomenstalk.com/reasons-you-might-be-delaying-pursuing-your-dreams/)
 - [8 Reasons Not to Be Influenced by Media Images ...](https://allwomenstalk.com/8-reasons-not-to-be-influenced-by-media-images/)
 - [7 Reasons to Be Thankful for Who You Are ...](https://allwomenstalk.com/reasons-to-be-thankful-about-who-you-are/)
 

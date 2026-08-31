@@ -42,16 +42,16 @@ Is there a burgeoning entrepreneur in you? Are you going to take the world by st
 
 ## Related Posts
 
-- [7 Most Common Lies Job Interviewers Tell You ...](https://lifestyle.allwomenstalk.com/most-common-lies-job-interviewers-tell-you/)
-- [which of the following is not one of the "four pil...](https://lifestyle.allwomenstalk.com/awesome-tips-to-improve-your-job-search/)
-- [things to consider before accepting job offer](https://money.allwomenstalk.com/very-important-things-to-consider-before-accepting-a-job-offer/)
-- [how to become a team player at work](https://lifestyle.allwomenstalk.com/ways-to-be-a-team-player-at-work/)
+- [how to move on after being fired](https://lifestyle.allwomenstalk.com/ways-to-recover-after-being-fired-that-you-should-know-about/)
 - [jobs you can do at home](https://lifestyle.allwomenstalk.com/work-from-home-jobs-you-can-do/)
+- [improve your resume](https://lifestyle.allwomenstalk.com/very-helpful-tips-on-how-to-improve-your-resume/)
 - [productive things to do when unemployed](https://lifestyle.allwomenstalk.com/ways-to-pass-the-time-while-youre-unemployed-that-might-just-help-you-find-a-job-too/)
 - [embark my career](https://lifestyle.allwomenstalk.com/vital-things-to-consider-before-embarking-on-an-exciting-career-change/)
-- [how to move on after being fired](https://lifestyle.allwomenstalk.com/ways-to-recover-after-being-fired-that-you-should-know-about/)
+- [which of the following is not one of the "four pil...](https://lifestyle.allwomenstalk.com/awesome-tips-to-improve-your-job-search/)
+- [how to become a team player at work](https://lifestyle.allwomenstalk.com/ways-to-be-a-team-player-at-work/)
 - [starting a new job important tips i wish i knew](https://lifestyle.allwomenstalk.com/tips-when-you-start-a-new-job/)
-- [improve your resume](https://lifestyle.allwomenstalk.com/very-helpful-tips-on-how-to-improve-your-resume/)
+- [things to consider before accepting job offer](https://money.allwomenstalk.com/very-important-things-to-consider-before-accepting-a-job-offer/)
+- [7 Most Common Lies Job Interviewers Tell You ...](https://lifestyle.allwomenstalk.com/most-common-lies-job-interviewers-tell-you/)
 - [8 Reasons to Start Your Own Business ...](https://allwomenstalk.com/reasons-to-start-your-own-business/)
 - [8 Things to do if You Want to Start Your Own Busin...](https://money.allwomenstalk.com/things-to-do-if-you-want-to-start-your-own-business/)
 

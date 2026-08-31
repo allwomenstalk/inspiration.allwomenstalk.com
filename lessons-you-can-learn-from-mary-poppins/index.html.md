@@ -43,15 +43,15 @@ Mary Poppins may be a fictional character, but the lessons she teaches are very 
 ## Related Posts
 
 - [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
-- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
-- [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
-- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
-- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
-- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
+- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
+- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
+- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
 - [8 Life Lessons They Should Teach in School ...](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [8 Sobering but Simple Lessons in Life We Can Learn...](https://lifestyle.allwomenstalk.com/sobering-but-simple-lessons-in-life-we-can-learn-from-children/)
 

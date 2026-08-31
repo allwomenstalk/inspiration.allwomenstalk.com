@@ -42,16 +42,16 @@ While none of us might want enemies, we'll all have to deal with them at some po
 
 ## Related Posts
 
-- [it won't matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
 - [best friend wallpaper](https://lifestyle.allwomenstalk.com/life-lessons-only-your-best-friends-can-teach-you/)
+- [best friend comparison](https://funny.allwomenstalk.com/differences-between-friends-and-bffs/)
+- [jamila lyiscott ted talk](https://teen.allwomenstalk.com/ted-talks-every-teen-should-watch/)
 - [interesting theories](https://lifestyle.allwomenstalk.com/obscure-theories-that-will-change-your-vision-of-the-world/)
 - [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
-- [misconceptions of extroverts](https://inspiration.allwomenstalk.com/common-misconceptions-about-extroverts/)
-- [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
 - [what makes a good town](https://lifestyle.allwomenstalk.com/neighborly-traits-small-town-people-possess/)
-- [jamila lyiscott ted talk](https://teen.allwomenstalk.com/ted-talks-every-teen-should-watch/)
-- [best friend comparison](https://funny.allwomenstalk.com/differences-between-friends-and-bffs/)
 - [you're not a bad person it's just a bad world](https://inspiration.allwomenstalk.com/bad-things-that-dont-make-you-a-bad-person/)
+- [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
+- [it won't matter](https://inspiration.allwomenstalk.com/things-stressing-you-out-now-that-wont-matter-a-year-from-now/)
+- [misconceptions of extroverts](https://inspiration.allwomenstalk.com/common-misconceptions-about-extroverts/)
 - [8 Lessons We Can Learn from past Relationships ...](https://love.allwomenstalk.com/lessons-we-can-learn-from-past-relationships/)
 - [7 Steps to Forgive Others ...](https://health.allwomenstalk.com/steps-to-forgive-others/)
 

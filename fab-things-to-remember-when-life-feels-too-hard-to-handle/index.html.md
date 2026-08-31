@@ -68,16 +68,16 @@ Once you choose happiness and see the bright side of even the worst situations, 
 
 ## Related Posts
 
-- [do not beat yourself up](https://inspiration.allwomenstalk.com/dont-beat-yourself-up-over-wanting-to-do-these-things/)
-- [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
 - [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
-- [you won't regret it no no](https://inspiration.allwomenstalk.com/choices-to-make-in-life-that-you-wont-regret-10-years-from-now/)
+- [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
+- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
+- [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
 - [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
 - [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
-- [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
 - [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
+- [do not beat yourself up](https://inspiration.allwomenstalk.com/dont-beat-yourself-up-over-wanting-to-do-these-things/)
+- [you won't regret it no no](https://inspiration.allwomenstalk.com/choices-to-make-in-life-that-you-wont-regret-10-years-from-now/)
 - [flaws in a woman](https://inspiration.allwomenstalk.com/personal-flaws-you-should-learn-to-embrace-because-they-arent-exactly-flaws/)
-- [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
 - [9 Simple Ways to Feel Good ...](https://allwomenstalk.com/9-simple-ways-to-feel-good/)
 - [7 Things to Be Thankful for, Even when the Going G...](https://inspiration.allwomenstalk.com/things-to-be-thankful-for-even-when-the-going-gets-tough/)
 

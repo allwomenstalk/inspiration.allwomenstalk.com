@@ -55,15 +55,15 @@ The little things in life can be easy to take for granted, but I hope this list 
 ## Related Posts
 
 - [creative talents decoupage paper](https://diy.allwomenstalk.com/things-i-learned-from-pinterest/)
-- [movies like clueless](https://movies.allwomenstalk.com/lessons-clueless-taught-me/)
-- [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
-- [should i speak up or let it go](https://inspiration.allwomenstalk.com/times-you-should-speak-up/)
-- [geeky glasses meaning](https://lifestyle.allwomenstalk.com/perks-of-being-a-nerd/)
-- [never take for granted quotes](https://inspiration.allwomenstalk.com/things-you-should-never-take-for-granted/)
 - [question about decision making](https://inspiration.allwomenstalk.com/questions-to-ask-yourself-before-making-a-major-decision/)
 - [truths for kids](https://parenting.allwomenstalk.com/adult-truths-that-kids-never-believe/)
-- [how to restore your faith in humanity](https://inspiration.allwomenstalk.com/things-that-will-restore-your-faith-in-humanity/)
+- [should i speak up or let it go](https://inspiration.allwomenstalk.com/times-you-should-speak-up/)
+- [geeky glasses meaning](https://lifestyle.allwomenstalk.com/perks-of-being-a-nerd/)
 - [someone who is always right](https://parenting.allwomenstalk.com/things-my-dad-is-always-right-about/)
+- [never take for granted quotes](https://inspiration.allwomenstalk.com/things-you-should-never-take-for-granted/)
+- [how to restore your faith in humanity](https://inspiration.allwomenstalk.com/things-that-will-restore-your-faith-in-humanity/)
+- [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
+- [movies like clueless](https://movies.allwomenstalk.com/lessons-clueless-taught-me/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 

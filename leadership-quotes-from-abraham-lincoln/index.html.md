@@ -57,15 +57,15 @@ What’s your favorite line from Abraham Lincoln? Go ahead and share it!
 ## Related Posts
 
 - [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
-- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
-- [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
-- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 - [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
-- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
+- [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [maya angelou women quote](https://inspiration.allwomenstalk.com/uplifting-quotes-by-maya-angelou-for-women/)
+- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
+- [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
 - [quotes about family and death](https://inspiration.allwomenstalk.com/calming-quotes-to-help-you-deal-with-the-death-of-a-loved-one/)
-- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
+- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 - [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
+- [robin williams.quotes](https://inspiration.allwomenstalk.com/epic-robin-williams-quotes-to-remember-him-by/)
 - [The Kaiser of Quotable Quotes ...](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
 - [8 Tips for Becoming a True Leader ...](https://allwomenstalk.com/8-tips-for-becoming-a-true-leader/)
 

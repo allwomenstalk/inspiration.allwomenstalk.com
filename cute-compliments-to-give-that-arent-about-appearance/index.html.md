@@ -42,16 +42,16 @@ Don't keep your comments to yourself when you have something nice to say. Believ
 
 ## Related Posts
 
-- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [tell me a history joke](https://funny.allwomenstalk.com/corny-jokes-for-all-of-the-history-buffs-out-there/)
-- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
-- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
 - [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
-- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
-- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
-- [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
+- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
 - [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
+- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
+- [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
+- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
 - [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
+- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [7 Things He Would Love to Hear You Say ...](https://allwomenstalk.com/7-things-he-would-love-to-hear-you-say/)
 - [Top 7 Best Compliments for Men ...](https://allwomenstalk.com/top-7-best-compliments-for-men/)
 

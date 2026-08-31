@@ -56,16 +56,16 @@ So, these are my favourite quotes about testing times that remind me to be stron
 
 ## Related Posts
 
-- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
 - [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
-- [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
-- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
-- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
 - [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
+- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
 - [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
+- [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
 - [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
+- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
 - [8 Reasons to Keep Going when You're Feeling down ....](https://health.allwomenstalk.com/reasons-to-keep-going-when-youre-feeling-down/)
 - [12 Inspirational Life Quotes to Get You through An...](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 

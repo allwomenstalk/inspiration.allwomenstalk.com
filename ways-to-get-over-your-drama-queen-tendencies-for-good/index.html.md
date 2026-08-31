@@ -56,16 +56,16 @@ These are 7 ways you can overcome drama queen tendencies for good. What’re you
 
 ## Related Posts
 
-- [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
-- [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
-- [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
-- [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
-- [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
-- [sometimes all you need are your friends](https://teen.allwomenstalk.com/how-do-you-handle-being-left-out-by-friends/)
-- [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
 - [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
 - [positive attribute](https://inspiration.allwomenstalk.com/how-to-turn-your-jealousy-into-a-positive-thing/)
+- [sometimes all you need are your friends](https://teen.allwomenstalk.com/how-do-you-handle-being-left-out-by-friends/)
+- [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
+- [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
+- [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
+- [people that annoy you](https://lifestyle.allwomenstalk.com/how-to-establish-social-boundaries-with-people-who-annoy-you/)
 - [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
+- [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
+- [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
 - [7 Effective Tips for Dealing with Toxic People ...](https://lifestyle.allwomenstalk.com/effective-tips-for-dealing-with-toxic-people/)
 - [9 Useful Tips on How to Restrain Yourself from an ...](https://inspiration.allwomenstalk.com/useful-tips-on-how-to-restrain-yourself-from-an-outburst/)
 

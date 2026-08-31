@@ -44,16 +44,16 @@ Choose to be open, show your authentic self and love and accept yourself just th
 
 ## Related Posts
 
-- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
 - [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
-- ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
-- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
 - [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
-- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
+- [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
 - [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
+- ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
+- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 

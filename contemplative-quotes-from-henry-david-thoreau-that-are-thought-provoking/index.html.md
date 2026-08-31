@@ -68,16 +68,16 @@ Thoreau’s words of wisdom are more than just contemplative quotes—they are a
 
 ## Related Posts
 
-- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
-- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
-- [quotes about accomplishing goals](https://inspiration.allwomenstalk.com/quotes-to-help-you-accomplish-your-goals-and-dreams/)
-- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
-- [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
-- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
 - [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
+- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
 - [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
 - [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
+- [quotes about accomplishing goals](https://inspiration.allwomenstalk.com/quotes-to-help-you-accomplish-your-goals-and-dreams/)
+- [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
+- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
 - [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
+- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
+- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

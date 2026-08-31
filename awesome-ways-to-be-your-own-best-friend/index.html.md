@@ -80,16 +80,16 @@ By making the conscious choice to be your own best friend, you are giving yourse
 
 ## Related Posts
 
-- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
-- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
-- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
-- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
-- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
-- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
 - [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
+- [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
 - [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
+- [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
 - [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
+- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
+- [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
+- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
+- [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
 - [5 Ways to Be the Best Version of Yourself ...](https://allwomenstalk.com/ways-to-be-the-best-version-of-yourself/)
 - [12 Best Ways to Improve Your Self Confidence ...](https://allwomenstalk.com/12-best-ways-to-improve-your-self-confidence/)
 

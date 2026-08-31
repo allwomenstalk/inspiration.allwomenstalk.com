@@ -61,16 +61,16 @@ You’re nearing that part of life when you’re starting to do the things you a
 
 ## Related Posts
 
+- [it's okay to be sad quotes](https://inspiration.allwomenstalk.com/reasons-its-okay-to-be-sad-about-silly-things/)
+- [how to cope when you hate christmas](https://health.allwomenstalk.com/ways-to-cope-with-christmas-when-its-not-your-favorite-time-of-year/)
+- [7 Lessons Learned from My Teenage Self ...](https://inspiration.allwomenstalk.com/lessons-learned-from-my-teenage-self/)
 - [chris guillebeau](https://books.allwomenstalk.com/life-lessons-from-chris-guillebeau/)
+- [7 Ways to Benefit from Failure ...](https://inspiration.allwomenstalk.com/ways-to-benefit-from-failure/)
+- [just pearly things controversy](https://lifestyle.allwomenstalk.com/bits-of-controversial-advice-you-should-consider-following/)
 - [common traits of millionaires](https://teen.allwomenstalk.com/traits-that-young-millionaires-have-in-common/)
 - [If You Don't Talk to Yourself, You Should Start .....](https://lifestyle.allwomenstalk.com/great-reasons-to-talk-to-yourself/)
-- [7 Important Things to Thank Your Teacher for ...](https://teen.allwomenstalk.com/important-things-to-thank-your-teacher-for/)
 - [7 Problems Only Introverts Understand ...](https://inspiration.allwomenstalk.com/problems-only-introverts-understand/)
-- [7 Lessons Learned from My Teenage Self ...](https://inspiration.allwomenstalk.com/lessons-learned-from-my-teenage-self/)
-- [how to cope when you hate christmas](https://health.allwomenstalk.com/ways-to-cope-with-christmas-when-its-not-your-favorite-time-of-year/)
-- [just pearly things controversy](https://lifestyle.allwomenstalk.com/bits-of-controversial-advice-you-should-consider-following/)
-- [7 Ways to Benefit from Failure ...](https://inspiration.allwomenstalk.com/ways-to-benefit-from-failure/)
-- [it's okay to be sad quotes](https://inspiration.allwomenstalk.com/reasons-its-okay-to-be-sad-about-silly-things/)
+- [7 Important Things to Thank Your Teacher for ...](https://teen.allwomenstalk.com/important-things-to-thank-your-teacher-for/)
 - [25 Signs You Are Losing Your Best Friend ...](https://allwomenstalk.com/10-signs-you-are-losing-your-best-friend/)
 - [10 Signs That Your Friend Really is Your Best Frie...](https://allwomenstalk.com/10-signs-that-your-friend-really-is-your-best-friend/)
 

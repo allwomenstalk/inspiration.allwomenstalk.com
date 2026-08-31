@@ -42,16 +42,16 @@ These’re 7 things you can do when what you’re facing seems hopeless. Are you
 
 ## Related Posts
 
-- [a difference today](https://inspiration.allwomenstalk.com/what-you-can-do-today-thatll-make-a-difference-in-your-life-tomorrow/)
-- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
-- [free spirit lifestyle](https://inspiration.allwomenstalk.com/live-a-happier-life-with-these-tips-for-turning-into-a-free-spirit/)
 - [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
-- [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
-- [something you should be proud of](https://inspiration.allwomenstalk.com/be-proud-of-yourself-for-accomplishing-these-things-every-single-day/)
-- [you wont regret it](https://inspiration.allwomenstalk.com/how-to-live-a-life-you-wont-regret-when-youre-old-and-grey/)
-- [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
-- [to be in touch with your emotions](https://inspiration.allwomenstalk.com/how-to-get-in-touch-with-your-emotions-and-live-a-happier-life/)
+- [a difference today](https://inspiration.allwomenstalk.com/what-you-can-do-today-thatll-make-a-difference-in-your-life-tomorrow/)
 - [don't be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
+- [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
+- [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
+- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
+- [you wont regret it](https://inspiration.allwomenstalk.com/how-to-live-a-life-you-wont-regret-when-youre-old-and-grey/)
+- [to be in touch with your emotions](https://inspiration.allwomenstalk.com/how-to-get-in-touch-with-your-emotions-and-live-a-happier-life/)
+- [free spirit lifestyle](https://inspiration.allwomenstalk.com/live-a-happier-life-with-these-tips-for-turning-into-a-free-spirit/)
+- [something you should be proud of](https://inspiration.allwomenstalk.com/be-proud-of-yourself-for-accomplishing-these-things-every-single-day/)
 - [10 Ways to Keep a Positive Attitude ...](https://allwomenstalk.com/10-ways-to-keep-a-positive-attitude/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 

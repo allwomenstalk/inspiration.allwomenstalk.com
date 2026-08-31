@@ -46,16 +46,16 @@ These are just a few of the fashion weeks that take place around the world each 
 
 ## Related Posts
 
-- [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
+- [documentary fashion](https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/)
+- [fashion forward trends](https://fashion.allwomenstalk.com/stunning-fashion-forward-trends-from-classic-films/)
 - [where do celebrities sell their clothes](https://celebs.allwomenstalk.com/crazy-celebrities-who-make-fashion-sell-out/)
 - [english fashion styles for ladies](https://fashion.allwomenstalk.com/fabulous-british-fashion-icons-to-look-up-to/)
-- [lady gaga's dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
-- [spring street style risk taking over](https://streetstyle.allwomenstalk.com/gorgeous-spring-street-style-looks/)
-- [documentary fashion](https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/)
-- [how to style printed pants](https://streetstyle.allwomenstalk.com/fabulous-street-style-takes-on-statement-pants/)
+- [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
 - [best fashion and beauty websites](https://fashion.allwomenstalk.com/amazing-fashion-and-beauty-websites-you-have-to-check-out/)
+- [lady gaga's dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
+- [how to style printed pants](https://streetstyle.allwomenstalk.com/fabulous-street-style-takes-on-statement-pants/)
 - [this sporty](https://streetstyle.allwomenstalk.com/great-sporty-street-style-looks/)
-- [fashion forward trends](https://fashion.allwomenstalk.com/stunning-fashion-forward-trends-from-classic-films/)
+- [spring street style risk taking over](https://streetstyle.allwomenstalk.com/gorgeous-spring-street-style-looks/)
 - [8 Best Fashion Tips of All Time ...](https://fashion.allwomenstalk.com/best-fashion-tips-of-all-time/)
 - [8 Inspiring Street Fashion Looks ...](https://fashion.allwomenstalk.com/inspiring-street-fashion-looks/)
 

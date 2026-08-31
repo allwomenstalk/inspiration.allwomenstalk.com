@@ -44,16 +44,16 @@ When you’re facing a challenge, it’s extremely important to never lose hope.
 
 ## Related Posts
 
-- [beautiful in all aspects](https://inspiration.allwomenstalk.com/beautiful-aspects-about-you-that-make-you-unique/)
-- [twlight school](https://movies.allwomenstalk.com/lessons-from-twilight-we-should-all-learn/)
-- [bygones movie](https://movies.allwomenstalk.com/life-lessons-from-ally-mcbeal-you-simply-cant-ignore/)
-- [things i take for granted](https://inspiration.allwomenstalk.com/things-to-never-take-for-granted/)
-- [things everybody does](https://funny.allwomenstalk.com/funny-things-everyone-does-when-theyre-alone/)
 - [reminder to be happy](https://inspiration.allwomenstalk.com/powerful-reminders-of-what-matters-in-your-life/)
-- [uncomfortable situation at school](https://teen.allwomenstalk.com/awkward-high-school-situations-that-happened-to-most-of-us/)
 - [sister wives merchandise](https://movies.allwomenstalk.com/thought-provoking-lessons-learned-from-sister-wives/)
 - [life skills that can help you save money](https://lifestyle.allwomenstalk.com/valuable-skills-that-could-save-your-life-in-an-emergency/)
+- [twlight school](https://movies.allwomenstalk.com/lessons-from-twilight-we-should-all-learn/)
+- [beautiful in all aspects](https://inspiration.allwomenstalk.com/beautiful-aspects-about-you-that-make-you-unique/)
 - [it's okay to cry quotes](https://lifestyle.allwomenstalk.com/times-when-its-ok-to-cry/)
+- [things everybody does](https://funny.allwomenstalk.com/funny-things-everyone-does-when-theyre-alone/)
+- [uncomfortable situation at school](https://teen.allwomenstalk.com/awkward-high-school-situations-that-happened-to-most-of-us/)
+- [things i take for granted](https://inspiration.allwomenstalk.com/things-to-never-take-for-granted/)
+- [bygones movie](https://movies.allwomenstalk.com/life-lessons-from-ally-mcbeal-you-simply-cant-ignore/)
 - [7 Ways to Deal with a Bad Day ...](https://allwomenstalk.com/7-ways-to-deal-with-a-bad-day/)
 - [10 Ways to Fix a Bad Day ...](https://allwomenstalk.com/ways-to-fix-a-bad-day/)
 

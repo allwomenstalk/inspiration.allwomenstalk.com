@@ -42,16 +42,16 @@ While it's totally common to make empty promises, it's good to be aware of what 
 
 ## Related Posts
 
-- [how to stop caring about a girl](https://inspiration.allwomenstalk.com/reasons-why-girls-with-self-confidence-issues-shouldnt-care-what-others-think-of-them/)
-- [cute couple dpz instagram](https://love.allwomenstalk.com/why-you-need-to-get-rid-of-the-idea-of-relationshipgoals/)
 - [why not to text your ex](https://love.allwomenstalk.com/dont-text-your-ex-heres-why/)
-- [following your ex on social media](https://love.allwomenstalk.com/this-is-why-you-shouldnt-follow-your-ex-on-social-media/)
-- [The 7 Dumbest Reasons Why Men Have Dumped Women .....](https://love.allwomenstalk.com/the-dumbest-reasons-why-men-have-dumped-women/)
-- [when you marry your best friend](https://love.allwomenstalk.com/yes-of-course-you-should-marry-your-best-friend-heres-why/)
-- [reasons to like a guy](https://love.allwomenstalk.com/reasons-you-are-attracted-to-a-guy-you-dont-like/)
+- [how to stop caring about a girl](https://inspiration.allwomenstalk.com/reasons-why-girls-with-self-confidence-issues-shouldnt-care-what-others-think-of-them/)
 - [partner has a problem](https://love.allwomenstalk.com/reasons-why-you-cant-actually-solve-all-of-your-partners-problems/)
 - [when your ex bad mouths you](https://love.allwomenstalk.com/why-does-it-bother-you-when-other-people-badmouth-your-ex/)
+- [reasons to like a guy](https://love.allwomenstalk.com/reasons-you-are-attracted-to-a-guy-you-dont-like/)
 - [kindly hearted](https://lifestyle.allwomenstalk.com/reasons-why-its-bittersweet-to-be-kind-hearted/)
+- [following your ex on social media](https://love.allwomenstalk.com/this-is-why-you-shouldnt-follow-your-ex-on-social-media/)
+- [cute couple dpz instagram](https://love.allwomenstalk.com/why-you-need-to-get-rid-of-the-idea-of-relationshipgoals/)
+- [The 7 Dumbest Reasons Why Men Have Dumped Women .....](https://love.allwomenstalk.com/the-dumbest-reasons-why-men-have-dumped-women/)
+- [when you marry your best friend](https://love.allwomenstalk.com/yes-of-course-you-should-marry-your-best-friend-heres-why/)
 - [Why I do This - 6 Reasons ...](https://allwomenstalk.com/why-i-do-this-6-reasons/)
 - [7 Reasons People Lie ...](https://allwomenstalk.com/7-reasons-people-lie/)
 

@@ -56,16 +56,16 @@ My mantra is “it may not be perfect but it suits me fine”. It’s taken me m
 
 ## Related Posts
 
-- [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
-- [adultery book quotes](https://inspiration.allwomenstalk.com/quotes-from-paulo-coelho/)
 - [ronald reagan quotes marines](https://lifestyle.allwomenstalk.com/phenomenal-memorial-day-quotes-that-will-remind-you-what-the-holiday-is-really-about/)
+- [marilyn monroe body quotes](https://celebs.allwomenstalk.com/quotes-from-marilyn-monroe/)
 - [make it through quotes](https://inspiration.allwomenstalk.com/inspiration-quotes-to-get-you-through-it-all/)
 - [i'm walking away quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-for-motivation/)
-- [quotes on freedom and independence](https://lifestyle.allwomenstalk.com/quotes-to-give-you-all-the-feels-of-freedom-this-independence-day/)
 - [don t worry about things you can t control quotes](https://inspiration.allwomenstalk.com/quotes-about-worrying/)
-- [redhead gentle cleansing](https://inspiration.allwomenstalk.com/how-to-embrace-being-a-redhead/)
 - [gratitude quotes from celebrities](https://celebs.allwomenstalk.com/importance-of-gratitude/)
-- [marilyn monroe body quotes](https://celebs.allwomenstalk.com/quotes-from-marilyn-monroe/)
+- [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
+- [quotes on freedom and independence](https://lifestyle.allwomenstalk.com/quotes-to-give-you-all-the-feels-of-freedom-this-independence-day/)
+- [redhead gentle cleansing](https://inspiration.allwomenstalk.com/how-to-embrace-being-a-redhead/)
+- [adultery book quotes](https://inspiration.allwomenstalk.com/quotes-from-paulo-coelho/)
 - [7 Helpful Mantras to Get You through Rough Times ....](https://inspiration.allwomenstalk.com/helpful-mantras-to-get-you-through-rough-times/)
 - [Learn to Humble Yourself for a Better Life ...](https://inspiration.allwomenstalk.com/very-useful-tips-on-how-to-be-humble-that-you-should-consider/)
 

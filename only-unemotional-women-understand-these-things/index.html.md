@@ -80,16 +80,16 @@ There are women out there that just aren't emotional. No, we aren't heartless, w
 
 ## Related Posts
 
-- [things i will never understand](https://love.allwomenstalk.com/things-boys-will-never-understand-about-girls/)
 - [남자 그루밍 디시](https://love.allwomenstalk.com/the-names-that-men-consider-to-be-the-hottest/)
-- [what a man wants in a wife](https://love.allwomenstalk.com/what-men-really-want-in-a-wife/)
-- [my friend doesn't have time for me](https://love.allwomenstalk.com/these-brave-women-reveal-how-their-partners-hurt-them/)
-- [fill in the blank trivia questions](https://love.allwomenstalk.com/ask-your-man-to-fill-in-the-blanks-to-these-questions/)
 - [men turn offs](https://love.allwomenstalk.com/big-turn-offs-for-men-you-might-not-have-known-about/)
+- [guys in disguise](https://love.allwomenstalk.com/signs-a-nice-guy-is-actually-sexist-in-disguise/)
+- [fill in the blank trivia questions](https://love.allwomenstalk.com/ask-your-man-to-fill-in-the-blanks-to-these-questions/)
+- [my friend doesn't have time for me](https://love.allwomenstalk.com/these-brave-women-reveal-how-their-partners-hurt-them/)
+- [what a man wants in a wife](https://love.allwomenstalk.com/what-men-really-want-in-a-wife/)
+- [things i will never understand](https://love.allwomenstalk.com/things-boys-will-never-understand-about-girls/)
+- [where to meet decent single guys](https://love.allwomenstalk.com/the-hottest-spots-to-meet-men-as-a-single-lady-in/)
 - [signs a guy likes you but is intimidated](https://love.allwomenstalk.com/traits-that-can-intimidate-a-man/)
 - [how many feet in a mile](https://love.allwomenstalk.com/what-men-start-to-like-more-in-women-as-they-age/)
-- [guys in disguise](https://love.allwomenstalk.com/signs-a-nice-guy-is-actually-sexist-in-disguise/)
-- [where to meet decent single guys](https://love.allwomenstalk.com/the-hottest-spots-to-meet-men-as-a-single-lady-in/)
 - [15 Reasons Why Men Don't Talk about Their Feelings...](https://allwomenstalk.com/top-secrets-why-men-dont-talk-about-their-feelings/)
 - [10 Things Men Won't Ever Understand about Women .....](https://allwomenstalk.com/10-things-men-wont-ever-understand-about-women/)
 

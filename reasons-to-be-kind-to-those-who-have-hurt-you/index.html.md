@@ -42,16 +42,16 @@ What are your thoughts? Have you been in this situation? Did you choose to respo
 
 ## Related Posts
 
-- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
-- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
 - [how to tame a brat over text](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-bratty-friend/)
-- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
-- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
-- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
-- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
 - [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
+- [nurturing friendship](https://inspiration.allwomenstalk.com/ways-to-nurture-friendships-that-you-should-consider/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
+- [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
+- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [being judged by family](https://lifestyle.allwomenstalk.com/ways-to-cope-with-critical-family-members/)
+- [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
+- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
+- [jocelyn peck](https://lifestyle.allwomenstalk.com/tips-for-when-people-make-fun-of-you-for-not-partying/)
 - [8 Reasons to Be Nice to Your Neighbours ...](https://allwomenstalk.com/8-reasons-to-be-nice-to-your-neighbours/)
 - [7 Steps to Forgive Others ...](https://health.allwomenstalk.com/steps-to-forgive-others/)
 

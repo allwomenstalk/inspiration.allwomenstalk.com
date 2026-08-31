@@ -16,16 +16,16 @@ The result may not be perfect on the first try, but then again it never is. This
 
 ## Related Posts
 
-- [late night date night ideas](https://love.allwomenstalk.com/best-date-ideas-for-late-night-owls/)
 - [play kissing](https://love.allwomenstalk.com/fun-kissing-games-to-play/)
+- [woman like to get for valentine's day](https://love.allwomenstalk.com/things-women-really-want-for-valentines-day/)
+- [happy birthday secret keeper](https://lifestyle.allwomenstalk.com/best-friend-birthday-quotes-to-show-your-bestie-love/)
 - [homemade valentines gifts for her](https://diy.allwomenstalk.com/homemade-valentines-day-gift-ideas-for-your-other-half/)
+- [couple kissing under the mistletoe](https://love.allwomenstalk.com/mistletoe-rules-for-a-kiss-under-the-decoration/)
+- [show ur bff](https://lifestyle.allwomenstalk.com/genius-ways-to-show-your-bff-your-appreciation/)
+- [planning a romantic getaway](https://travel.allwomenstalk.com/tips-on-how-to-plan-a-perfect-romantic-getaway/)
+- [late night date night ideas](https://love.allwomenstalk.com/best-date-ideas-for-late-night-owls/)
 - [things to do in paris romantic](https://travel.allwomenstalk.com/the-most-romantic-things-to-do-in-paris/)
 - [what to give your boyfriend for valentines day](https://love.allwomenstalk.com/creative-valentines-day-gifts-for-your-boyfriend/)
-- [planning a romantic getaway](https://travel.allwomenstalk.com/tips-on-how-to-plan-a-perfect-romantic-getaway/)
-- [woman like to get for valentine's day](https://love.allwomenstalk.com/things-women-really-want-for-valentines-day/)
-- [show ur bff](https://lifestyle.allwomenstalk.com/genius-ways-to-show-your-bff-your-appreciation/)
-- [happy birthday secret keeper](https://lifestyle.allwomenstalk.com/best-friend-birthday-quotes-to-show-your-bestie-love/)
-- [couple kissing under the mistletoe](https://love.allwomenstalk.com/mistletoe-rules-for-a-kiss-under-the-decoration/)
 - [The Scent of Love ...](https://allwomenstalk.com/the-scent-of-love/)
 - [Valentine's Day Roses That Speak to You ...](https://allwomenstalk.com/valentines-day-roses-that-speak-to-you/)
 

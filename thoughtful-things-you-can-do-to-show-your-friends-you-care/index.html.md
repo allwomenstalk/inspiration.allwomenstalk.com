@@ -42,16 +42,16 @@ Friends are hidden jewels that add value to your everyday. To me, they are who I
 
 ## Related Posts
 
-- [people who you work with](https://lifestyle.allwomenstalk.com/types-of-people-you-work-with-and-how-to-deal-with-them/)
+- [how to deal with plagiarism](https://lifestyle.allwomenstalk.com/civilized-and-responsible-ways-to-deal-with-plagiarism/)
+- [how to get over mean comments](https://lifestyle.allwomenstalk.com/effective-ways-to-handle-a-rude-comment-from-a-stranger/)
+- [long lost friends](https://lifestyle.allwomenstalk.com/ways-to-connect-with-a-long-lost-friend/)
+- [my boyfriend's friend is ruining our relationship](https://love.allwomenstalk.com/ways-to-deal-with-your-boyfriends-female-friends/)
 - [how to practice standing up for yourself](https://lifestyle.allwomenstalk.com/very-useful-tips-on-how-to-stand-up-for-yourself/)
 - [it will be difficult to forgive you of breaking yo...](https://love.allwomenstalk.com/helpful-tips-on-how-to-forgive-a-promise-breaker/)
-- [how to react when a girl disrespects you](https://love.allwomenstalk.com/important-things-to-do-when-someone-you-love-disrespects-you/)
 - [how to deal with online bullies](https://lifestyle.allwomenstalk.com/extremely-efficient-ways-to-deal-with-online-bullies/)
-- [how to get over mean comments](https://lifestyle.allwomenstalk.com/effective-ways-to-handle-a-rude-comment-from-a-stranger/)
-- [how to deal with plagiarism](https://lifestyle.allwomenstalk.com/civilized-and-responsible-ways-to-deal-with-plagiarism/)
-- [my boyfriend's friend is ruining our relationship](https://love.allwomenstalk.com/ways-to-deal-with-your-boyfriends-female-friends/)
+- [people who you work with](https://lifestyle.allwomenstalk.com/types-of-people-you-work-with-and-how-to-deal-with-them/)
+- [how to react when a girl disrespects you](https://love.allwomenstalk.com/important-things-to-do-when-someone-you-love-disrespects-you/)
 - [how to not let things bother you](https://lifestyle.allwomenstalk.com/very-efficient-ways-to-manage-people-who-bother-you/)
-- [long lost friends](https://lifestyle.allwomenstalk.com/ways-to-connect-with-a-long-lost-friend/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Make a Difference in Someone's Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)
 

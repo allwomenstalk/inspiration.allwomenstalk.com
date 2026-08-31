@@ -50,16 +50,16 @@ You lead by example. By sticking to these inspiring tasks, you could lead others
 
 ## Related Posts
 
-- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
 - [going for what you want](https://inspiration.allwomenstalk.com/tips-for-going-after-what-you-want-in-life/)
-- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
-- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
+- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
+- [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
 - [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
+- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
+- [encouragement activities](https://inspiration.allwomenstalk.com/activities-you-can-do-to-encourage-yourself/)
+- [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
+- [ways to get to the floor in dance](https://fitness.allwomenstalk.com/ways-to-get-back-into-the-dance-world/)
 - [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
 - [beautiful activity](https://inspiration.allwomenstalk.com/simple-activities-that-make-life-more-beautiful/)
-- [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
-- [articulate your thoughts](https://inspiration.allwomenstalk.com/easy-ways-to-become-more-verbally-articulate/)
-- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
 - [9 Great Ideas for Voluntourism ...](https://travel.allwomenstalk.com/9-great-ideas-for-voluntourism/)
 - [10 Ways to Help Other People ...](https://lifestyle.allwomenstalk.com/ways-to-help-other-people/)
 

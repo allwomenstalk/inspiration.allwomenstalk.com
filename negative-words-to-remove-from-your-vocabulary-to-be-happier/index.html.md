@@ -55,15 +55,15 @@ The words you choose to speak aloud and the thoughts you repeat in your mind dir
 ## Related Posts
 
 - [tsunaina plastic surgery](https://lifestyle.allwomenstalk.com/phrases-you-can-use-to-earn-trust/)
-- [how do you answer what's up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
-- [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
 - [slang of the 60s](https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/)
-- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
 - [oxford dictionary word of the year 2014](https://lifestyle.allwomenstalk.com/oxford-dictionaries-has-spoken-2014s-word-of-the-year-is/)
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
+- [how do you answer what's up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
+- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
+- [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
 - [7 Negative Thoughts about Yourself That You Should...](https://inspiration.allwomenstalk.com/negative-thoughts-about-yourself-that-you-should-avoid/)
 - [7 Negative Thoughts That Can Hamper Your Happiness...](https://inspiration.allwomenstalk.com/negative-thoughts-that-can-hamper-your-happiness/)
 

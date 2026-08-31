@@ -100,16 +100,16 @@ I keep a notebook full of my favorite quotes and a document on my PC. When I’m
 
 ## Related Posts
 
-- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
-- [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
 - [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
-- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
-- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
+- [don't be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
+- [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
+- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
 - [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
-- [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
-- [don't be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

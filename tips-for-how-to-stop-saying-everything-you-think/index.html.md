@@ -42,16 +42,16 @@ Breaking the habit of saying everything you think is very difficult but it can b
 
 ## Related Posts
 
-- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
-- [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
-- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
-- [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
-- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
-- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
-- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
-- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
 - [what kind of lesson can we learn from mother earth](https://inspiration.allwomenstalk.com/things-mother-nature-can-teach-us/)
+- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
+- [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
 - [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
+- [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
+- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
+- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
+- [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
+- [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
 - [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
 - [10 Negative Things You Should Stop Saying ...](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 

@@ -140,16 +140,16 @@ What's your favorite quote on this list? Did one in particular help you? Let me 
 
 ## Related Posts
 
-- [stories about dreams](https://love.allwomenstalk.com/the-short-story-thatll-urge-you-to-follow-your-dreams/)
-- [writing in snow](https://inspiration.allwomenstalk.com/inspirational-messages-written-in-the-snow/)
-- [tattoo keep going](https://beauty.allwomenstalk.com/these-motivational-tattoos-will-make-you-go-after-your-goals/)
-- [harper lee quotes](https://celebs.allwomenstalk.com/inspirational-harper-lee-quotes-you-should-remember-her-by/)
-- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
-- [powerful toni morrison quotes](https://inspiration.allwomenstalk.com/powerful-toni-morrison-quotes-to-push-you-through-life/)
-- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
-- [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
 - [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
+- [writing in snow](https://inspiration.allwomenstalk.com/inspirational-messages-written-in-the-snow/)
+- [harper lee quotes](https://celebs.allwomenstalk.com/inspirational-harper-lee-quotes-you-should-remember-her-by/)
+- [powerful toni morrison quotes](https://inspiration.allwomenstalk.com/powerful-toni-morrison-quotes-to-push-you-through-life/)
+- [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
+- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
+- [stories about dreams](https://love.allwomenstalk.com/the-short-story-thatll-urge-you-to-follow-your-dreams/)
 - [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
+- [tattoo keep going](https://beauty.allwomenstalk.com/these-motivational-tattoos-will-make-you-go-after-your-goals/)
+- [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
 - [30 Motivational Quotes for when You're Feeling dow...](https://health.allwomenstalk.com/motivational-quotes-for-when-youre-feeling-down/)
 - [11 Quotes to Live by ...](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 

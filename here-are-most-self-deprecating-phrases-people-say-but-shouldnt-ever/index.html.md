@@ -42,16 +42,16 @@ So have more faith in yourself, and stop saying these self-deprecating things! I
 
 ## Related Posts
 
-- [substitute cuss words](https://lifestyle.allwomenstalk.com/stop-cursing-by-using-these-alternative-insult-words-instead/)
 - [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
-- [british slang for goodbye](https://lifestyle.allwomenstalk.com/british-slang-words-that-should-be-used-all-around-the-world/)
-- [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
 - [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
-- [hawaii saying](https://lifestyle.allwomenstalk.com/hawaiian-words-to-learn-besides-aloha/)
-- [catcall examples](https://funny.allwomenstalk.com/its-time-to-take-a-stand-the-ultimate-list-of-comebacks-to-catcalls/)
 - [flow chart quizzes](https://funny.allwomenstalk.com/need-a-laugh-these-funny-flow-charts-can-help/)
 - [strange language](https://lifestyle.allwomenstalk.com/strange-languages-youve-never-heard-of-until-now/)
 - [words aesthetic](https://lifestyle.allwomenstalk.com/aesthetically-pleasing-words-youll-love-to-say/)
+- [catcall examples](https://funny.allwomenstalk.com/its-time-to-take-a-stand-the-ultimate-list-of-comebacks-to-catcalls/)
+- [substitute cuss words](https://lifestyle.allwomenstalk.com/stop-cursing-by-using-these-alternative-insult-words-instead/)
+- [hawaii saying](https://lifestyle.allwomenstalk.com/hawaiian-words-to-learn-besides-aloha/)
+- [british slang for goodbye](https://lifestyle.allwomenstalk.com/british-slang-words-that-should-be-used-all-around-the-world/)
+- [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 - [10 Negative Things You Should Stop Saying ...](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 

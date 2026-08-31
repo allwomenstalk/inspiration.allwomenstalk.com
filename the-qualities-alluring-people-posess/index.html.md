@@ -44,15 +44,15 @@ More than anything, a naturally alluring person has the effortless ability to ma
 
 ## Related Posts
 
-- [what do guys hate](https://love.allwomenstalk.com/things-men-hate-hearing-from-women/)
-- [what attracts men](https://love.allwomenstalk.com/what-attracts-men-the-most/)
-- [what does next weekend mean](https://love.allwomenstalk.com/what-men-say-and-what-they-really-mean/)
-- [bad habits of man](https://love.allwomenstalk.com/female-bad-habits-men-can-t-stand/)
-- [what guys find attractive](https://love.allwomenstalk.com/unexpected-things-we-find-attractive-about-men/)
-- [things women say](https://love.allwomenstalk.com/things-that-women-say-and-do-that-men-hate/)
-- [things girls do that turn guys on](https://love.allwomenstalk.com/things-women-do-that-turn-men-on/)
-- [how to understand man](https://love.allwomenstalk.com/knowing-this-will-help-you-understand-your-man-better/)
 - [long-term girlfriend](https://love.allwomenstalk.com/personality-traits-men-want-in-a-long-term-girlfriend/)
+- [things girls do that turn guys on](https://love.allwomenstalk.com/things-women-do-that-turn-men-on/)
+- [what guys find attractive](https://love.allwomenstalk.com/unexpected-things-we-find-attractive-about-men/)
+- [what does next weekend mean](https://love.allwomenstalk.com/what-men-say-and-what-they-really-mean/)
+- [things women say](https://love.allwomenstalk.com/things-that-women-say-and-do-that-men-hate/)
+- [what attracts men](https://love.allwomenstalk.com/what-attracts-men-the-most/)
+- [what do guys hate](https://love.allwomenstalk.com/things-men-hate-hearing-from-women/)
+- [how to understand man](https://love.allwomenstalk.com/knowing-this-will-help-you-understand-your-man-better/)
+- [bad habits of man](https://love.allwomenstalk.com/female-bad-habits-men-can-t-stand/)
 - [signs he's not boyfriend material](https://love.allwomenstalk.com/signs-he-is-not-boyfriend-material/)
 - [What Women Love about Men ...](https://allwomenstalk.com/what-women-love-about-men/)
 - [8 Characteristics of a Good Man ...](https://love.allwomenstalk.com/characteristics-of-a-good-man/)

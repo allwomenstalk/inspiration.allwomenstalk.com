@@ -56,16 +56,16 @@ If you haven’t read the books, purchase them as soon as possible. Are you alre
 
 ## Related Posts
 
-- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
-- [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
+- [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
+- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
 - [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
 - [holding a grudge is like drinking poison quote](https://inspiration.allwomenstalk.com/profound-quotes-from-nelson-mandela/)
-- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
 - [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
-- [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
-- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
-- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
 - [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
+- [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
+- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
+- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
+- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 

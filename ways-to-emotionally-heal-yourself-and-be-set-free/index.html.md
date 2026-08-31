@@ -50,16 +50,16 @@ Emotional healing begins from within – you have all the power in the world to 
 
 ## Related Posts
 
-- [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
-- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
+- [finding peace in the chaos](https://inspiration.allwomenstalk.com/ways-to-find-inner-peace-in-a-world-of-chaos/)
+- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
 - [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
+- [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
+- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
 - [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
 - [calming things to do](https://inspiration.allwomenstalk.com/calming-things-to-do-when-everything-else-seems-to-fail/)
-- [websites to calm you down](https://health.allwomenstalk.com/zen-friendly-websites-to-keep-you-calm-and-productive/)
-- [how successful people stay calm](https://inspiration.allwomenstalk.com/very-interesting-ways-successful-people-stay-calm/)
+- [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
+- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
 - [grouch meaning](https://inspiration.allwomenstalk.com/helpful-hints-on-how-to-stop-being-a-grouch/)
-- [finding peace in the chaos](https://inspiration.allwomenstalk.com/ways-to-find-inner-peace-in-a-world-of-chaos/)
-- [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
 - [9 Ways to Release Pent up Emotions ...](https://health.allwomenstalk.com/9-ways-to-release-pent-up-emotions/)
 - [8 Ways to Learn to Love Yourself ...](https://allwomenstalk.com/8-ways-to-learn-to-love-yourself/)
 

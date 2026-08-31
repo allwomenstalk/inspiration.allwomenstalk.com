@@ -42,16 +42,16 @@ If your life seems to be spiraling downward, remember that it doesn’t have to 
 
 ## Related Posts
 
-- [why do you want to join sports committee](https://teen.allwomenstalk.com/reasons-why-you-should-join-a-sport-in-high-school/)
-- [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
-- [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)
-- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
-- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
-- [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
-- [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
-- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
-- [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
 - [st patrick's in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
+- [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
+- [having empathy helps you predict what others may f...](https://inspiration.allwomenstalk.com/important-reasons-why-practicing-empathy-makes-you-a-better-person/)
+- [why do you want to join sports committee](https://teen.allwomenstalk.com/reasons-why-you-should-join-a-sport-in-high-school/)
+- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
+- [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
+- [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
+- [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)
+- [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
+- [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
 - [10 Reasons to Smile in Life ...](https://allwomenstalk.com/10-reasons-to-smile-in-life/)
 - [5 Things to Be Happy about ...](https://allwomenstalk.com/5-things-to-be-happy-about/)
 

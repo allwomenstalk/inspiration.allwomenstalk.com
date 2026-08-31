@@ -56,16 +56,16 @@ These quotes inspire me to not only successes in terms of grades, but actually t
 
 ## Related Posts
 
-- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
-- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
-- [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
-- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
-- [don't be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
-- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
 - [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [fabulous phrases](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/)
+- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
+- [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
+- [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
+- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
+- [don't be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [fabulous phrases](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/)
 - [10 Lessons from the Classroom of Life ...](https://allwomenstalk.com/10-lessons-from-the-classroom-of-life/)
 - [8 Reasons to Go Back to School ...](https://allwomenstalk.com/8-reasons-to-go-back-to-school/)
 

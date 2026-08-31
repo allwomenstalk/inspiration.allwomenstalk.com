@@ -56,16 +56,16 @@ Are there any more quotes or poems by Maya Angelou that inspire you?
 
 ## Related Posts
 
-- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
-- [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
-- [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
-- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
 - [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
 - [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
 - [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
 - [narnia quotes](https://inspiration.allwomenstalk.com/best-quotes-by-c-s-lewis-the-creator-of-narnia/)
-- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
 - [change is for the better quotes](https://inspiration.allwomenstalk.com/best-quotes-about-change/)
+- [lifehack quotes](https://celebs.allwomenstalk.com/fabulous-quotes-from-lauren-bacall/)
+- [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
+- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
+- [complacent relationship quotes](https://inspiration.allwomenstalk.com/best-quotes-to-help-you-cope-with-rejection/)
+- [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 

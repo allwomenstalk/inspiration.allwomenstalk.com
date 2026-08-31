@@ -44,16 +44,16 @@ So many people are judged unfairly. Have you ever felt that you were judged unfa
 
 ## Related Posts
 
-- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
-- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
-- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
-- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
 - [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
-- ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
-- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
-- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
 - [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
+- [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
+- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
+- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
+- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
 - [The Different Types of Men to Stay Away from ...](https://allwomenstalk.com/10-types-of-men-to-stay-away-from/)
 - [9 Reasons Girls Can Be Judgmental ...](https://allwomenstalk.com/9-reasons-girls-can-be-judgmental/)
 

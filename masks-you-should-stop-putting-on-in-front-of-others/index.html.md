@@ -56,16 +56,16 @@ There's no reason to pretend to be something you're not when the real you is so 
 
 ## Related Posts
 
-- [7 signs you're charming](https://inspiration.allwomenstalk.com/habits-of-genuinely-charming-people/)
-- [exercise habits](https://fitness.allwomenstalk.com/habits-of-highly-effective-exercisers/)
-- [does popularity matter](https://teen.allwomenstalk.com/things-to-remember-if-youre-not-a-popular-kid/)
 - [types of vices and virtues](https://lifestyle.allwomenstalk.com/the-deadly-vices-and-how-to-overcome-them-with-7-virtues/)
-- [khloe kardashian bigger the hoop](https://inspiration.allwomenstalk.com/afraid-of-missing-out-dont-be/)
-- [mary lou coffee flavors](https://lifestyle.allwomenstalk.com/what-your-coffee-says-about-you/)
-- [why you should talk to strangers](https://lifestyle.allwomenstalk.com/heres-why-talking-to-strangers-can-actually-be-good-for-you/)
 - [what is the colour of kindness](https://lifestyle.allwomenstalk.com/what-does-your-favorite-color-say-about-you/)
-- [free thinker examples](https://inspiration.allwomenstalk.com/are-you-a-free-thinker/)
+- [does popularity matter](https://teen.allwomenstalk.com/things-to-remember-if-youre-not-a-popular-kid/)
 - [anagepis meaning](https://lifestyle.allwomenstalk.com/emotions-we-feel-but-cant-explain/)
+- [mary lou coffee flavors](https://lifestyle.allwomenstalk.com/what-your-coffee-says-about-you/)
+- [exercise habits](https://fitness.allwomenstalk.com/habits-of-highly-effective-exercisers/)
+- [why you should talk to strangers](https://lifestyle.allwomenstalk.com/heres-why-talking-to-strangers-can-actually-be-good-for-you/)
+- [7 signs you're charming](https://inspiration.allwomenstalk.com/habits-of-genuinely-charming-people/)
+- [free thinker examples](https://inspiration.allwomenstalk.com/are-you-a-free-thinker/)
+- [khloe kardashian bigger the hoop](https://inspiration.allwomenstalk.com/afraid-of-missing-out-dont-be/)
 - [7 Ways People Manipulate You ...](https://allwomenstalk.com/7-ways-people-manipulate-you/)
 - [7 Ways to Show Respect to Others ...](https://allwomenstalk.com/7-ways-to-show-respect-to-others/)
 

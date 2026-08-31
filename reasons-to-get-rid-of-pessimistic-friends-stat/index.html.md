@@ -42,16 +42,16 @@ These are some reasons you may need to get rid of your pessimistic friends. Have
 
 ## Related Posts
 
-- [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
 - [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
-- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
-- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
 - [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
-- [don't fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
-- [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
-- [the longer you postpone working for your dreams](https://inspiration.allwomenstalk.com/reasons-you-might-be-delaying-pursuing-your-dreams/)
 - [i ain't even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
+- [the longer you postpone working for your dreams](https://inspiration.allwomenstalk.com/reasons-you-might-be-delaying-pursuing-your-dreams/)
+- [don't fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
+- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
+- [how to get on the property ladder](https://lifestyle.allwomenstalk.com/reasons-not-to-rush-to-get-on-the-property-ladder/)
+- [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
 - [why do i keep doing bad things](https://lifestyle.allwomenstalk.com/psychological-reasons-why-good-people-sometimes-do-bad-things/)
+- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
 - [7 Reasons Not to Worry about the Future ...](https://lifestyle.allwomenstalk.com/reasons-not-to-worry-about-the-future/)
 - [7 Reasons Why You Should Stop Criticizing Others ....](https://lifestyle.allwomenstalk.com/reasons-why-you-should-stop-criticizing-others/)
 

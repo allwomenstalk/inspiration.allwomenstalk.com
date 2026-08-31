@@ -43,15 +43,15 @@ I hope some of these tips will help you to stay motivated this year - I know I'l
 ## Related Posts
 
 - [competition at work](https://lifestyle.allwomenstalk.com/ways-to-deal-with-competition-at-work/)
-- [how to sound professional on the phone](https://lifestyle.allwomenstalk.com/easy-ways-to-sound-more-professional/)
-- [job dignity](https://money.allwomenstalk.com/ways-to-resign-from-your-job-with-dignity/)
-- [when is the syep lottery](https://teen.allwomenstalk.com/types-of-jobs-you-may-receive-from-syep/)
 - [surefire event staffing](https://money.allwomenstalk.com/surefire-ways-to-get-that-promotion-this-year/)
-- [value in work](https://money.allwomenstalk.com/essential-work-values-employers-look-for/)
 - [how to get job references](https://money.allwomenstalk.com/easy-tips-to-help-you-get-a-new-job-without-references/)
-- [things to know before a job interview](https://money.allwomenstalk.com/things-to-know-before-your-job-interview/)
-- [how to work faster and smarter](https://lifestyle.allwomenstalk.com/ways-to-work-smarter-and-faster-on-your-computer/)
 - [advantages of working in different industries](https://lifestyle.allwomenstalk.com/advantages-of-working-for-an-employer/)
+- [when is the syep lottery](https://teen.allwomenstalk.com/types-of-jobs-you-may-receive-from-syep/)
+- [how to work faster and smarter](https://lifestyle.allwomenstalk.com/ways-to-work-smarter-and-faster-on-your-computer/)
+- [value in work](https://money.allwomenstalk.com/essential-work-values-employers-look-for/)
+- [job dignity](https://money.allwomenstalk.com/ways-to-resign-from-your-job-with-dignity/)
+- [how to sound professional on the phone](https://lifestyle.allwomenstalk.com/easy-ways-to-sound-more-professional/)
+- [things to know before a job interview](https://money.allwomenstalk.com/things-to-know-before-your-job-interview/)
 - [7 Tips for a Successful Freelancing Career ...](https://allwomenstalk.com/7-tips-for-a-successful-freelancing-career/)
 - [7 Tips to Survive Working from Home ...](https://allwomenstalk.com/7-tips-to-survive-working-from-home/)
 

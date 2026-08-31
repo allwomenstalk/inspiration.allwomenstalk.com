@@ -43,15 +43,15 @@ If you’ve never watched The Walking Dead or read the comics, you need to start
 ## Related Posts
 
 - [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
-- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
-- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
-- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
+- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
+- [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
 - [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
 - [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
+- [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
 - [everything is copy meaning](https://inspiration.allwomenstalk.com/nora-ephron-quotes-to-inspire-you-as-a-woman-and-a-writer/)
 - [holding a grudge is like drinking poison quote](https://inspiration.allwomenstalk.com/profound-quotes-from-nelson-mandela/)
-- [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
-- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
+- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
+- [mr feeny quote](https://movies.allwomenstalk.com/of-the-best-boy-meets-world-quotes/)
 - [7 Top Zombie Flicks You Shouldn't Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
 - [7 of My Favorite Friendship Quotes ...](https://allwomenstalk.com/7-of-my-favorite-friendship-quotes/)
 

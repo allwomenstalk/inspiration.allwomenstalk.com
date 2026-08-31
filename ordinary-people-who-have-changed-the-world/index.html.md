@@ -48,16 +48,16 @@ Sources:
 
 ## Related Posts
 
-- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
-- [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
-- [apple xmas commercial](https://lifestyle.allwomenstalk.com/apples-new-holiday-commercial-is-sweet-enough-to-make-you-want-to-cry/)
-- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
-- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
 - [bombshell on broadway](https://music.allwomenstalk.com/smashs-bombshell-musical-is-coming-to-life-find-out-when/)
-- [forefathers' day](https://lifestyle.allwomenstalk.com/pay-homage-to-plymouths-pilgrims-on-forefathers-day/)
-- [stalker's greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
 - [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
+- [apple xmas commercial](https://lifestyle.allwomenstalk.com/apples-new-holiday-commercial-is-sweet-enough-to-make-you-want-to-cry/)
+- [stalker's greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
+- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
+- [forefathers' day](https://lifestyle.allwomenstalk.com/pay-homage-to-plymouths-pilgrims-on-forefathers-day/)
+- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
+- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
 - [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
+- [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
 - [8 Books That Changed the World ...](https://lifestyle.allwomenstalk.com/books-that-changed-the-world/)
 - [7 Life Changing Biographies You Must Read ...](https://allwomenstalk.com/life-changing-biographies-you-must-read/)
 

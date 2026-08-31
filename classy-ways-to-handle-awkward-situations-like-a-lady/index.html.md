@@ -42,15 +42,15 @@ No matter how confident or optimistic you are, you'll eventually end up stuck in
 
 ## Related Posts
 
+- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
+- [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
+- [don't embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
+- [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
 - [how to positively deal with a show off person](https://inspiration.allwomenstalk.com/show-off-friends-how-to-deal-with-one-upmanship/)
+- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
+- [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
 - [what to do with someone who complains all the time](https://lifestyle.allwomenstalk.com/ways-to-deal-with-someone-whos-always-complaining/)
 - [how to be friends with your boss](https://money.allwomenstalk.com/tips-for-when-your-boss-is-also-your-friend/)
-- [what to do when caught in a lie](https://inspiration.allwomenstalk.com/little-white-lies-add-up-heres-what-to-do-when-you-get-caught-fibbing/)
-- [how to legally get revenge on someone](https://funny.allwomenstalk.com/dont-get-mad-get-even-how-to-get-revenge-without-hurting-anyone/)
-- [clash steps](https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-personality-clash/)
-- [don't embarrass yourself](https://inspiration.allwomenstalk.com/how-can-you-avoid-embarrassing-yourself-in-public/)
-- [admitting you were wrong](https://inspiration.allwomenstalk.com/unbelievable-places-of-interest-in-ukraine/)
-- [how to deal with family bullies](https://inspiration.allwomenstalk.com/all-star-celebrity-tips-for-dealing-with-bullies/)
 - [inattentive vs unattentive](https://love.allwomenstalk.com/ways-to-deal-with-an-inattentive-boyfriend/)
 - [7 Mistakes Women Make at Parties, and How to Avoid...](https://allwomenstalk.com/7-mistakes-women-make-at-parties-and-how-to-avoid-them/)
 - [7 Etiquette Rules I Wish People Would Follow ...](https://allwomenstalk.com/7-etiquette-rules-i-wish-people-would-follow/)

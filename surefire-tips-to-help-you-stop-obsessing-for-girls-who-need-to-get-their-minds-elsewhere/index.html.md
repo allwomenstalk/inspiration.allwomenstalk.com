@@ -44,16 +44,16 @@ Obsession is no fun, but it happens to the best of us. When you find yourself fi
 
 ## Related Posts
 
-- [lovedignity.com dirty talk](https://love.allwomenstalk.com/the-foolproof-guide-to-dirty-talk-for-girls-who-are-nervous-to-try/)
-- [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
-- [strip cartoon example](https://funny.allwomenstalk.com/cartoons-that-express-everyday-girl-problems-we-all-face/)
 - [emotional detox quotes](https://inspiration.allwomenstalk.com/ways-to-detoxyour-junk-emotions-for-girls-who-feel-out-of-control/)
-- [that girl journal ideas](https://lifestyle.allwomenstalk.com/insanely-creative-first-page-ideas-for-girls-who-are-starting-a-journal/)
-- [girls plants](https://gardening.allwomenstalk.com/plants-to-keep-around-for-girls-needing-more-positive-energy/)
 - [faux fashion blunder](https://fashion.allwomenstalk.com/everyday-fashion-blunder-fixes-all-girls-should-know/)
-- [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
+- [lovedignity.com dirty talk](https://love.allwomenstalk.com/the-foolproof-guide-to-dirty-talk-for-girls-who-are-nervous-to-try/)
+- [strip cartoon example](https://funny.allwomenstalk.com/cartoons-that-express-everyday-girl-problems-we-all-face/)
+- [girls plants](https://gardening.allwomenstalk.com/plants-to-keep-around-for-girls-needing-more-positive-energy/)
+- [that girl journal ideas](https://lifestyle.allwomenstalk.com/insanely-creative-first-page-ideas-for-girls-who-are-starting-a-journal/)
 - [7 Kick-Ass Winning Habits for Girls Who Want to Tr...](https://inspiration.allwomenstalk.com/kick-ass-winning-habits-for-girls-who-want-to-triumph-in-life/)
+- [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
 - [candace cabrera tavino](https://fitness.allwomenstalk.com/genius-yoga-stretches-for-girls-who-need-to-boost-their-creativity/)
+- [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 - [Girl Time: Here's What You Can do Together to Get ...](https://inspiration.allwomenstalk.com/girl-time-heres-what-you-can-do-together-to-get-your-mind-off-boys/)
 

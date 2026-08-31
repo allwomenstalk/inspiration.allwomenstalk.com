@@ -42,16 +42,16 @@ You shouldn't spend every single day in tears, but you should be comfortable rel
 
 ## Related Posts
 
-- [offer your heart](https://love.allwomenstalk.com/reasons-why-you-should-not-give-your-heart-away/)
-- [why you shouldn't go through your partner's phone](https://love.allwomenstalk.com/reasons-why-you-shouldnt-snoop-on-your-partner/)
-- [trying to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-you-should-not-try-to-keep-up-with-the-joneses/)
-- [dreading turning 30](https://lifestyle.allwomenstalk.com/inarguable-reasons-to-stop-dreading-your-30s/)
-- [marrying your best friend quote](https://love.allwomenstalk.com/reasons-why-the-person-you-marry-should-be-your-best-friend/)
-- [did the kosa bill pass 2023](https://parenting.allwomenstalk.com/reasons-kid-shouldnt-date-until-theyre-16/)
 - [how to purge](https://health.allwomenstalk.com/reasons-to-resist-the-urge-to-purge/)
 - [lay off the booze](https://health.allwomenstalk.com/reasons-to-lay-off-alcohol-for-good/)
-- [reasons to borrow money from friends](https://money.allwomenstalk.com/reasons-why-you-shouldnt-loan-money-to-a-friend/)
+- [trying to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-you-should-not-try-to-keep-up-with-the-joneses/)
+- [did the kosa bill pass 2023](https://parenting.allwomenstalk.com/reasons-kid-shouldnt-date-until-theyre-16/)
+- [why you shouldn't go through your partner's phone](https://love.allwomenstalk.com/reasons-why-you-shouldnt-snoop-on-your-partner/)
+- [marrying your best friend quote](https://love.allwomenstalk.com/reasons-why-the-person-you-marry-should-be-your-best-friend/)
 - [leap essay](https://inspiration.allwomenstalk.com/reasons-to-look-before-you-leap/)
+- [offer your heart](https://love.allwomenstalk.com/reasons-why-you-should-not-give-your-heart-away/)
+- [dreading turning 30](https://lifestyle.allwomenstalk.com/inarguable-reasons-to-stop-dreading-your-30s/)
+- [reasons to borrow money from friends](https://money.allwomenstalk.com/reasons-why-you-shouldnt-loan-money-to-a-friend/)
 - [7 Most Common Reasons Why Babies Cry ...](https://parenting.allwomenstalk.com/7-most-common-reasons-why-babies-cry/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

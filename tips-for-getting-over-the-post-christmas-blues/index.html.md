@@ -26,16 +26,16 @@ These tips may not fully cure you of post-Christmas blues but they can certainly
 
 ## Related Posts
 
-- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
-- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
-- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
-- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
-- [turn on study](https://fitness.allwomenstalk.com/how-to-squeeze-in-exercise-during-your-study-breaks-for-busy-students/)
-- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
-- [flower mental health](https://gardening.allwomenstalk.com/flowers-that-can-improve-your-mental-health/)
 - [drained empath quotes](https://inspiration.allwomenstalk.com/an-empaths-guide-to-self-care/)
 - [hidden reasons behind stress](https://health.allwomenstalk.com/hidden-sources-of-stress-in-your-life/)
+- [flower mental health](https://gardening.allwomenstalk.com/flowers-that-can-improve-your-mental-health/)
+- [energy zapping](https://health.allwomenstalk.com/things-that-zap-your-energy-on-a-daily-basis/)
+- [turn on study](https://fitness.allwomenstalk.com/how-to-squeeze-in-exercise-during-your-study-breaks-for-busy-students/)
+- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
 - [busters stress](https://health.allwomenstalk.com/effective-stress-busters-everyone-should-know/)
+- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
+- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
+- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 - [11 Ways to Deal with the Holiday Blues ...](https://allwomenstalk.com/11-ways-to-deal-with-the-holiday-blues/)
 

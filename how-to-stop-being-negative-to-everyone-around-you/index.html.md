@@ -114,16 +114,16 @@ Lastly, admit you are a negative person and own it. It'll feel better in the end
 
 ## Related Posts
 
-- [why do men never approach me](https://lifestyle.allwomenstalk.com/ways-to-discourage-people-from-approaching-you-in-public/)
 - [how to use 48 laws of power](https://lifestyle.allwomenstalk.com/how-to-win-an-argument-with-someone-who-is-never-wrong/)
-- [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
 - [what to say to bride to be](https://wedding.allwomenstalk.com/how-to-say-no-to-the-bride-without-pissing-her-off/)
-- [losing it rn bestie](https://lifestyle.allwomenstalk.com/ways-to-deal-when-you-and-your-bestie-arent-friends-anymore/)
-- [the secret of friendship](https://lifestyle.allwomenstalk.com/the-secret-to-making-friends-without-really-trying/)
-- [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
 - [how to leave your friend group](https://inspiration.allwomenstalk.com/ways-to-handle-a-friendship-thats-falling-apart/)
+- [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
+- [losing it rn bestie](https://lifestyle.allwomenstalk.com/ways-to-deal-when-you-and-your-bestie-arent-friends-anymore/)
 - [musculing](https://love.allwomenstalk.com/ways-to-cope-when-your-bfs-bromance-is-musculing-in-on-your-relationship/)
 - [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
+- [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
+- [the secret of friendship](https://lifestyle.allwomenstalk.com/the-secret-to-making-friends-without-really-trying/)
+- [why do men never approach me](https://lifestyle.allwomenstalk.com/ways-to-discourage-people-from-approaching-you-in-public/)
 - [10 Ways to Deal with Negative People ...](https://allwomenstalk.com/10-ways-to-deal-with-negative-people/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 

@@ -46,15 +46,15 @@ While coming out is never, ever easy, there are ways that you can come out to yo
 
 ## Related Posts
 
-- [recognizing manipulation](https://lifestyle.allwomenstalk.com/ways-to-recognize-manipulation/)
-- [why do guys leave bruises](https://love.allwomenstalk.com/ways-to-deal-with-girls-hitting-on-your-man/)
-- [italian independence day](https://travel.allwomenstalk.com/tips-on-surviving-an-italian-family/)
-- [troublesome threes](https://parenting.allwomenstalk.com/effective-ways-to-deal-with-the-troublesome-threes/)
-- [how to forgive someone who has hurt you](https://love.allwomenstalk.com/tips-to-help-you-forgive/)
-- [7 friends group girl](https://inspiration.allwomenstalk.com/successful-ways-to-mix-your-diverse-group-of-friends/)
-- [soldiersangels.org/adopt a family](https://lifestyle.allwomenstalk.com/ways-you-can-support-our-troops/)
 - [when you confront someone and they turn it around ...](https://inspiration.allwomenstalk.com/tips-for-how-to-confront-someone-who-lied-to-you/)
+- [recognizing manipulation](https://lifestyle.allwomenstalk.com/ways-to-recognize-manipulation/)
+- [troublesome threes](https://parenting.allwomenstalk.com/effective-ways-to-deal-with-the-troublesome-threes/)
+- [italian independence day](https://travel.allwomenstalk.com/tips-on-surviving-an-italian-family/)
+- [7 friends group girl](https://inspiration.allwomenstalk.com/successful-ways-to-mix-your-diverse-group-of-friends/)
 - [why does my boyfriend hate me](https://love.allwomenstalk.com/tips-for-when-you-hate-your-daughters-boyfriend/)
+- [how to forgive someone who has hurt you](https://love.allwomenstalk.com/tips-to-help-you-forgive/)
+- [why do guys leave bruises](https://love.allwomenstalk.com/ways-to-deal-with-girls-hitting-on-your-man/)
+- [soldiersangels.org/adopt a family](https://lifestyle.allwomenstalk.com/ways-you-can-support-our-troops/)
 - [how to deal with a spouse who spends too much mone...](https://money.allwomenstalk.com/ways-to-deal-with-a-partner-who-spends-too-much/)
 - [8 Excellent Ways to Support a Friend in Trouble .....](https://lifestyle.allwomenstalk.com/excellent-ways-to-support-a-friend-in-trouble/)
 - [8 Tips for Encouraging a Friend ...](https://lifestyle.allwomenstalk.com/tips-for-encouraging-a-friend/)

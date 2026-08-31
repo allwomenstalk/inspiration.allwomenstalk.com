@@ -34,16 +34,16 @@ Happy Holidays!
 
 ## Related Posts
 
-- [Top Ten Bad Dating Habits to Avoid ...](https://love.allwomenstalk.com/top-ten-bad-dating-habits-to-avoid/)
-- [what can't vampires do](https://twilight.allwomenstalk.com/5-things-vampires-may-be-afraid-of/)
-- [things that take no talent](https://inspiration.allwomenstalk.com/things-in-that-require-no-talent/)
 - [10 Things He Really Doesn't Want to Hear from You ...](https://love.allwomenstalk.com/things-he-really-doesnt-want-to-hear-from-you/)
-- [Different Types of Content That Does Not Appeal to...](https://lifestyle.allwomenstalk.com/types-of-content-that-does-not-appeal-to-the-majority-of-site-visitors/)
-- [Body Language to Avoid to Create a Good Impression...](https://love.allwomenstalk.com/body-language-to-avoid-to-create-a-good-impression-on-a-first-date/)
+- [Top Ten Bad Dating Habits to Avoid ...](https://love.allwomenstalk.com/top-ten-bad-dating-habits-to-avoid/)
+- [5 Things Vampires May Not like ...](https://twilight.allwomenstalk.com/5-things-vampires-may-not-like/)
+- [things that take no talent](https://inspiration.allwomenstalk.com/things-in-that-require-no-talent/)
+- [do vampires wear hats](https://twilight.allwomenstalk.com/5-things-to-avoid-that-would-attract-a-vampire/)
 - [10 Things to Give up for Lent ...](https://inspiration.allwomenstalk.com/things-to-give-up-for-lent/)
 - [never leave in your car](https://lifestyle.allwomenstalk.com/things-to-always-never-leave-in-your-car/)
-- [do vampires wear hats](https://twilight.allwomenstalk.com/5-things-to-avoid-that-would-attract-a-vampire/)
-- [5 Things Vampires May Not like ...](https://twilight.allwomenstalk.com/5-things-vampires-may-not-like/)
+- [Body Language to Avoid to Create a Good Impression...](https://love.allwomenstalk.com/body-language-to-avoid-to-create-a-good-impression-on-a-first-date/)
+- [Different Types of Content That Does Not Appeal to...](https://lifestyle.allwomenstalk.com/types-of-content-that-does-not-appeal-to-the-majority-of-site-visitors/)
+- [what can't vampires do](https://twilight.allwomenstalk.com/5-things-vampires-may-be-afraid-of/)
 - [7 Ways to Survive the Holiday Stress as a Couple ....](https://love.allwomenstalk.com/ways-to-survive-the-holiday-stress-as-a-couple/)
 - [7 Ways to Survive a Family Reunion ...](https://allwomenstalk.com/7-ways-to-survive-a-family-reunion/)
 

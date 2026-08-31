@@ -42,16 +42,16 @@ A lot of us could benefit from working on our bad speaking habits. What is the s
 
 ## Related Posts
 
-- [bad reputation in school](https://teen.allwomenstalk.com/ways-to-avoid-getting-a-bad-reputation/)
-- [writing tips for bloggers](https://lifestyle.allwomenstalk.com/writing-tips-for-bloggers-to-remember-for-every-single-post/)
-- [what are the rules to backgammon](https://lifestyle.allwomenstalk.com/rules-of-backgammon-that-you-need-to-know/)
-- [forensic speaking definition](https://teen.allwomenstalk.com/things-you-need-to-know-about-forensics-public-speaking-competitions/)
+- [tell me without telling me game](https://lifestyle.allwomenstalk.com/mau-mau-rules-you-need-to-know-to-play-this-awesome-game/)
 - [procrastination trap](https://lifestyle.allwomenstalk.com/common-procrastination-traps-and-how-to-avoid-them/)
 - [what to do at the club](https://lifestyle.allwomenstalk.com/clubbing-rules-to-follow-every-single-time/)
-- [intuitive learner](https://teen.allwomenstalk.com/learner-types-and-how-to-play-to-their-strengths/)
-- [last minute prom tips](https://teen.allwomenstalk.com/tips-for-having-the-time-of-your-life-at-prom/)
-- [tell me without telling me game](https://lifestyle.allwomenstalk.com/mau-mau-rules-you-need-to-know-to-play-this-awesome-game/)
+- [forensic speaking definition](https://teen.allwomenstalk.com/things-you-need-to-know-about-forensics-public-speaking-competitions/)
 - [baked goods to mail](https://lifestyle.allwomenstalk.com/helpful-tips-for-mailing-baked-goods-in-care-packages/)
+- [writing tips for bloggers](https://lifestyle.allwomenstalk.com/writing-tips-for-bloggers-to-remember-for-every-single-post/)
+- [intuitive learner](https://teen.allwomenstalk.com/learner-types-and-how-to-play-to-their-strengths/)
+- [what are the rules to backgammon](https://lifestyle.allwomenstalk.com/rules-of-backgammon-that-you-need-to-know/)
+- [last minute prom tips](https://teen.allwomenstalk.com/tips-for-having-the-time-of-your-life-at-prom/)
+- [bad reputation in school](https://teen.allwomenstalk.com/ways-to-avoid-getting-a-bad-reputation/)
 - [7 Unhealthy Habits and How to Stop Them ...](https://health.allwomenstalk.com/unhealthy-habits-and-how-to-stop-them/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)
 

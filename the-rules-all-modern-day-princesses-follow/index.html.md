@@ -74,16 +74,16 @@ Are you going to adopt the Princess Principles?
 
 ## Related Posts
 
-- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
 - [dating in 50's](https://love.allwomenstalk.com/the-harsh-realities-of-being-a-woman-online-and-dating-in-your-50s/)
-- [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
-- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
-- [sexier](https://love.allwomenstalk.com/nerdy-girls-unite-all-the-reasons-why-the-smarter-you-are-the-sexier-you-are/)
-- [dating girls app](https://apps.allwomenstalk.com/dating-app-hacks-all-girls-who-swipe-should-know/)
-- [cant take a hint](https://love.allwomenstalk.com/insight-for-the-girls-who-cant-take-a-hint/)
-- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
 - [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
+- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
+- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
+- [things to accept](https://inspiration.allwomenstalk.com/how-to-feel-worthy-of-good-things-in-life-for-women-struggling-to-accept-themselves/)
+- [cant take a hint](https://love.allwomenstalk.com/insight-for-the-girls-who-cant-take-a-hint/)
+- [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
+- [dating girls app](https://apps.allwomenstalk.com/dating-app-hacks-all-girls-who-swipe-should-know/)
 - [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
+- [sexier](https://love.allwomenstalk.com/nerdy-girls-unite-all-the-reasons-why-the-smarter-you-are-the-sexier-you-are/)
 - [5 Wedding Dresses to Inspire Your Inner Princess ....](https://wedding.allwomenstalk.com/5-wedding-dresses-to-inspire-your-inner-princess/)
 - [How to Be the Girl Everyone Wants to Hang out with...](https://lifestyle.allwomenstalk.com/how-to-be-the-girl-everyone-wants-to-hang-out-with/)
 

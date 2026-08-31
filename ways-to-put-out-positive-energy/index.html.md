@@ -42,16 +42,16 @@ Putting out positive energy can really help you shift your attitude and apprecia
 
 ## Related Posts
 
-- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
-- [techniques to improve emotional intelligence](https://inspiration.allwomenstalk.com/extremely-efficient-tips-to-improve-your-emotional-intelligence/)
-- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
-- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
-- [weight loss vision board ideas](https://lifestyle.allwomenstalk.com/steps-to-creating-your-perfect-vision-board/)
-- [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
-- [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
 - [leave yesterday behind](https://lifestyle.allwomenstalk.com/ways-to-jumpstart-your-day-and-leave-yesterday-behind/)
-- [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
+- [techniques to improve emotional intelligence](https://inspiration.allwomenstalk.com/extremely-efficient-tips-to-improve-your-emotional-intelligence/)
+- [weight loss vision board ideas](https://lifestyle.allwomenstalk.com/steps-to-creating-your-perfect-vision-board/)
+- [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
 - [how to improve as a person](https://inspiration.allwomenstalk.com/best-ways-to-improve-yourself-as-a-person/)
+- [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
+- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
+- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
+- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
+- [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
 - [7 Perfect Energizers ...](https://allwomenstalk.com/7-perfect-energizers/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)
 

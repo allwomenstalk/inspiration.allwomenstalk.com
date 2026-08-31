@@ -50,16 +50,16 @@ What’s your favorite Nora Ephron quote? What’s your favorite Nora Ephron mov
 
 ## Related Posts
 
-- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
-- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
-- [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
-- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
-- [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
-- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
-- [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
 - [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
 - [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
+- [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [learn to be patient quotes](https://inspiration.allwomenstalk.com/quotes-about-testing-times-to-give-you-the-power-to-persevere/)
+- [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
+- [yoga everywhere quotes](https://fitness.allwomenstalk.com/great-yoga-quotes-that-inspire-your-practice/)
+- [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
+- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [9 Career Books Every Young Woman Should Read ...](https://books.allwomenstalk.com/career-books-every-young-woman-should-read/)
 

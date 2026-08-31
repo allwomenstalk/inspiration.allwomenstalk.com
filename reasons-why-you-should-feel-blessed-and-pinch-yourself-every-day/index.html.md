@@ -42,16 +42,16 @@ We all live our busy lives, as we study, work and do our own things. But sometim
 
 ## Related Posts
 
-- [karma gossip quotes](https://inspiration.allwomenstalk.com/positive-things-you-can-do-to-balance-your-karma/)
-- [challenges you](https://inspiration.allwomenstalk.com/challenges-to-be-a-better-you/)
-- [kind things to do for yourself](https://inspiration.allwomenstalk.com/kind-things-to-do-for-yourself-today/)
-- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
-- [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
 - [establish yourself](https://inspiration.allwomenstalk.com/inspiring-ways-to-establish-yourself-as-a-leader/)
 - [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
+- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
+- [karma gossip quotes](https://inspiration.allwomenstalk.com/positive-things-you-can-do-to-balance-your-karma/)
+- [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
 - [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
+- [kind things to do for yourself](https://inspiration.allwomenstalk.com/kind-things-to-do-for-yourself-today/)
 - [write any two ways of helping others](https://inspiration.allwomenstalk.com/amazing-ways-to-help-others-and-make-a-difference/)
 - [leyes de la mente](https://lifestyle.allwomenstalk.com/natural-laws-of-the-mind-and-how-to-apply-them-to-your-life/)
+- [challenges you](https://inspiration.allwomenstalk.com/challenges-to-be-a-better-you/)
 - [10 Things That Can Make You Happy during the Day ....](https://allwomenstalk.com/10-things-that-can-make-you-happy-during-the-day/)
 - [8 Things You Should Say to Yourself Each Morning ....](https://lifestyle.allwomenstalk.com/things-you-should-say-to-yourself-each-morning/)
 

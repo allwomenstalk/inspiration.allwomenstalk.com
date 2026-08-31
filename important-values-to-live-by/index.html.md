@@ -42,16 +42,16 @@ There are many values to live by, but these were just some I think stood out the
 
 ## Related Posts
 
-- [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
-- [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
 - [time to make a change](https://inspiration.allwomenstalk.com/things-you-should-never-want-to-change-about-your-life/)
+- [things to do with your older sister at home](https://teen.allwomenstalk.com/perks-of-having-an-older-sibling/)
 - [elementary lessons](https://inspiration.allwomenstalk.com/life-lessons-that-you-learned-in-elementary-school/)
-- [跨越难的信心](https://inspiration.allwomenstalk.com/societal-messages-you-shouldnt-let-knock-your-confidence/)
-- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
+- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
 - [you have enough](https://lifestyle.allwomenstalk.com/things-we-never-seem-to-have-enough-of/)
 - [what are the things that keep you from living up t...](https://inspiration.allwomenstalk.com/things-that-are-stopping-you-from-reaching-your-full-potential/)
-- [types of friendships](https://lifestyle.allwomenstalk.com/types-of-friendships-to-value-and-cherish/)
+- [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
 - [things to keep](https://inspiration.allwomenstalk.com/things-you-should-keep-throughout-your-life/)
+- [跨越难的信心](https://inspiration.allwomenstalk.com/societal-messages-you-shouldnt-let-knock-your-confidence/)
+- [im responsible for](https://lifestyle.allwomenstalk.com/things-you-are-responsible-for/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 

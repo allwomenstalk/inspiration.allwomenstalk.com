@@ -50,16 +50,16 @@ Do you think these ways to look forward to Monday morning will make a difference
 
 ## Related Posts
 
-- [something to enjoy](https://inspiration.allwomenstalk.com/things-you-need-to-do-to-enjoy-life-more/)
-- [increase my horizon](https://lifestyle.allwomenstalk.com/amazing-ways-to-broaden-your-horizons/)
-- [riche le stylo smoky shadow hollywood](https://inspiration.allwomenstalk.com/habits-that-lead-to-more-happiness-that-you-should-always-consider/)
-- [how to overcome passivity and lack of initiative](https://inspiration.allwomenstalk.com/very-helpful-tips-on-how-to-overcome-passivity/)
-- [cut negativity out of your life](https://inspiration.allwomenstalk.com/ways-to-get-rid-of-negativity-from-your-life/)
-- [how to get out of rut in life](https://lifestyle.allwomenstalk.com/ways-to-get-out-of-a-life-rut-right-now/)
 - [how to say goodbye to a family member](https://inspiration.allwomenstalk.com/ways-to-start-changing-your-life-and-say-goodbye-to-the-past/)
-- [what can you do now to make dreams come true](https://inspiration.allwomenstalk.com/things-to-do-now-to-make-your-dreams-come-true/)
-- [achieve full potential](https://inspiration.allwomenstalk.com/tips-on-how-to-achieve-your-full-potential-that-you-should-always-consider/)
+- [something to enjoy](https://inspiration.allwomenstalk.com/things-you-need-to-do-to-enjoy-life-more/)
+- [how to overcome passivity and lack of initiative](https://inspiration.allwomenstalk.com/very-helpful-tips-on-how-to-overcome-passivity/)
+- [increase my horizon](https://lifestyle.allwomenstalk.com/amazing-ways-to-broaden-your-horizons/)
 - [being intentional with your time](https://lifestyle.allwomenstalk.com/important-ways-to-be-intentional-with-your-family-starting-today/)
+- [what can you do now to make dreams come true](https://inspiration.allwomenstalk.com/things-to-do-now-to-make-your-dreams-come-true/)
+- [riche le stylo smoky shadow hollywood](https://inspiration.allwomenstalk.com/habits-that-lead-to-more-happiness-that-you-should-always-consider/)
+- [achieve full potential](https://inspiration.allwomenstalk.com/tips-on-how-to-achieve-your-full-potential-that-you-should-always-consider/)
+- [how to get out of rut in life](https://lifestyle.allwomenstalk.com/ways-to-get-out-of-a-life-rut-right-now/)
+- [cut negativity out of your life](https://inspiration.allwomenstalk.com/ways-to-get-rid-of-negativity-from-your-life/)
 - [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)
 - [5 Cute Things to Start Your Week with...](https://allwomenstalk.com/5-cute-things-to-start-your-week-with/)
 

@@ -42,16 +42,16 @@ These are seven situations when you may be tempted to compare yourself. When are
 
 ## Related Posts
 
-- [things to learn as an adult](https://teen.allwomenstalk.com/surprising-things-you-learn-when-you-become-an-adult/)
+- [7 Things That Will Cheer You up when You Don't Fee...](https://inspiration.allwomenstalk.com/things-that-will-cheer-you-up-when-you-dont-feel-loved/)
 - [7 Standards You Should Never Lower for a Happy Lif...](https://love.allwomenstalk.com/standards-you-should-never-lower-for-a-happy-life/)
 - [7 Everyday Things That Are Actually Contagious ...](https://lifestyle.allwomenstalk.com/everyday-things-that-are-actually-contagious/)
-- [7 Extremely Useful Things You Can Learn from Thera...](https://inspiration.allwomenstalk.com/extremely-useful-things-you-can-learn-from-therapists/)
-- [7 Simple Things That Impress People around You ...](https://inspiration.allwomenstalk.com/simple-things-that-impress-people-around-you/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/amazing-things-your-brain-does/)
 - [how to learn from rejection](https://inspiration.allwomenstalk.com/awesome-things-to-learn-from-rejection/)
+- [things to learn as an adult](https://teen.allwomenstalk.com/surprising-things-you-learn-when-you-become-an-adult/)
 - [7 Well-kept Secrets of Highly Persuasive Speakers ...](https://inspiration.allwomenstalk.com/well-kept-secrets-of-highly-persuasive-speakers/)
-- [7 Things That Will Cheer You up when You Don't Fee...](https://inspiration.allwomenstalk.com/things-that-will-cheer-you-up-when-you-dont-feel-loved/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/amazing-things-your-brain-does/)
+- [7 Simple Things That Impress People around You ...](https://inspiration.allwomenstalk.com/simple-things-that-impress-people-around-you/)
 - [9 Things You'll Learn about Life by the Time You'r...](https://teen.allwomenstalk.com/things-youll-learn-by-the-time-youre-19/)
+- [7 Extremely Useful Things You Can Learn from Thera...](https://inspiration.allwomenstalk.com/extremely-useful-things-you-can-learn-from-therapists/)
 - [9 Tips to Overcome Envy ...](https://lifestyle.allwomenstalk.com/tips-to-overcome-envy/)
 - [7 Ways to Learn Your Insecurities ...](https://love.allwomenstalk.com/ways-to-learn-your-insecurities/)
 

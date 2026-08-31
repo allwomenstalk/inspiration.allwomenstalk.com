@@ -42,16 +42,16 @@ Although there are many great lessons to be learned inside of a classroom, some 
 
 ## Related Posts
 
-- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
-- [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
-- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
-- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
-- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
-- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
 - [happy things to think about](https://inspiration.allwomenstalk.com/things-you-think-will-make-you-happy-but-wont/)
-- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [the youngest of the family](https://parenting.allwomenstalk.com/best-things-about-being-the-youngest/)
+- [how do you know if you have a true friend](https://teen.allwomenstalk.com/situations-that-reveal-who-your-true-friends-are/)
+- [qualities to become a model](https://teen.allwomenstalk.com/characteristics-to-look-for-in-a-role-model/)
 - [the final stage of grief is typically remorse](https://lifestyle.allwomenstalk.com/typical-stages-of-grieving-for-you-to-know-about/)
+- [did winston churchill draw](https://inspiration.allwomenstalk.com/lessons-from-winston-churchill-to-take-to-heart/)
+- [things that you can't control](https://lifestyle.allwomenstalk.com/things-that-control-our-lives-on-a-daily-basis/)
+- [what to do when embarrassed at school](https://teen.allwomenstalk.com/things-we-all-do-in-class-that-you-shouldnt-feel-embarrassed-about/)
 - [things to do on a hot day in sydney](https://parenting.allwomenstalk.com/best-things-about-being-the-oldest/)
+- [healthy addiction](https://health.allwomenstalk.com/healthy-addictions-its-okay-to-have/)
 - [7 Ways to Be Eco-friendly ...](https://lifestyle.allwomenstalk.com/ways-to-be-eco-friendly/)
 - [7 Smalls Steps to Being Eco-Friendly ...](https://allwomenstalk.com/7-smalls-steps-to-being-eco-friendly/)
 

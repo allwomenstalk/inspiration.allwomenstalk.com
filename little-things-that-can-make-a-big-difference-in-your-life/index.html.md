@@ -72,16 +72,16 @@ Sometimes one of the **reasons we don’t change** is because we try and take bi
 
 ## Related Posts
 
-- [brilliant ways](https://inspiration.allwomenstalk.com/brilliant-ways-to-be-happier/)
-- [how do i feel alive](https://inspiration.allwomenstalk.com/inspiring-ways-to-feel-alive-and-not-just-exist/)
-- [live luxuriously](https://lifestyle.allwomenstalk.com/how-to-live-a-luxurious-life-every-day/)
-- [tiger's den meaning](https://inspiration.allwomenstalk.com/chinese-proverbs-that-will-help-you-live-a-better-life/)
-- [inspiring happiness](https://inspiration.allwomenstalk.com/inspiring-steps-to-happiness/)
-- [sunday habits](https://lifestyle.allwomenstalk.com/sunday-habits-to-prepare-for-the-week-ahead/)
-- [tips for better study habits](https://teen.allwomenstalk.com/genius-tips-on-how-to-create-good-study-habits/)
-- [prepared for everything](https://inspiration.allwomenstalk.com/how-to-be-prepared-for-anything-life-throws-at-you/)
 - [ikigai 10 regeln](https://health.allwomenstalk.com/the-rules-of-ikigai-to-lead-a-long-and-happy-life/)
+- [brilliant ways](https://inspiration.allwomenstalk.com/brilliant-ways-to-be-happier/)
+- [prepared for everything](https://inspiration.allwomenstalk.com/how-to-be-prepared-for-anything-life-throws-at-you/)
+- [tiger's den meaning](https://inspiration.allwomenstalk.com/chinese-proverbs-that-will-help-you-live-a-better-life/)
+- [sunday habits](https://lifestyle.allwomenstalk.com/sunday-habits-to-prepare-for-the-week-ahead/)
 - [how to pick yourself up when feeling low](https://inspiration.allwomenstalk.com/brilliant-ways-to-pick-yourself-up-when-youre-feeling-down/)
+- [live luxuriously](https://lifestyle.allwomenstalk.com/how-to-live-a-luxurious-life-every-day/)
+- [how do i feel alive](https://inspiration.allwomenstalk.com/inspiring-ways-to-feel-alive-and-not-just-exist/)
+- [inspiring happiness](https://inspiration.allwomenstalk.com/inspiring-steps-to-happiness/)
+- [tips for better study habits](https://teen.allwomenstalk.com/genius-tips-on-how-to-create-good-study-habits/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 - [5 Things to Make You Happy ...](https://allwomenstalk.com/5-things-to-make-you-happy/)
 

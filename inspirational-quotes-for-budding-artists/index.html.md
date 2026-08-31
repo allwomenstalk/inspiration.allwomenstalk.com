@@ -68,16 +68,16 @@ I truly hope you are inspired by these quotes enough that you feel you can share
 
 ## Related Posts
 
-- [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
+- [memes about college](https://funny.allwomenstalk.com/funny-quotes-for-high-school-and-college-kids/)
+- [never forget your past](https://inspiration.allwomenstalk.com/inspirational-quotes-about-letting-go-of-the-past/)
 - [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
+- [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
+- [you will inspire some and annoy others](https://funny.allwomenstalk.com/silly-words-of-wisdom-that-will-inspire-you-to-succeed/)
 - [anti bullying quotes short](https://inspiration.allwomenstalk.com/inspiring-quotes-to-help-you-deal-with-bullying/)
-- [sayings autumn](https://inspiration.allwomenstalk.com/lovely-quotes-about-autumn/)
 - [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
 - [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
-- [memes about college](https://funny.allwomenstalk.com/funny-quotes-for-high-school-and-college-kids/)
 - [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
-- [never forget your past](https://inspiration.allwomenstalk.com/inspirational-quotes-about-letting-go-of-the-past/)
-- [you will inspire some and annoy others](https://funny.allwomenstalk.com/silly-words-of-wisdom-that-will-inspire-you-to-succeed/)
+- [sayings autumn](https://inspiration.allwomenstalk.com/lovely-quotes-about-autumn/)
 - [9 Friendship Quotes ...](https://lifestyle.allwomenstalk.com/friendship-quotes/)
 - [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 

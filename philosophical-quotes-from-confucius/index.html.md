@@ -58,16 +58,16 @@ The wisdom of Confucius has lasted for thousands of years. His teachings are tim
 
 ## Related Posts
 
-- [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
 - [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
-- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
-- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
 - [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
 - [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
-- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
-- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
-- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
 - [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
+- [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
+- [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
+- [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
+- [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
+- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
+- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
 - [7 of My Favorite Friendship Quotes ...](https://allwomenstalk.com/7-of-my-favorite-friendship-quotes/)
 - [7 TV Quotes about Friendship ...](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
 

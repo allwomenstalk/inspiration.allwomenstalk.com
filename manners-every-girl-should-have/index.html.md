@@ -42,14 +42,14 @@ Having good manners doesn’t just equate to wiping your mouth at the dinner tab
 
 ## Related Posts
 
+- [list of movie cliches](https://movies.allwomenstalk.com/romantic-movie-cliches-girls-crave-in-real-life/)
+- [life with a college girl](https://lifestyle.allwomenstalk.com/mistakes-every-girl-makes-her-freshman-year-in-college/)
 - [without manners](https://lifestyle.allwomenstalk.com/must-have-manners-many-women-dont-use-but-should/)
 - [life lessons to teach your daughter](https://parenting.allwomenstalk.com/best-lessons-to-teach-your-daughter/)
-- [how to act like a lady](https://lifestyle.allwomenstalk.com/rules-of-being-a-lady-that-just-dont-make-sense/)
-- [what to wear when going to a club](https://lifestyle.allwomenstalk.com/tips-for-going-to-the-club-with-your-gals/)
 - [watch girl code](https://lifestyle.allwomenstalk.com/common-female-problems-that-girl-code-discusses/)
+- [how to act like a lady](https://lifestyle.allwomenstalk.com/rules-of-being-a-lady-that-just-dont-make-sense/)
 - [basic diy skills](https://diy.allwomenstalk.com/essential-diy-skills-every-woman-should-know/)
-- [life with a college girl](https://lifestyle.allwomenstalk.com/mistakes-every-girl-makes-her-freshman-year-in-college/)
-- [list of movie cliches](https://movies.allwomenstalk.com/romantic-movie-cliches-girls-crave-in-real-life/)
+- [what to wear when going to a club](https://lifestyle.allwomenstalk.com/tips-for-going-to-the-club-with-your-gals/)
 - [7 types of friends](https://lifestyle.allwomenstalk.com/types-of-friends-every-girl-needs-in-her-life/)
 - [how to be like a queen](https://lifestyle.allwomenstalk.com/regal-ways-to-think-like-a-queen/)
 - [9 Table Manners You Don't Want to Forget ...](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)

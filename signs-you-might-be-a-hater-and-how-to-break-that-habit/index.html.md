@@ -42,16 +42,16 @@ Have you learned anything about yourself in this article? How has it helped you 
 
 ## Related Posts
 
-- [signage for food trucks](https://food.allwomenstalk.com/sure-signs-that-prove-youre-a-foodie/)
-- [signs you should see a therapist](https://health.allwomenstalk.com/sure-signs-you-should-see-a-therapist/)
-- [how to know if your a picky eater](https://food.allwomenstalk.com/sure-signs-youre-a-picky-eater/)
-- [signs you're mature](https://inspiration.allwomenstalk.com/signs-that-you-have-matured-that-you-should-consider/)
+- [am i wasting my life](https://inspiration.allwomenstalk.com/signs-youre-wasting-your-life-even-if-you-wont-admit-it/)
+- [what is a high maintenance girlfriend](https://love.allwomenstalk.com/signs-you-are-a-high-maintenance-woman/)
 - [a moody person](https://lifestyle.allwomenstalk.com/signs-of-excessive-moodiness/)
 - [my coworkers suddenly acting strange](https://money.allwomenstalk.com/top-signs-that-a-pink-slip-is-coming/)
-- [what is a high maintenance girlfriend](https://love.allwomenstalk.com/signs-you-are-a-high-maintenance-woman/)
+- [signs you're mature](https://inspiration.allwomenstalk.com/signs-that-you-have-matured-that-you-should-consider/)
+- [signs you should see a therapist](https://health.allwomenstalk.com/sure-signs-you-should-see-a-therapist/)
 - [wedding high](https://wedding.allwomenstalk.com/obvious-signs-that-you-are-high-on-wedding-fever/)
-- [am i wasting my life](https://inspiration.allwomenstalk.com/signs-youre-wasting-your-life-even-if-you-wont-admit-it/)
 - [signs of a bad driver](https://funny.allwomenstalk.com/funny-but-real-signs-youre-a-bad-driver/)
+- [how to know if your a picky eater](https://food.allwomenstalk.com/sure-signs-youre-a-picky-eater/)
+- [signage for food trucks](https://food.allwomenstalk.com/sure-signs-that-prove-youre-a-foodie/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
 - [10 Text Habits That Drive People Mad ...](https://allwomenstalk.com/10-text-habits-that-drive-people-mad/)
 

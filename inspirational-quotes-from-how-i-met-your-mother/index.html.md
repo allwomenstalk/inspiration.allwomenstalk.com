@@ -50,16 +50,16 @@ When life throws challenges at you, say ‘challenge accepted.’ Do you watch H
 
 ## Related Posts
 
-- [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
 - [fabulous phrases](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/)
-- [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
-- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
-- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
+- [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
+- [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
+- [quote about mermaids](https://inspiration.allwomenstalk.com/intense-and-beautiful-quotes-inspired-by-mermaids/)
 - [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
 - [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
+- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
+- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
 - [inspirational quotes for a tough day](https://inspiration.allwomenstalk.com/inspirational-quotes-to-get-you-through-a-tough-day/)
-- [quote about mermaids](https://inspiration.allwomenstalk.com/intense-and-beautiful-quotes-inspired-by-mermaids/)
-- [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
+- [mosby ted](https://inspiration.allwomenstalk.com/amazing-pieces-of-advice-from-ted-mosby/)
 - [8 Things I've Learned from Gossip Girl ...](https://movies.allwomenstalk.com/things-ive-learned-from-gossip-girl/)
 - [8 Things Celebs Can Teach You about Dating ...](https://celebs.allwomenstalk.com/things-celebs-can-teach-you-about-dating/)
 

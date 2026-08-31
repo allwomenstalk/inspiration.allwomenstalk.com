@@ -74,16 +74,16 @@ I love this woman!
 
 ## Related Posts
 
+- [10 life lessons](https://lifestyle.allwomenstalk.com/life-lessons-and-what-they-teach-you/)
+- [is it illegal to drive by someone's house](https://lifestyle.allwomenstalk.com/weve-all-done-these-stalkerish-things-once-or-twice/)
+- [your tears are precious](https://lifestyle.allwomenstalk.com/if-you-are-sensitive-dont-waste-your-tears-on-these-things/)
+- [life advice for young adults](https://inspiration.allwomenstalk.com/pieces-of-advice-to-follow-while-youre-still-young/)
+- [hard truth about life](https://lifestyle.allwomenstalk.com/the-cold-hard-truth-about-life-as-a-millennial/)
+- [eyes too big for stomach](https://food.allwomenstalk.com/truths-youll-recognize-if-your-eyes-are-bigger-than-your-stomach/)
 - [things millenials like](https://lifestyle.allwomenstalk.com/millennials-are-sick-and-tired-of-hearing-these-things/)
 - [a thing to remember](https://lifestyle.allwomenstalk.com/things-you-should-always-remember/)
 - [out of the abundance of the heart the mouth speak](https://lifestyle.allwomenstalk.com/reasons-you-should-always-speak-from-the-heart/)
-- [life advice for young adults](https://inspiration.allwomenstalk.com/pieces-of-advice-to-follow-while-youre-still-young/)
-- [your tears are precious](https://lifestyle.allwomenstalk.com/if-you-are-sensitive-dont-waste-your-tears-on-these-things/)
 - [signs you're not ready for adulthood](https://lifestyle.allwomenstalk.com/these-things-prove-adult-life-isnt-for-you/)
-- [eyes too big for stomach](https://food.allwomenstalk.com/truths-youll-recognize-if-your-eyes-are-bigger-than-your-stomach/)
-- [10 life lessons](https://lifestyle.allwomenstalk.com/life-lessons-and-what-they-teach-you/)
-- [is it illegal to drive by someone's house](https://lifestyle.allwomenstalk.com/weve-all-done-these-stalkerish-things-once-or-twice/)
-- [hard truth about life](https://lifestyle.allwomenstalk.com/the-cold-hard-truth-about-life-as-a-millennial/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [7 Things to Learn from Divorce ...](https://allwomenstalk.com/7-things-to-learn-from-divorce/)
 

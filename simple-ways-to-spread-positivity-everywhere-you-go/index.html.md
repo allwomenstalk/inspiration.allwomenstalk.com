@@ -68,16 +68,16 @@ These are a few great ways to spread a little positivity everywhere you go. Can 
 
 ## Related Posts
 
-- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
-- [what should every girl have in her room](https://lifestyle.allwomenstalk.com/little-things-every-woman-needs-in-her-apartment/)
-- [deruking classy lady](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
-- [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
-- [lazy girl quotes](https://funny.allwomenstalk.com/life-hacks-you-need-if-you-want-to-maintain-your-reputation-as-a-lazy-girl/)
-- [independant girls](https://inspiration.allwomenstalk.com/forget-relationship-goals-here-are-some-independent-girl-goals/)
-- [jessica alba tactics](https://inspiration.allwomenstalk.com/wait-til-you-try-these-life-tips-from-jessica-alba/)
 - [things every woman should own](https://inspiration.allwomenstalk.com/things-every-girl-should-do-at-least-once-in-her-life/)
 - [being a strong independent woman](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-independent-woman/)
+- [lazy girl quotes](https://funny.allwomenstalk.com/life-hacks-you-need-if-you-want-to-maintain-your-reputation-as-a-lazy-girl/)
+- [independant girls](https://inspiration.allwomenstalk.com/forget-relationship-goals-here-are-some-independent-girl-goals/)
 - [Girl Time: Here's What You Can do Together to Get ...](https://inspiration.allwomenstalk.com/girl-time-heres-what-you-can-do-together-to-get-your-mind-off-boys/)
+- [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
+- [deruking classy lady](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
+- [jessica alba tactics](https://inspiration.allwomenstalk.com/wait-til-you-try-these-life-tips-from-jessica-alba/)
+- [what should every girl have in her room](https://lifestyle.allwomenstalk.com/little-things-every-woman-needs-in-her-apartment/)
+- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
 - [7 Ways to Boost Girl Power ...](https://allwomenstalk.com/7-ways-to-boost-girl-power/)
 - [7 Things Women Should Take More Pride in to Be Hap...](https://inspiration.allwomenstalk.com/things-women-should-take-more-pride-in-to-be-happier/)
 

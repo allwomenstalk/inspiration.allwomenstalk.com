@@ -146,16 +146,16 @@ What's your favorite mantra for when life hits hard? Did you agree with these li
 
 ## Related Posts
 
-- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
-- [what does clutter say about a person](https://lifestyle.allwomenstalk.com/what-your-hidden-clutter-says-about-your-personality/)
+- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
+- [age is just a number cake](https://beauty.allwomenstalk.com/iconic-women-who-prove-that-age-is-just-a-number/)
 - [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
 - [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
-- [age is just a number cake](https://beauty.allwomenstalk.com/iconic-women-who-prove-that-age-is-just-a-number/)
-- [we must accept finite disappointment meaning](https://inspiration.allwomenstalk.com/things-truly-worth-hoping-for/)
-- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
-- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
-- [harsh cable tv](https://lifestyle.allwomenstalk.com/how-technology-has-taken-over-our-lives/)
 - [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
+- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
+- [what does clutter say about a person](https://lifestyle.allwomenstalk.com/what-your-hidden-clutter-says-about-your-personality/)
+- [harsh cable tv](https://lifestyle.allwomenstalk.com/how-technology-has-taken-over-our-lives/)
+- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
+- [we must accept finite disappointment meaning](https://inspiration.allwomenstalk.com/things-truly-worth-hoping-for/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 - [8 Things Not to Worry about in Your Twenties ...](https://lifestyle.allwomenstalk.com/things-not-to-worry-about-in-your-twenties/)
 

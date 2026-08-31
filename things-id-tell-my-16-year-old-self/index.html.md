@@ -42,16 +42,16 @@ As I think about this list, I realize it’s really not too late to take some of
 
 ## Related Posts
 
-- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
-- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
-- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
-- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
-- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
 - [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
-- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
 - [in what ways do you think we're similar](https://inspiration.allwomenstalk.com/interesting-ways-we-are-all-alike-that-will-make-you-smile/)
+- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
 - [the older i get the more i appreciate](https://inspiration.allwomenstalk.com/things-youll-appreciate-as-you-start-nearing-30/)
+- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
+- [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
+- [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
 - [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
+- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
+- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
 - [8 Vital Things Every Teenager Needs to Know ...](https://parenting.allwomenstalk.com/8-vital-things-every-teenager-needs-to-know/)
 - [7 Things Parents Should Know ...](https://parenting.allwomenstalk.com/7-things-parents-should-know/)
 

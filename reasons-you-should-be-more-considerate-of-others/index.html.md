@@ -42,15 +42,15 @@ I'm not normally one for sugary sweet posts, but I'm sick of barging past each o
 
 ## Related Posts
 
-- [the risk of love](https://love.allwomenstalk.com/reasons-relationships-are-worth-the-risk-of-getting-hurt/)
-- [indian single girl near me](https://love.allwomenstalk.com/perfect-responses-for-indian-girls-to-why-are-you-still-single/)
-- [why you shouldn't compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-not-to-compare-yourself-with-others/)
-- [funny excuses for not going to work](https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/)
 - [when he doesn't call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
-- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
-- [it's ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
-- [i don't want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
+- [why you shouldn't compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-not-to-compare-yourself-with-others/)
 - [will i ever find my soulmate](https://love.allwomenstalk.com/reasons-its-smart-not-to-hold-out-for-a-soulmate/)
+- [the risk of love](https://love.allwomenstalk.com/reasons-relationships-are-worth-the-risk-of-getting-hurt/)
+- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
+- [i don't want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
+- [funny excuses for not going to work](https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/)
+- [indian single girl near me](https://love.allwomenstalk.com/perfect-responses-for-indian-girls-to-why-are-you-still-single/)
+- [it's ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
 - [i lied about my age by 5 years](https://lifestyle.allwomenstalk.com/why-do-people-lie-about-their-age-here-are-reasons/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 - [7 Ways to Make a Difference in Someone's Life ...](https://allwomenstalk.com/7-ways-to-make-a-difference-in-someones-life/)

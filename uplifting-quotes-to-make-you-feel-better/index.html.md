@@ -80,16 +80,16 @@ Feel uplifted now? I sure hope so! Remember, that whatever it is you are dealing
 
 ## Related Posts
 
-- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
-- [paris riche le stylo smoky eye vegas](https://books.allwomenstalk.com/romantic-quotes-from-literary-classics/)
+- [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
+- [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
+- [when bad things happen quotes](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
+- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
 - [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
 - [wonderful inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-will-make-you-feel-beautiful/)
-- [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
-- [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
-- [lady gaga quote](https://inspiration.allwomenstalk.com/inspiring-quotes-from-lady-gaga-to-brighten-your-day/)
+- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
+- [paris riche le stylo smoky eye vegas](https://books.allwomenstalk.com/romantic-quotes-from-literary-classics/)
 - [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
-- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
-- [when bad things happen quotes](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
+- [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 - [8 Quotes to Boost Your Self Image ...](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
 

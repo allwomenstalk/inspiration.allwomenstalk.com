@@ -42,16 +42,16 @@ It can be difficult to learn to accept constructive criticism but it can also be
 
 ## Related Posts
 
-- [sailor senshi heights](https://inspiration.allwomenstalk.com/lessons-to-learn-from-sailor-moon-that-will-give-you-hope/)
-- [types of development](https://health.allwomenstalk.com/types-of-development-that-affect-you-as-you-grow/)
-- [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
+- [what makes a person indecisive](https://lifestyle.allwomenstalk.com/things-only-majorly-indecisive-individuals-understand/)
 - [different types of procrastination](https://lifestyle.allwomenstalk.com/very-common-types-of-procrastination/)
+- [lessons from disney](https://movies.allwomenstalk.com/life-lessons-to-learn-from-disney-villians/)
 - [websites to learn new skills](https://lifestyle.allwomenstalk.com/websites-that-will-teach-you-valuable-life-skills/)
 - [things that frustrate you at work](https://lifestyle.allwomenstalk.com/frustrating-things-that-come-with-a-leadership-position/)
+- [sailor senshi heights](https://inspiration.allwomenstalk.com/lessons-to-learn-from-sailor-moon-that-will-give-you-hope/)
+- [best gifts for introverts](https://lifestyle.allwomenstalk.com/things-introverts-will-never-tell-you-but-you-need-to-know/)
 - [learn the lesson and move on](https://inspiration.allwomenstalk.com/life-lessons-that-can-help-you-move-forward/)
 - [anger management lessons](https://inspiration.allwomenstalk.com/extremely-important-anger-management-lessons-no-one-should-miss/)
-- [what makes a person indecisive](https://lifestyle.allwomenstalk.com/things-only-majorly-indecisive-individuals-understand/)
-- [lessons from disney](https://movies.allwomenstalk.com/life-lessons-to-learn-from-disney-villians/)
+- [types of development](https://health.allwomenstalk.com/types-of-development-that-affect-you-as-you-grow/)
 - [7 Ways to Learn Your Insecurities ...](https://love.allwomenstalk.com/ways-to-learn-your-insecurities/)
 - [7 Tips on How to Deal with Rejection ...](https://love.allwomenstalk.com/tips-on-how-to-deal-with-rejection/)
 

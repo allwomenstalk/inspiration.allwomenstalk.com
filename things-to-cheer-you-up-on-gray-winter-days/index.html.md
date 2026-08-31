@@ -58,16 +58,16 @@ These are some things to cheer about on a gray winter day. What do you do to get
 
 ## Related Posts
 
-- [cat snow sculpture](https://lifestyle.allwomenstalk.com/works-of-art-created-in-snow/)
+- [cold weather dates](https://love.allwomenstalk.com/cold-weather-dates-youll-be-dying-to-go-on/)
+- [cooking spray frozen car doors](https://lifestyle.allwomenstalk.com/hacks-for-keeping-your-car-safe-in-the-snow/)
 - [olaf in real life](https://parenting.allwomenstalk.com/amazing-snowmen-you-should-try-and-recreate-with-the-kids-this-winter/)
+- [winter puns](https://funny.allwomenstalk.com/winter-themed-one-liners-for-pun-lovers/)
 - [things to do when it's cold outside with your boyf...](https://love.allwomenstalk.com/how-to-keep-your-love-hot-in-the-freezing-cold/)
 - [was kann man bei schönem wetter unternehmen](https://lifestyle.allwomenstalk.com/how-to-enjoy-the-nice-weather-when-youre-stuck-inside/)
+- [cat snow sculpture](https://lifestyle.allwomenstalk.com/works-of-art-created-in-snow/)
+- [snowman tire guy](https://parenting.allwomenstalk.com/do-you-want-to-build-a-snowman-heres-how/)
 - [cold weather flirty text](https://lifestyle.allwomenstalk.com/you-need-to-give-these-cold-weather-hobbies-a-chance/)
 - [clothes hacks](https://fashion.allwomenstalk.com/winter-clothing-hacks-that-will-help-you-survive-the-cold-weather/)
-- [snowman tire guy](https://parenting.allwomenstalk.com/do-you-want-to-build-a-snowman-heres-how/)
-- [cooking spray frozen car doors](https://lifestyle.allwomenstalk.com/hacks-for-keeping-your-car-safe-in-the-snow/)
-- [winter puns](https://funny.allwomenstalk.com/winter-themed-one-liners-for-pun-lovers/)
-- [cold weather dates](https://love.allwomenstalk.com/cold-weather-dates-youll-be-dying-to-go-on/)
 - [5 Things to Make You Laugh Today ...](https://allwomenstalk.com/5-things-to-make-you-laugh-today/)
 - [5 Grey Things That Will Make Your Day ...](https://allwomenstalk.com/5-grey-things-that-will-make-your-day/)
 

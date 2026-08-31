@@ -106,16 +106,16 @@ Do you think this is something you need to work on more?
 
 ## Related Posts
 
-- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
-- [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
-- [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
-- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
-- [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
-- [benchwarmers eating sunscreen](https://inspiration.allwomenstalk.com/ways-to-bring-control-to-your-life/)
-- [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
 - [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
-- [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [yoga sangha](https://fitness.allwomenstalk.com/how-to-find-your-yoga-sangha/)
+- [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
+- [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
 - [katie holmes upskirt](https://inspiration.allwomenstalk.com/what-you-should-do-differently-in/)
+- [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
+- [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [how to change your lifestyle](https://inspiration.allwomenstalk.com/ways-you-can-change-your-life-in-a-week/)
+- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
+- [benchwarmers eating sunscreen](https://inspiration.allwomenstalk.com/ways-to-bring-control-to-your-life/)
 - [9 Wonderfully Effective Ways to Boost Your Self-Es...](https://lifestyle.allwomenstalk.com/wonderfully-effective-ways-to-boost-your-self-esteem/)
 - [Ultra Important Ways to Respect Yourself ...](https://inspiration.allwomenstalk.com/ways-to-respect-yourself-and-have-others-do-the-same/)
 

@@ -44,15 +44,15 @@ Even though sometimes we all tend to be self-absorbed and to see things only fro
 
 ## Related Posts
 
-- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
-- [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
+- [st patrick's in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
 - [aldi tallahassee](https://food.allwomenstalk.com/reasons-to-shop-at-aldi-grocery-stores/)
-- [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
+- [are you 16 years old](https://teen.allwomenstalk.com/awesome-reasons-to-love-being-16/)
 - [why should i go to a liberal arts college](https://teen.allwomenstalk.com/reasons-to-go-to-a-liberal-arts-college/)
 - [i feel guilty spending money on myself](https://money.allwomenstalk.com/good-reasons-you-should-spend-money-on-yourself/)
+- [what does ra mean in college](https://lifestyle.allwomenstalk.com/reasons-to-become-an-ra-in-university/)
 - [why do i want to be an ra](https://money.allwomenstalk.com/reasons-being-a-resident-assistant-might-be-the-best-college-student-job/)
-- [st patrick's in ireland](https://travel.allwomenstalk.com/reasons-to-visit-ireland-for-st-patricks-day/)
 - [famous women's colleges](https://teen.allwomenstalk.com/reasons-to-go-to-a-womens-college/)
+- [badminton clubs](https://fitness.allwomenstalk.com/reasons-you-should-join-a-badminton-club/)
 - [benefits of being bilingual statistics](https://lifestyle.allwomenstalk.com/amazing-benefits-of-being-bilingual/)
 - [8 Intrinsically Wonderful Benefits of Helping Othe...](https://lifestyle.allwomenstalk.com/intrinsically-wonderful-benefits-of-helping-others/)
 - [7 Reasons Why Crying is Good for You ...](https://allwomenstalk.com/7-reasons-why-crying-is-good-for-you/)

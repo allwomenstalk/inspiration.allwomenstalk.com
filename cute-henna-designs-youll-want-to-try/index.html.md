@@ -56,16 +56,16 @@ Henna tattoos are great because you can decorate your body without committing to
 
 ## Related Posts
 
+- [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
 - [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
+- [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
+- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
+- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
+- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
+- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
+- [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
 - [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
 - [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
-- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
-- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
-- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
-- [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
-- [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
-- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
-- [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Evening Hairstyle Ideas to Try out ...](https://hair.allwomenstalk.com/evening-hairstyle-ideas-to-try-out/)
 

@@ -34,16 +34,16 @@ What's getting in the way of your happiness?
 
 ## Related Posts
 
-- [Stop Apologizing! 20 Things You Never Have to Say ...](https://inspiration.allwomenstalk.com/stop-apologizing-things-you-never-have-to-say-sorry-for/)
-- [20 things you learn too late in life](https://inspiration.allwomenstalk.com/life-lessons-people-often-learn-too-late/)
-- [20 life lessons](https://inspiration.allwomenstalk.com/life-lessons-to-learn-before-you-turn-20/)
 - [quotes for when you need a good cry](https://inspiration.allwomenstalk.com/things-that-show-you-are-strong-even-when-you-cry/)
-- [Moments in Life That Will Define You ...](https://inspiration.allwomenstalk.com/moments-in-life-that-will-define-you/)
 - [The Pain of Losing a Loved One ...](https://inspiration.allwomenstalk.com/the-pain-of-losing-a-loved-one/)
 - [Don't Underestimate How Gifted You Are ...](https://inspiration.allwomenstalk.com/dont-underestimate-how-gifted-you-are/)
-- [advice for your 20s](https://inspiration.allwomenstalk.com/the-most-sensible-advice-youll-receive-in-your-20s/)
 - [8 Ways the Nudge Theory Influences You without You...](https://lifestyle.allwomenstalk.com/ways-the-nudge-theory-influences-you-without-you-realizing-it/)
+- [20 things you learn too late in life](https://inspiration.allwomenstalk.com/life-lessons-people-often-learn-too-late/)
 - [6 Awesome Traits Successful Entrepreneurs Have ...](https://money.allwomenstalk.com/awesome-traits-successful-entrepreneurs-have/)
+- [Stop Apologizing! 20 Things You Never Have to Say ...](https://inspiration.allwomenstalk.com/stop-apologizing-things-you-never-have-to-say-sorry-for/)
+- [20 life lessons](https://inspiration.allwomenstalk.com/life-lessons-to-learn-before-you-turn-20/)
+- [advice for your 20s](https://inspiration.allwomenstalk.com/the-most-sensible-advice-youll-receive-in-your-20s/)
+- [Moments in Life That Will Define You ...](https://inspiration.allwomenstalk.com/moments-in-life-that-will-define-you/)
 - [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)
 

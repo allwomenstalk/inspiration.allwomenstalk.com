@@ -56,16 +56,16 @@ Because we live in a goal oriented society, it is important to take time to reme
 
 ## Related Posts
 
-- [narnia quotes](https://inspiration.allwomenstalk.com/best-quotes-by-c-s-lewis-the-creator-of-narnia/)
-- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
 - [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
-- [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
-- [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
-- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
-- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
 - [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
+- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
+- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
+- [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
+- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
+- [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
+- [narnia quotes](https://inspiration.allwomenstalk.com/best-quotes-by-c-s-lewis-the-creator-of-narnia/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 

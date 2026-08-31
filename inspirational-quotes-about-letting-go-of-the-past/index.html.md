@@ -68,16 +68,16 @@ You don't want to spend the present thinking about your past. It's not going to 
 
 ## Related Posts
 
-- [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
-- [accept where you are quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-learning-to-accept-yourself/)
-- [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
 - [don't stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
-- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
-- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
-- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
-- [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
-- [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
 - [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
+- [accept where you are quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-learning-to-accept-yourself/)
+- [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
+- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
+- [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
+- [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
+- [bill gates quote](https://inspiration.allwomenstalk.com/inspiring-bill-gates-quotes-that-will-teach-you-valuable-life-lessons/)
+- [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
+- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
 - [8 Tips for Forgetting the past ...](https://love.allwomenstalk.com/tips-for-forgetting-the-past/)
 - [8 Constructive Ways to Put the past behind You ...](https://lifestyle.allwomenstalk.com/constructive-ways-to-put-the-past-behind-you/)
 

@@ -42,15 +42,15 @@ These are 7 different responses you can use when you put your foot in your mouth
 
 ## Related Posts
 
-- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
-- [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
 - [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
+- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
 - [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
+- [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
 - [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
 - [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
 - [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
-- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
-- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
 - [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
 - [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
 - [10 Fun Things to do at Home ...](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home/)

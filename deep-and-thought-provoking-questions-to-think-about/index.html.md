@@ -42,15 +42,15 @@ There are two sides to all of these situations with their own pros and cons, but
 
 ## Related Posts
 
-- [as i've gotten older](https://lifestyle.allwomenstalk.com/lessons-ive-learnt-as-ive-gotten-older/)
-- [daddy lessons beyonce meaning](https://celebs.allwomenstalk.com/things-we-can-all-learn-from-beyonce/)
-- [don't let the past steal your present](https://inspiration.allwomenstalk.com/habits-that-steal-your-happiness-that-you-never-considered-before/)
 - [good things to be addicted to](https://lifestyle.allwomenstalk.com/everyday-things-people-become-addicted-to-easily/)
 - [small charities that need help](https://lifestyle.allwomenstalk.com/lesser-known-charities-youll-want-to-be-a-part-of/)
+- [don't let the past steal your present](https://inspiration.allwomenstalk.com/habits-that-steal-your-happiness-that-you-never-considered-before/)
 - [how to get magical powers](https://lifestyle.allwomenstalk.com/times-when-you-think-you-might-just-have-magical-powers/)
 - [ben franklin almanac quotes](https://lifestyle.allwomenstalk.com/lessons-from-benjamin-franklin-that-are-still-relevant-today/)
-- [successful athlete](https://inspiration.allwomenstalk.com/secrets-of-successful-athletes-we-can-all-learn-from/)
+- [daddy lessons beyonce meaning](https://celebs.allwomenstalk.com/things-we-can-all-learn-from-beyonce/)
+- [as i've gotten older](https://lifestyle.allwomenstalk.com/lessons-ive-learnt-as-ive-gotten-older/)
 - [i have the following realities in life](https://lifestyle.allwomenstalk.com/harsh-realities-of-life-that-you-have-to-come-to-terms-with/)
+- [successful athlete](https://inspiration.allwomenstalk.com/secrets-of-successful-athletes-we-can-all-learn-from/)
 - [joan collins marriages](https://celebs.allwomenstalk.com/important-life-lessons-to-learn-from-joan-collins/)
 - [7 Parenting Questions Answered ...](https://parenting.allwomenstalk.com/parenting-questions-answered/)
 - [7 People to Ask for Advice ...](https://lifestyle.allwomenstalk.com/people-to-ask-for-advice/)

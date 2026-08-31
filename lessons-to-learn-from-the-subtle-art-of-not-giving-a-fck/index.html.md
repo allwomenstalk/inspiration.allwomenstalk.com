@@ -48,15 +48,15 @@ It might sound morbid, but the fact of the matter is that we are all on the same
 
 ## Related Posts
 
-- [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
-- [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-psychology-behind-gossip/)
 - [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
-- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
-- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
-- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
 - [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
+- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
+- [sad depressing memes](https://funny.allwomenstalk.com/depression-memes/)
+- [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
+- [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
 - [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
+- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
 - [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
 - [9 Ways to Stay True to Yourself ...](https://allwomenstalk.com/9-ways-to-stay-true-to-yourself/)
 - [9 Steps to Mature Behaviour ...](https://allwomenstalk.com/9-steps-to-mature-behaviour/)

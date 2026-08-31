@@ -54,15 +54,15 @@ These are my favorite quotes about change, which are yours? Maybe you know some 
 
 ## Related Posts
 
-- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
 - [life is but a journey quote](https://inspiration.allwomenstalk.com/quotes-to-remind-you-that-life-is-a-journey/)
-- [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
-- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
 - [celebrity quotes short](https://beauty.allwomenstalk.com/inspiring-celebrity-quotes-about-beauty/)
-- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
-- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
-- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
 - [narnia quotes](https://inspiration.allwomenstalk.com/best-quotes-by-c-s-lewis-the-creator-of-narnia/)
+- [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
+- [quotes of khalil gibran](https://inspiration.allwomenstalk.com/poetic-khalil-gibran-quotes-about-life/)
+- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
+- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
+- [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
+- [don't believe in everything you hear quotes](https://music.allwomenstalk.com/best-tupac-quotes-which-show-he-was-a-wise-man/)
 - [geraldine ferraro quotes](https://inspiration.allwomenstalk.com/wonderful-and-strong-quotes-about-feminism/)
 - [7 Inspiring Career Quotes ...](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
 - [7 Great Inspirational Quotes about following Your ...](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)

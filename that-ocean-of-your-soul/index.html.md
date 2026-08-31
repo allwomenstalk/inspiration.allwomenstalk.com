@@ -39,16 +39,16 @@ This poem is so moving it relates to you in some ways, it may broad to some peop
 
 ## Related Posts
 
-- [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
-- [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
-- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
-- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
-- [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
-- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
 - [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
+- [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
+- [top ten stressful life events](https://lifestyle.allwomenstalk.com/the-most-stressful-events-youll-face-in-life/)
+- [habit breaker bracelet](https://inspiration.allwomenstalk.com/habits-to-learn-from-self-made-people/)
+- [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
+- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
+- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
+- [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
 - [wemmmmm](https://inspiration.allwomenstalk.com/hacks-for-making-difficult-decisions/)
 - [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
-- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [9 Best Surf Spots in the World ...](https://travel.allwomenstalk.com/best-surf-spots-in-the-world/)
 - [There is Something about Beach ...](https://allwomenstalk.com/there-is-something-about-beach/)
 

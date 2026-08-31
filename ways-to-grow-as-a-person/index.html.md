@@ -42,16 +42,16 @@ No matter how perfect you think you are, there's always room to grow. Are you a 
 
 ## Related Posts
 
-- [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
-- [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
-- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
+- [7 Ways Not Giving a Damn Will Make You Happier ...](https://funny.allwomenstalk.com/ways-not-giving-a-damn-will-make-you-happier/)
+- [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
 - [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
+- [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
+- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
+- [how to respond positively](https://inspiration.allwomenstalk.com/positive-responses-that-will-turn-your-life-around/)
 - [how to give back to your community](https://lifestyle.allwomenstalk.com/ways-to-give-back-to-your-community/)
+- [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
 - [short motivational mantras](https://inspiration.allwomenstalk.com/motivational-mantras-to-repeat-daily/)
 - [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
-- [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
-- [how to respond positively](https://inspiration.allwomenstalk.com/positive-responses-that-will-turn-your-life-around/)
-- [7 Ways Not Giving a Damn Will Make You Happier ...](https://funny.allwomenstalk.com/ways-not-giving-a-damn-will-make-you-happier/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 - [7 Ways to Make New Friends as an Adult ...](https://lifestyle.allwomenstalk.com/ways-to-make-new-friends-as-an-adult/)
 

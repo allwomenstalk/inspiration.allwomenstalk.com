@@ -98,16 +98,16 @@ See, we really do have a lot in common. I'm sure you can think of other ways we 
 
 ## Related Posts
 
-- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
-- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
-- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
-- [why am i scared of hard work](https://lifestyle.allwomenstalk.com/characteristics-of-successful-people/)
-- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
+- [skills to learn before 20](https://inspiration.allwomenstalk.com/lifesaving-skills-to-learn-before-you-reach-20/)
 - [what is the difference between introverts and extr...](https://lifestyle.allwomenstalk.com/differences-between-introverts-and-extroverts-that-are-eyeopening/)
 - [benefits of making mistakes](https://lifestyle.allwomenstalk.com/reasons-you-need-to-make-mistakes-regularly/)
 - [you can be proud of yourself](https://inspiration.allwomenstalk.com/wonderful-things-about-yourself-that-you-should-be-proud-of/)
+- [animal shaped phone cases](https://lifestyle.allwomenstalk.com/things-your-cell-phone-case-says-about-you/)
+- [paris smoky timeless](https://inspiration.allwomenstalk.com/timeless-pieces-of-advice-that-anyone-can-use-no-matter-what-your-age/)
+- [popular experiments](https://lifestyle.allwomenstalk.com/famous-psychology-experiments-that-showed-us-so-much-about-society/)
 - [friendship traits](https://lifestyle.allwomenstalk.com/traits-that-will-help-you-make-and-keep-friends/)
-- [skills to learn before 20](https://inspiration.allwomenstalk.com/lifesaving-skills-to-learn-before-you-reach-20/)
+- [why am i scared of hard work](https://lifestyle.allwomenstalk.com/characteristics-of-successful-people/)
+- [values and principles in life](https://inspiration.allwomenstalk.com/principles-that-you-should-live-by-and-always-uphold/)
 - [5 Things to Make You Smile ...](https://allwomenstalk.com/5-things-to-make-you-smile/)
 - [5 Things to Make You Smile ...](https://allwomenstalk.com/5-things-to-make-you-smile-2/)
 

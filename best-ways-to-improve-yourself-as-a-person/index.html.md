@@ -42,16 +42,16 @@ All of these steps to self-improvement may sound way too cliché for some, but t
 
 ## Related Posts
 
-- [lifelong happiness](https://inspiration.allwomenstalk.com/secrets-to-lifelong-happiness-that-will-transform-you/)
-- [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
 - [weight loss vision board ideas](https://lifestyle.allwomenstalk.com/steps-to-creating-your-perfect-vision-board/)
 - [make people's lives better](https://inspiration.allwomenstalk.com/things-you-can-do-to-improve-the-lives-of-others/)
-- [why planner is important](https://inspiration.allwomenstalk.com/reasons-to-use-a-daily-planner-and-what-it-can-do-for-you/)
-- [a good conversationalist](https://lifestyle.allwomenstalk.com/great-ways-to-become-a-great-conversationalist/)
-- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
+- [lifelong happiness](https://inspiration.allwomenstalk.com/secrets-to-lifelong-happiness-that-will-transform-you/)
 - [how to be quick in everything](https://lifestyle.allwomenstalk.com/easy-ways-to-be-better-at-everything/)
-- [leave yesterday behind](https://lifestyle.allwomenstalk.com/ways-to-jumpstart-your-day-and-leave-yesterday-behind/)
+- [why planner is important](https://inspiration.allwomenstalk.com/reasons-to-use-a-daily-planner-and-what-it-can-do-for-you/)
 - [regain control of my life](https://inspiration.allwomenstalk.com/ways-to-take-control-of-your-life/)
+- [leave yesterday behind](https://lifestyle.allwomenstalk.com/ways-to-jumpstart-your-day-and-leave-yesterday-behind/)
+- [a good conversationalist](https://lifestyle.allwomenstalk.com/great-ways-to-become-a-great-conversationalist/)
+- [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
+- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [7 Ways to Feel Better about Yourself ...](https://inspiration.allwomenstalk.com/ways-to-feel-better-about-yourself-2/)
 

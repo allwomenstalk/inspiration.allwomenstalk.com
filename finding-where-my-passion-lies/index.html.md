@@ -31,14 +31,14 @@ Have you ever thought that somehow or sometime in your life that you are this po
 
 ## Related Posts
 
-- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
-- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
-- [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
-- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
 - [what is a life affirming strategy](https://inspiration.allwomenstalk.com/life-affirming-rituals-to-adopt/)
+- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
+- [habits to be more productive](https://lifestyle.allwomenstalk.com/healthy-habits-to-be-more-productive/)
+- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
 - [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
 - [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
-- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
+- [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
+- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
 - [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
 - [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
 - [Finding Peace of Mind ...](https://allwomenstalk.com/finding-peace-of-mind-in-2021/)

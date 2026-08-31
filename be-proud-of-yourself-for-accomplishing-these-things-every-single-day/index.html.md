@@ -42,15 +42,15 @@ Even when you think you spent your day doing nothing worthwhile, you actually ac
 
 ## Related Posts
 
-- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
-- [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
-- [don't be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
-- [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
-- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
-- [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
 - [boost spirits](https://lifestyle.allwomenstalk.com/simple-yet-incredible-ways-to-boost-a-friends-spirit/)
-- [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
+- [inspirational articles for college magazine](https://books.allwomenstalk.com/motivational-magazines-thatll-make-you-feel-good/)
+- [control your own mind](https://inspiration.allwomenstalk.com/how-to-be-in-total-control-of-your-mind/)
+- [lifestyle hack](https://lifestyle.allwomenstalk.com/lifestyle-hacks-that-will-totally-save-your-life/)
+- [collector lifestyle](https://lifestyle.allwomenstalk.com/indulge-your-passion-how-to-become-a-collector/)
 - [how to make the most of your twenties](https://lifestyle.allwomenstalk.com/ways-to-make-the-most-of-your-20s/)
+- [ive lost control of my life](https://inspiration.allwomenstalk.com/what-you-can-do-to-take-control-of-your-life/)
+- [dreamlife risen coffee](https://inspiration.allwomenstalk.com/stepping-stones-to-living-your-dream-life/)
+- [don't be a quitter](https://inspiration.allwomenstalk.com/dont-be-a-quitter-tips-to-persevere-through-anything-you-do/)
 - [feeling like you have no purpose](https://inspiration.allwomenstalk.com/ways-to-start-feeling-like-your-life-has-a-purpose/)
 - [10 Things You Should do Every Day ...](https://allwomenstalk.com/10-things-you-should-do-every-day/)
 - [7 Ways to Raise Your Self-Esteem ...](https://allwomenstalk.com/7-ways-to-raise-your-self-esteem/)

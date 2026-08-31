@@ -16,16 +16,16 @@ So sweet, right? How do you help give during the holiday season?
 
 ## Related Posts
 
-- [what to do when someone gives you a gift you don't...](https://inspiration.allwomenstalk.com/things-to-do-with-a-christmas-gift-you-dont-want/)
-- [Snag a Great Gift for Your Mom for under $25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
-- [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
-- [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
 - [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
-- [gift ideas for little girls](https://lifestyle.allwomenstalk.com/gift-ideas-for-little-girls/)
 - [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
 - [15 Holiday Gifts for Your Boyfriend ...](https://love.allwomenstalk.com/holiday-gifts-for-your-boyfriend/)
-- [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)
+- [what to do when someone gives you a gift you don't...](https://inspiration.allwomenstalk.com/things-to-do-with-a-christmas-gift-you-dont-want/)
+- [gift ideas for little girls](https://lifestyle.allwomenstalk.com/gift-ideas-for-little-girls/)
 - [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
+- [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
+- [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
+- [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)
+- [Snag a Great Gift for Your Mom for under $25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
 - [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
 - [Vendor Spotlight: the Favour Shoppe ...](https://wedding.allwomenstalk.com/vendor-spotlight-the-favour-shoppe/)
 

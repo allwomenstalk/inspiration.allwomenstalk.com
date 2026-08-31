@@ -63,13 +63,13 @@ Live life passionately, take risks and challenge yourself in healthy ways. Be yo
 ## Related Posts
 
 - [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
-- [giving up something you love](https://inspiration.allwomenstalk.com/ariana-grande-quotes-for-women-who-need-a-confidence-boost/)
-- [reassuring love quotes for her](https://love.allwomenstalk.com/reassuring-quotes-for-girls-who-have-never-been-in-love/)
-- [judgemental quotes](https://lifestyle.allwomenstalk.com/quotes-for-creative-girls-who-cant-get-enough-of-tattoos/)
-- [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
 - [meaningful mottos](https://inspiration.allwomenstalk.com/ways-to-live-your-life-for-girls-who-love-inspiration/)
-- [you're your you're difference](https://lifestyle.allwomenstalk.com/quotes-that-english-majors-everywhere-will-adore/)
 - [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
+- [giving up something you love](https://inspiration.allwomenstalk.com/ariana-grande-quotes-for-women-who-need-a-confidence-boost/)
+- [you're your you're difference](https://lifestyle.allwomenstalk.com/quotes-that-english-majors-everywhere-will-adore/)
+- [reassuring love quotes for her](https://love.allwomenstalk.com/reassuring-quotes-for-girls-who-have-never-been-in-love/)
+- [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
+- [judgemental quotes](https://lifestyle.allwomenstalk.com/quotes-for-creative-girls-who-cant-get-enough-of-tattoos/)
 - [nicki minaj quotes songs](https://inspiration.allwomenstalk.com/nicki-minaj-quotes-that-are-a-little-too-real/)
 - [to thy own self be true tattoo](https://lifestyle.allwomenstalk.com/quote-tattoos-that-will-change-your-life/)
 - [8 Things That Really Inspire Me ...](https://allwomenstalk.com/8-things-that-really-inspire-me/)

@@ -42,16 +42,16 @@ It’s not so easy dealing with all kinds of issues from your past, especially i
 
 ## Related Posts
 
-- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
 - [misconceptions about me](https://teen.allwomenstalk.com/common-misconceptions-about-teenagers-today/)
-- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [misconceptions of introverts](https://lifestyle.allwomenstalk.com/very-popular-myths-about-introverts-that-arent-true/)
 - [what's your favourite](https://food.allwomenstalk.com/things-your-cup-of-tea-might-say-about-your-personality/)
+- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [teenage worries](https://teen.allwomenstalk.com/top-things-teens-worry-about/)
+- [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
 - [gift for forgiveness](https://inspiration.allwomenstalk.com/wonderful-gifts-of-forgiveness-that-you-should-always-remember/)
 - [the telltale signs of a highly sensitive person](https://lifestyle.allwomenstalk.com/things-highly-sensitive-people-do-differently/)
-- [misconceptions of happiness](https://inspiration.allwomenstalk.com/happiness-myths-that-could-be-holding-you-back/)
 - [mom was right](https://parenting.allwomenstalk.com/times-your-mother-was-right/)
-- [body language mistakes](https://lifestyle.allwomenstalk.com/body-language-mistakes-you-may-be-making/)
+- [shadow questions to ask yourself](https://inspiration.allwomenstalk.com/profound-questions-to-ask-yourself-in-life/)
 - [7 Important Things You Can do to Free Yourself fro...](https://inspiration.allwomenstalk.com/important-things-you-can-do-to-free-yourself-from-negative-emotions/)
 - [Efficient Ways to Increase Your Emotional Intellig...](https://inspiration.allwomenstalk.com/very-efficient-ways-to-raise-your-emotional-intelligence/)
 

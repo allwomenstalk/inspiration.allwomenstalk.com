@@ -54,15 +54,15 @@ Taking pride in yourself isn't about being arrogant; it's about acknowledging yo
 
 ## Related Posts
 
-- [how to spread positivity](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
-- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
-- [being a strong independent woman](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-independent-woman/)
-- [deruking classy lady](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
-- [Girl Time: Here's What You Can do Together to Get ...](https://inspiration.allwomenstalk.com/girl-time-heres-what-you-can-do-together-to-get-your-mind-off-boys/)
-- [jessica alba tactics](https://inspiration.allwomenstalk.com/wait-til-you-try-these-life-tips-from-jessica-alba/)
 - [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
+- [Girl Time: Here's What You Can do Together to Get ...](https://inspiration.allwomenstalk.com/girl-time-heres-what-you-can-do-together-to-get-your-mind-off-boys/)
+- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
+- [how to spread positivity](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
 - [things every woman should own](https://inspiration.allwomenstalk.com/things-every-girl-should-do-at-least-once-in-her-life/)
 - [what should every girl have in her room](https://lifestyle.allwomenstalk.com/little-things-every-woman-needs-in-her-apartment/)
+- [jessica alba tactics](https://inspiration.allwomenstalk.com/wait-til-you-try-these-life-tips-from-jessica-alba/)
+- [being a strong independent woman](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-independent-woman/)
+- [deruking classy lady](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
 - [independant girls](https://inspiration.allwomenstalk.com/forget-relationship-goals-here-are-some-independent-girl-goals/)
 - [10 Ways to Make Yourself Feel Happier Every Day .....](https://allwomenstalk.com/10-ways-to-make-yourself-feel-happier-every-day/)
 - [10 Things That Will Make You Happy ...](https://allwomenstalk.com/10-things-that-will-make-you-happy/)

@@ -56,16 +56,16 @@ Life isn't about being comfortable, it's about taking a journey through many sit
 
 ## Related Posts
 
-- [reasons to have a tv in the bedroom](https://lifestyle.allwomenstalk.com/reasons-to-get-the-tv-out-of-your-bedroom/)
-- [pros of a fall wedding](https://wedding.allwomenstalk.com/reasons-why-you-should-get-married-in-the-fall/)
-- [solo date meaning in english](https://lifestyle.allwomenstalk.com/life-changing-reasons-to-have-a-solo-date-night/)
 - [beautiful in green](https://lifestyle.allwomenstalk.com/reasons-why-green-is-gorgeous/)
 - [do you enjoy listening to music while exercising? ...](https://fitness.allwomenstalk.com/reasons-to-listen-to-music-while-you-exercise/)
 - [sfx artist salary](https://money.allwomenstalk.com/awesome-reasons-why-you-should-become-a-special-effects-artist/)
-- [inner artist](https://inspiration.allwomenstalk.com/enriching-reasons-to-embrace-your-inner-artist/)
-- [prioritizing fitness](https://fitness.allwomenstalk.com/reasons-students-should-prioritize-fitness/)
-- [colleges close to home](https://teen.allwomenstalk.com/reasons-to-attend-a-college-close-to-home/)
+- [solo date meaning in english](https://lifestyle.allwomenstalk.com/life-changing-reasons-to-have-a-solo-date-night/)
 - [benefits of staying in your comfort zone](https://inspiration.allwomenstalk.com/wonderful-benefits-that-stepping-out-of-your-comfort-zone-will-bring/)
+- [pros of a fall wedding](https://wedding.allwomenstalk.com/reasons-why-you-should-get-married-in-the-fall/)
+- [colleges close to home](https://teen.allwomenstalk.com/reasons-to-attend-a-college-close-to-home/)
+- [prioritizing fitness](https://fitness.allwomenstalk.com/reasons-students-should-prioritize-fitness/)
+- [reasons to have a tv in the bedroom](https://lifestyle.allwomenstalk.com/reasons-to-get-the-tv-out-of-your-bedroom/)
+- [inner artist](https://inspiration.allwomenstalk.com/enriching-reasons-to-embrace-your-inner-artist/)
 - [10 Reasons to Move and Start over ...](https://lifestyle.allwomenstalk.com/reasons-to-move-and-start-over/)
 - [7 Reasons to Make a Career Change ...](https://allwomenstalk.com/7-reasons-to-make-a-career-change/)
 

@@ -42,14 +42,14 @@ So now that you know the best daring things to do, are you going to go try any? 
 
 ## Related Posts
 
-- [how to celebrate your irish heritage](https://lifestyle.allwomenstalk.com/ways-to-celebrate-being-irish-on-st-patricks-day/)
 - [things to do with spare time](https://inspiration.allwomenstalk.com/productive-things-to-do-in-your-free-time/)
-- [how to act surprised at a surprise party](https://lifestyle.allwomenstalk.com/things-to-consider-when-planning-a-surprise-party/)
-- [family dates](https://parenting.allwomenstalk.com/fun-family-dates-at-home/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/50s-party-ideas/)
+- [family dates](https://parenting.allwomenstalk.com/fun-family-dates-at-home/)
+- [how to celebrate your irish heritage](https://lifestyle.allwomenstalk.com/ways-to-celebrate-being-irish-on-st-patricks-day/)
 - [wholesome culture clothing](https://lifestyle.allwomenstalk.com/amazing-and-wholesome-ways-to-experience-indian-culture/)
-- [what do you think is the best way to keep in touch...](https://lifestyle.allwomenstalk.com/ways-to-keep-in-touch-with-friends/)
+- [how to act surprised at a surprise party](https://lifestyle.allwomenstalk.com/things-to-consider-when-planning-a-surprise-party/)
 - [fun educational websites for kids](https://parenting.allwomenstalk.com/fun-websites-for-kids/)
+- [what do you think is the best way to keep in touch...](https://lifestyle.allwomenstalk.com/ways-to-keep-in-touch-with-friends/)
 - [funny gender reveal for husband](https://parenting.allwomenstalk.com/gender-reveal-party-ideas-youll-love/)
 - [how to celebrate independence day](https://lifestyle.allwomenstalk.com/memorable-ways-to-celebrate-the-fourth-of-july/)
 - [7 Most Fun Summer Activities ...](https://allwomenstalk.com/7-most-fun-summer-activities/)

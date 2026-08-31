@@ -68,13 +68,13 @@ Have you ever seen a sweet letter in the snow? Or carved your own message during
 
 ## Related Posts
 
-- [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
-- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
-- [a quote from lupita nyong'o](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
 - [quotes about self appreciation](https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/)
-- [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
-- [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
 - [friendship is certainly the finest balm](https://inspiration.allwomenstalk.com/jane-austen-quotes-thatll-give-you-life-changing-advice/)
+- [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
+- [quotes about chasing people](https://celebs.allwomenstalk.com/adele-quotes-thatll-skyrocket-your-confidence/)
+- [a quote from lupita nyong'o](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
+- [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
+- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
 - [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
 - [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
 - [powerful toni morrison quotes](https://inspiration.allwomenstalk.com/powerful-toni-morrison-quotes-to-push-you-through-life/)

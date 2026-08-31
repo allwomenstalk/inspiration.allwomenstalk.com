@@ -69,16 +69,16 @@ I have always been moved by the thought of these majestic and free beings and wh
 
 ## Related Posts
 
-- [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
-- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
-- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
-- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
-- [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
-- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
+- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
 - [proverbs of life](https://inspiration.allwomenstalk.com/meaningful-and-beautiful-proverbs-to-live-by/)
 - [fabulous phrases](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/)
-- [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
 - [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
+- [sayings related to education](https://inspiration.allwomenstalk.com/inspiring-quotes-that-explain-the-importance-of-education/)
+- [ellen degeneres quotes be kind to one another](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
+- [and in that moment we were infinite](https://books.allwomenstalk.com/meaningful-quotes-from-perks-of-being-a-wallflower/)
+- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
+- [friends tv show quotes short](https://movies.allwomenstalk.com/funny-and-unique-quotes-from-friends-to-remember/)
+- [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 

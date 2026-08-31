@@ -107,16 +107,16 @@ While I know this isn't nearly all the Latin phrases ever uttered, these are a s
 
 ## Related Posts
 
-- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
-- [spicy memes for couples](https://funny.allwomenstalk.com/spicy-memes/)
-- [The Instinctiv Application 'Anticipates' What You ...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
-- [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
 - [funny and dirty memes](https://funny.allwomenstalk.com/naughty-memes/)
-- [bad dark jokes](https://funny.allwomenstalk.com/dark-humor-jokes/)
+- [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
+- [The Instinctiv Application 'Anticipates' What You ...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
 - [memes to make you laugh](https://funny.allwomenstalk.com/relatable-memes/)
 - [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
+- [spicy memes for couples](https://funny.allwomenstalk.com/spicy-memes/)
 - [memes about being drunk](https://funny.allwomenstalk.com/drunk-memes/)
+- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
 - [cheezy pick up](https://funny.allwomenstalk.com/cheesy-pick-up-lines/)
+- [bad dark jokes](https://funny.allwomenstalk.com/dark-humor-jokes/)
 - [Liven up Your Conversations with the Silliest Soun...](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
 - [The Wisest Sayings from Mothers Everywhere ...](https://funny.allwomenstalk.com/wise-mom-sayings-that-you-cant-disagree-with/)
 

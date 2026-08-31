@@ -42,16 +42,16 @@ Your jealousy doesn't have to destroy you. You can use it as a learning tool in 
 
 ## Related Posts
 
-- [peace offering ideas](https://love.allwomenstalk.com/how-to-apologize-without-actually-saying-youre-sorry/)
-- [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
-- [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
-- [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
-- [i get along with people](https://lifestyle.allwomenstalk.com/how-to-handle-someone-you-just-cant-get-along-with/)
-- [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
 - [non-confrontational meaning](https://love.allwomenstalk.com/tips-for-talking-to-your-non-confrontational-partner/)
-- [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
+- [how do i toughen up](https://inspiration.allwomenstalk.com/too-sensitive-ways-to-toughen-up/)
+- [peace offering ideas](https://love.allwomenstalk.com/how-to-apologize-without-actually-saying-youre-sorry/)
 - [friend lie](https://lifestyle.allwomenstalk.com/how-to-deal-with-your-friend-lying-to-you/)
+- [it's not you it's me truth](https://love.allwomenstalk.com/when-its-not-you-its-me-is-the-truth/)
+- [taking advantage meaning](https://love.allwomenstalk.com/what-should-you-do-if-your-partner-takes-advantage-of-you/)
 - [friends sabotaging relationships](https://lifestyle.allwomenstalk.com/ways-youre-sabotaging-your-friendships/)
+- [how to get over the awkward stage in a relationshi...](https://love.allwomenstalk.com/ways-to-avoid-the-awkward-tension-after-an-argument/)
+- [how to stay away from drama](https://lifestyle.allwomenstalk.com/ways-to-avoid-drama-on-your-social-media-accounts/)
+- [i get along with people](https://lifestyle.allwomenstalk.com/how-to-handle-someone-you-just-cant-get-along-with/)
 - [9 Ways to Be More Positive ...](https://allwomenstalk.com/ways-to-be-more-positive/)
 - [9 Wonderfully Effective Ways to Boost Your Self-Es...](https://lifestyle.allwomenstalk.com/wonderfully-effective-ways-to-boost-your-self-esteem/)
 

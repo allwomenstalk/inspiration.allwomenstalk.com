@@ -42,15 +42,15 @@ At some point or another, everyone has to deal with multiple problems happening 
 
 ## Related Posts
 
-- [websites like lumosity](https://lifestyle.allwomenstalk.com/websites-that-will-stimulate-your-brain/)
-- [how to cope with christmas alone](https://health.allwomenstalk.com/ways-to-cope-with-being-alone-at-christmas/)
-- [stress management infographics](https://health.allwomenstalk.com/best-infographics-to-help-you-reduce-your-stress-levels/)
-- [Here Are the 7 Best Ways to Give Your Brain a Work...](https://health.allwomenstalk.com/here-are-the-best-ways-to-give-your-brain-a-workout/)
-- [sad websites](https://health.allwomenstalk.com/websites-to-visit-if-youre-suffering-from-depression/)
 - [cat relaxing gif](https://health.allwomenstalk.com/feeling-stressed-these-relaxing-gifs-will-calm-you-down/)
-- [writer's block exercises](https://lifestyle.allwomenstalk.com/effective-exercises-to-overcome-writers-block/)
-- [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
 - [don't make me angry quote](https://inspiration.allwomenstalk.com/quotes-to-help-you-deal-with-your-anger-in-a-healthier-way/)
+- [how to cope with christmas alone](https://health.allwomenstalk.com/ways-to-cope-with-being-alone-at-christmas/)
+- [sad websites](https://health.allwomenstalk.com/websites-to-visit-if-youre-suffering-from-depression/)
+- [websites like lumosity](https://lifestyle.allwomenstalk.com/websites-that-will-stimulate-your-brain/)
+- [stress management infographics](https://health.allwomenstalk.com/best-infographics-to-help-you-reduce-your-stress-levels/)
+- [writer's block exercises](https://lifestyle.allwomenstalk.com/effective-exercises-to-overcome-writers-block/)
+- [Here Are the 7 Best Ways to Give Your Brain a Work...](https://health.allwomenstalk.com/here-are-the-best-ways-to-give-your-brain-a-workout/)
+- [how to be more relaxed and laid back](https://lifestyle.allwomenstalk.com/tips-to-become-a-more-laid-back-person/)
 - [things to do at night instead of watching tv](https://lifestyle.allwomenstalk.com/ways-to-relax-at-night-besides-watching-tv/)
 - [7 Ways to Get out of a Funk ...](https://allwomenstalk.com/7-ways-to-get-out-of-a-funk/)
 - [7 Ways to Deal with a Bad Day ...](https://allwomenstalk.com/7-ways-to-deal-with-a-bad-day/)

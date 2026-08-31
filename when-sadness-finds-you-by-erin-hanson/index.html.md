@@ -44,16 +44,16 @@ You can never expect anything from people, even the ones who love you have their
 
 ## Related Posts
 
-- [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
-- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
-- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
-- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
-- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
 - [types of people in a class](https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/)
-- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
-- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
-- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
+- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
 - [10 life lessons from buddha](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-buddha-for-a-better-life/)
+- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
+- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
+- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
+- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
+- [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
+- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
+- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
 - [Heartaches ...](https://allwomenstalk.com/heartaches/)
 - [16 Songs That Give Me a Bittersweet Feeling ...](https://allwomenstalk.com/16-songs-that-give-me-a-bittersweet-feeling/)
 

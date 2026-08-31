@@ -45,15 +45,15 @@ Just remember that in the end it’s your decision and your choice. Look out for
 ## Related Posts
 
 - [lessons for girls](https://inspiration.allwomenstalk.com/important-life-lessons/)
-- [learn how to stand up for yourself](https://inspiration.allwomenstalk.com/why-you-need-to-stand-up-for-yourself/)
-- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
+- [Why You Need to Learn to Trust Yourself for Girls ...](https://inspiration.allwomenstalk.com/why-you-need-to-learn-to-trust-yourself/)
 - [reading hobby quotes](https://books.allwomenstalk.com/ways-to-read-more/)
 - [chic comfort zone](https://inspiration.allwomenstalk.com/ways-to-break-out-of-your-comfort-zone/)
-- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
+- [how to get emotional stability](https://inspiration.allwomenstalk.com/how-to-gain-emotional-stability/)
 - [add facebook events to google calendar](https://apps.allwomenstalk.com/how-to-sync-google-calendar-with-facebook/)
-- [benefits of seeing a psychologist](https://health.allwomenstalk.com/benefits-of-seeing-a-therapist/)
-- [Why You Need to Learn to Trust Yourself for Girls ...](https://inspiration.allwomenstalk.com/why-you-need-to-learn-to-trust-yourself/)
 - [open2study free courses](https://money.allwomenstalk.com/free-online-courses/)
+- [learn how to stand up for yourself](https://inspiration.allwomenstalk.com/why-you-need-to-stand-up-for-yourself/)
+- [survive the holidays](https://lifestyle.allwomenstalk.com/ways-to-survive-the-holidays-when-youre-single/)
+- [benefits of seeing a psychologist](https://health.allwomenstalk.com/benefits-of-seeing-a-therapist/)
 - [How do You Cope when You Can't Be Close to Your Mo...](https://inspiration.allwomenstalk.com/helpful-pieces-of-advice-when-you-cant-be-close-to-your-mom/)
 - [How to Avoid Losing Yourself in a Relationship ...](https://love.allwomenstalk.com/ways-to-not-lose-yourself-in-a-relationship-2/)
 

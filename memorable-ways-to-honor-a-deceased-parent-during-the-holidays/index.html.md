@@ -51,15 +51,15 @@ If you’ve ever lost a parent, you know how hard it can be this time of year. I
 ## Related Posts
 
 - [awful gifts](https://lifestyle.allwomenstalk.com/of-the-worst-gifts-to-give-your-friends/)
-- [valentine's day gift ideas for daughter](https://parenting.allwomenstalk.com/valentines-day-gifts-perfect-for-single-moms/)
-- [coolest baby shower gifts](https://parenting.allwomenstalk.com/unique-baby-shower-gift-ideas-you-can-give/)
-- [christmas traditions to start with baby](https://lifestyle.allwomenstalk.com/absolutely-unique-christmas-traditions-to-start-with-your-family/)
 - [personalized birthday gift for best friend](https://lifestyle.allwomenstalk.com/personalized-birthday-presents-for-your-best-friend/)
 - [weird christmas traditions](https://lifestyle.allwomenstalk.com/unusual-christmas-traditions-that-you-may-not-have-heard-of/)
+- [valentine's day gift ideas for daughter](https://parenting.allwomenstalk.com/valentines-day-gifts-perfect-for-single-moms/)
+- [christmas traditions to start with baby](https://lifestyle.allwomenstalk.com/absolutely-unique-christmas-traditions-to-start-with-your-family/)
 - [gifts for high school graduate](https://parenting.allwomenstalk.com/great-high-school-graduate-gifts/)
-- [stocking gifts for teenage girls](https://parenting.allwomenstalk.com/unique-stocking-stuffer-ideas-for-teenage-girls/)
+- [coolest baby shower gifts](https://parenting.allwomenstalk.com/unique-baby-shower-gift-ideas-you-can-give/)
 - [do you bring a gift to a bachelorette party](https://wedding.allwomenstalk.com/cute-gifts-for-a-bachelorette-party/)
 - [cute cards to make for your boyfriend](https://funny.allwomenstalk.com/funny-cards-to-buy-for-a-loved-one/)
+- [stocking gifts for teenage girls](https://parenting.allwomenstalk.com/unique-stocking-stuffer-ideas-for-teenage-girls/)
 - [9 Essential Ways to Be a Good Parent ...](https://parenting.allwomenstalk.com/essential-ways-to-be-a-good-parent/)
 - [7 Tips on Coping with a Loved Ones Death ...](https://allwomenstalk.com/7-tips-on-coping-with-a-loved-ones-death/)
 

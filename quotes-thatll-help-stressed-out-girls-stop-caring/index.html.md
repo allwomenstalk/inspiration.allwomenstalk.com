@@ -82,15 +82,15 @@ The next time you're super stressed, read through these quotes to calm down. Do 
 
 ## Related Posts
 
-- [should i be ashamed of my body](https://inspiration.allwomenstalk.com/body-truths-no-woman-should-feel-bad-about/)
+- [college party girls](https://lifestyle.allwomenstalk.com/how-shy-girls-can-still-be-the-life-of-the-party/)
+- [how to spot an avoidant](https://love.allwomenstalk.com/attachment-styles-ways-to-spot-an-avoidant-for-attentive-girls/)
+- [gsoh](https://movies.allwomenstalk.com/girls-with-a-gsoh-will-love-these-netflix-comedies/)
 - [how to make a woman squad](https://lifestyle.allwomenstalk.com/commandments-every-fierce-female-squad-follows/)
+- [tinder tips for women](https://love.allwomenstalk.com/tinder-tips-for-women-who-have-no-time-for-b-s/)
+- [titan six flags g force](https://travel.allwomenstalk.com/roller-coasters-for-girls-who-live-for-the-thrill/)
+- [should i be ashamed of my body](https://inspiration.allwomenstalk.com/body-truths-no-woman-should-feel-bad-about/)
 - [twisted forest poland](https://travel.allwomenstalk.com/mystical-forests-where-youll-find-personal-zen/)
 - [when a girl is insecure about her body](https://beauty.allwomenstalk.com/ways-insecure-girls-can-feel-confident-with-their-body/)
-- [how to spot an avoidant](https://love.allwomenstalk.com/attachment-styles-ways-to-spot-an-avoidant-for-attentive-girls/)
-- [titan six flags g force](https://travel.allwomenstalk.com/roller-coasters-for-girls-who-live-for-the-thrill/)
-- [tinder tips for women](https://love.allwomenstalk.com/tinder-tips-for-women-who-have-no-time-for-b-s/)
-- [gsoh](https://movies.allwomenstalk.com/girls-with-a-gsoh-will-love-these-netflix-comedies/)
-- [college party girls](https://lifestyle.allwomenstalk.com/how-shy-girls-can-still-be-the-life-of-the-party/)
 - [virginity eye](https://love.allwomenstalk.com/tips-for-women-who-wish-they-werent-virgins/)
 - [7 Reasons to Stop Being a Mean Girl ...](https://inspiration.allwomenstalk.com/reasons-to-stop-being-a-mean-girl/)
 - [7 Reasons to Stop Being so Hard on Yourself ...](https://inspiration.allwomenstalk.com/reasons-to-stop-being-so-hard-on-yourself/)

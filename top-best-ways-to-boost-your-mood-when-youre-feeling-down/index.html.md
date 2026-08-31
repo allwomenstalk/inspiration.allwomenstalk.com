@@ -32,15 +32,15 @@ Writing down your feelings and thoughts is the best way to stop overthinking all
 
 ## Related Posts
 
-- [5 Inspiring Ways to Manage Your Depression ...](https://health.allwomenstalk.com/inspiring-ways-to-manage-your-depression/)
-- [10 Natural Ways to Promote Endorphin Release ...](https://health.allwomenstalk.com/natural-ways-to-promote-endorphin-release/)
-- [8 Brilliant Ways to De-Stress That Don't Involve M...](https://health.allwomenstalk.com/brilliant-ways-to-de-stress-that-dont-involve-meditation/)
-- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
-- [Things You Can do Now for a Stress-less Christmas ...](https://lifestyle.allwomenstalk.com/things-you-can-do-now-for-a-stress-less-christmas/)
 - [self care acts](https://health.allwomenstalk.com/acts-of-self-care-you-can-do-in-5-minutes-or-less/)
-- [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
+- [10 Natural Ways to Promote Endorphin Release ...](https://health.allwomenstalk.com/natural-ways-to-promote-endorphin-release/)
 - [goodbye mondays](https://inspiration.allwomenstalk.com/ways-to-say-goodbye-to-the-monday-morning-blues/)
+- [3 Awesome Ways to Heal Your Energy ...](https://inspiration.allwomenstalk.com/awesome-ways-to-heal-your-energy/)
 - [12 Exceptional Tips for Staying Calm at Exam Time ...](https://lifestyle.allwomenstalk.com/exceptional-tips-for-staying-calm-at-exam-time/)
+- [Things You Can do Now for a Stress-less Christmas ...](https://lifestyle.allwomenstalk.com/things-you-can-do-now-for-a-stress-less-christmas/)
+- [8 Brilliant Ways to De-Stress That Don't Involve M...](https://health.allwomenstalk.com/brilliant-ways-to-de-stress-that-dont-involve-meditation/)
+- [5 Ways to Control Your Anger ...](https://inspiration.allwomenstalk.com/ways-to-control-your-anger/)
+- [5 Inspiring Ways to Manage Your Depression ...](https://health.allwomenstalk.com/inspiring-ways-to-manage-your-depression/)
 - [5 Awesome Ways to Kick Anxiety Now ⏰ ...](https://health.allwomenstalk.com/awesome-ways-to-kick-anxiety-now/)
 - [10 Ways to Cheer Yourself up ...](https://allwomenstalk.com/10-ways-to-cheer-yourself-up/)
 - [8 Simple but Effective Ways to Lift Your Spirits ....](https://health.allwomenstalk.com/simple-but-effective-ways-to-lift-your-spirits/)
