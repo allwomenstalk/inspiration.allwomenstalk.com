@@ -3,7 +3,7 @@ title: "7 Shortcuts You Will Regret Taking in Life ..."
 description: "Leaving Everything to Chance; Taking the Easiest Route Possible; Following the Crowd; Procrastination; Keeping Quiet when You Should Speak up; More ..."
 url: "https://inspiration.allwomenstalk.com/shortcuts-you-will-regret-taking-in-life/"
 category: "inspiration"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Shortcuts You Will Regret Taking in Life ...
@@ -46,16 +46,16 @@ Just like Marc Chernoff said “Getting where you want to go in life is not abou
 
 ## Related Posts
 
-- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
 - [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
-- [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
-- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
-- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
-- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
-- [why do people bark at emo's](https://movies.allwomenstalk.com/things-people-do-wrong-in-horror-movies-when-trying-to-survive/)
-- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
 - [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
+- [why do people bark at emo's](https://movies.allwomenstalk.com/things-people-do-wrong-in-horror-movies-when-trying-to-survive/)
+- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
+- [things to not do while on your period](https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/)
+- [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
+- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
+- [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
 - [relationship no nos](https://love.allwomenstalk.com/online-dating-no-nos-to-stop-doing-right-now/)
+- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
 - [7 Things You Should Not Take for Granted ...](https://health.allwomenstalk.com/things-you-should-not-take-for-granted/)
 - [5 Things You Want to Avoid ...](https://allwomenstalk.com/5-things-you-want-to-avoid/)
 
