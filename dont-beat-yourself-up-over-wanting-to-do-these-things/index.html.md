@@ -3,7 +3,7 @@ title: "Don't Beat Yourself up over Wanting to do These Things ..."
 description: "Ignoring a Phone Call; Saying No; Putting Yourself First; Staying in on a Weekend; Not Checking Your Email; More ..."
 url: "https://inspiration.allwomenstalk.com/dont-beat-yourself-up-over-wanting-to-do-these-things/"
 category: "inspiration"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # Don't Beat Yourself up over Wanting to do These Things ...
@@ -117,15 +117,15 @@ So, there you have it, these are all of the things I am officially not apologizi
 ## Related Posts
 
 - [berable](https://lifestyle.allwomenstalk.com/subscriptions-to-have-that-will-make-your-life-infinitely-more-bearable/)
-- [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
-- [growing up in a small town](https://lifestyle.allwomenstalk.com/things-you-learn-growing-up-in-a-small-town/)
-- [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
-- [flaws in a woman](https://inspiration.allwomenstalk.com/personal-flaws-you-should-learn-to-embrace-because-they-arent-exactly-flaws/)
 - [what heartbreak feels like](https://love.allwomenstalk.com/this-is-what-heartbreak-really-feels-like/)
-- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
+- [roles in friendships](https://lifestyle.allwomenstalk.com/types-of-friends-and-their-characteristics/)
 - [things you have to wait for in life](https://inspiration.allwomenstalk.com/superb-things-you-dont-have-to-wait-until-youre-older-to-do-in-life/)
-- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
+- [real friends and fake friends quotes](https://lifestyle.allwomenstalk.com/the-differences-between-real-friends-and-fake-friends/)
 - [you won't regret it no no](https://inspiration.allwomenstalk.com/choices-to-make-in-life-that-you-wont-regret-10-years-from-now/)
+- [flaws in a woman](https://inspiration.allwomenstalk.com/personal-flaws-you-should-learn-to-embrace-because-they-arent-exactly-flaws/)
+- [growing up in a small town](https://lifestyle.allwomenstalk.com/things-you-learn-growing-up-in-a-small-town/)
+- [grandparents treating grandchildren differently qu...](https://parenting.allwomenstalk.com/ways-our-grandparents-are-making-our-lives-better/)
+- [money lies you might be telling yourself](https://inspiration.allwomenstalk.com/subtle-lies-we-tell-ourselves-that-are-defeating-us-in-life/)
 - [8 Reasons Not to Feel Bad about Feeling Bad …](https://allwomenstalk.com/reasons-not-to-feel-bad-about-feeling-bad/)
 - [7 Reasons to Feel Good about Yourself ...](https://health.allwomenstalk.com/reasons-to-feel-good-about-yourself/)
 
