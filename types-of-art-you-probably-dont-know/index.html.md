@@ -3,7 +3,7 @@ title: "7 Types of Art You Probably Don't Know ..."
 description: "Matchstick Art; Tin Foil Art; Scratchboard Art; Sticky Note Art; Miniature Pencil Art; More ..."
 url: "https://inspiration.allwomenstalk.com/types-of-art-you-probably-dont-know/"
 category: "inspiration"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 7 Types of Art You Probably Don't Know ...
@@ -56,14 +56,14 @@ I’m sure that by now you really want to go out and try some of these interesti
 
 ## Related Posts
 
-- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
 - [fun facts about women's suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
-- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
-- [mulan real story ending](https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/)
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
 - [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
+- [mulan real story ending](https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/)
+- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
+- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
+- [types of creation myth](https://books.allwomenstalk.com/creation-myths-from-around-the-world/)
 - [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
 - [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
 - [7 Foods That You Didn't Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
