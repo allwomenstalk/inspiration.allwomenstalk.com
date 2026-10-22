@@ -3,7 +3,7 @@ title: "52 Vintage Dishes to Inspire Your Next Thrift Store Trip ..."
 description: "Scalloped Pyrex; Hobnail; Baking Dishes; Honey Bee; Mix and Match; More ..."
 url: "https://inspiration.allwomenstalk.com/vintage-dishes-to-inspire-your-next-thrift-store-trip/"
 category: "inspiration"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 52 Vintage Dishes to Inspire Your Next Thrift Store Trip ...
@@ -368,16 +368,16 @@ Do you have any vintage dishes? What's your favorite pattern on old stuff? I lov
 
 ## Related Posts
 
-- [microwave hacks](https://food.allwomenstalk.com/ways-to-make-microwave-food-taste-better/)
-- [cooking with rachel](https://food.allwomenstalk.com/reasons-to-love-rachel-khoo-and-follow-her-recipes/)
-- [dinners to make with bacon](https://food.allwomenstalk.com/insanely-delicious-bacon-dishes-for-the-bacon-obsessed/)
-- [mexican food rezept](https://food.allwomenstalk.com/delicious-mexican-food-dishes-youre-going-to-love/)
-- [oatmeal bath without bathtub](https://diy.allwomenstalk.com/surprising-ways-you-can-use-oatmeal/)
-- [oxeye daises](https://food.allwomenstalk.com/edible-flowers-that-will-make-your-meals-memorable/)
-- [staples hours](https://food.allwomenstalk.com/vegan-baking-staples-to-have-on-hand-at-all-times/)
-- [best pickle combos](https://food.allwomenstalk.com/awesome-things-to-do-with-pickles-that-will-make-your-mouth-water/)
 - [hot dog pizza](https://food.allwomenstalk.com/absolutely-scrumptious-hot-dog-ideas-to-make-this-humble-food-so-much-tastier/)
+- [staples hours](https://food.allwomenstalk.com/vegan-baking-staples-to-have-on-hand-at-all-times/)
+- [oatmeal bath without bathtub](https://diy.allwomenstalk.com/surprising-ways-you-can-use-oatmeal/)
+- [dinners to make with bacon](https://food.allwomenstalk.com/insanely-delicious-bacon-dishes-for-the-bacon-obsessed/)
+- [cooking with rachel](https://food.allwomenstalk.com/reasons-to-love-rachel-khoo-and-follow-her-recipes/)
+- [oxeye daises](https://food.allwomenstalk.com/edible-flowers-that-will-make-your-meals-memorable/)
+- [mexican food rezept](https://food.allwomenstalk.com/delicious-mexican-food-dishes-youre-going-to-love/)
+- [best pickle combos](https://food.allwomenstalk.com/awesome-things-to-do-with-pickles-that-will-make-your-mouth-water/)
 - [misty mountain health retreat recipes](https://food.allwomenstalk.com/summertime-tomato-salad-recipes-that-leave-you-wanting-more/)
+- [microwave hacks](https://food.allwomenstalk.com/ways-to-make-microwave-food-taste-better/)
 - [10 Lovely DIY Decorative Plates ...](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
 - [7 Delightful Dollar Store Crafts to Try Now ...](https://diy.allwomenstalk.com/dollar-store-crafts/)
 
