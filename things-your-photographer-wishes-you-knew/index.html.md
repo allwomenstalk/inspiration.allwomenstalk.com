@@ -1,9 +1,9 @@
 ---
 title: "11 Things Your Photographer Wishes You Knew 🤔 ..."
-description: "You Are Not \"too Fat\" to Be Photographed; I Heart Photoshop; October is Hell; Word of Mouth is Everything; Trust Me: You Want the Golden Hour; More ..."
+description: "You Are Not \"too Fat\" to Be Photographed; I Heart Photoshop; October is Hell; Word of Mouth is Everything; Trust Me: You Want the Golden Hour"
 url: "https://inspiration.allwomenstalk.com/things-your-photographer-wishes-you-knew/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 11 Things Your Photographer Wishes You Knew 🤔 ...
@@ -80,16 +80,16 @@ One last thing: yes, I remember every single shoot, and yes, I'm grateful for ea
 
 ## Related Posts
 
+- [hats on snakes](https://funny.allwomenstalk.com/photos-of-snakes-wearing-hats-will-make-you-love-them/)
+- [infographic about dance](https://lifestyle.allwomenstalk.com/easy-to-follow-infographics-thatll-make-you-a-dancing-diva/)
+- [annie leibovitz pirelli calendar](https://lifestyle.allwomenstalk.com/if-you-need-some-self-love-you-must-see-pirelli-calendar/)
+- [where should your eyes look when taking a selfie](https://beauty.allwomenstalk.com/selfie-mistakes-that-are-ruining-your-pictures/)
+- [halarious gifs](https://funny.allwomenstalk.com/feeling-low-these-hilarious-gifs-will-lift-your-spirits/)
+- [hysterical pictures](https://lifestyle.allwomenstalk.com/hysterical-holiday-photos-thatll-have-you-cracking-up/)
+- [what to photograph](https://diy.allwomenstalk.com/tips-for-taking-the-best-photographs-ever/)
 - [nikki dream instagram](https://beauty.allwomenstalk.com/see-the-instagram-makeup-that-wowed-us-in/)
 - [celeb nation photos](https://celebs.allwomenstalk.com/these-fab-celeb-photos-will-inspire-your-own-holiday-cards/)
-- [what to photograph](https://diy.allwomenstalk.com/tips-for-taking-the-best-photographs-ever/)
-- [halarious gifs](https://funny.allwomenstalk.com/feeling-low-these-hilarious-gifs-will-lift-your-spirits/)
-- [annie leibovitz pirelli calendar](https://lifestyle.allwomenstalk.com/if-you-need-some-self-love-you-must-see-pirelli-calendar/)
-- [infographic about dance](https://lifestyle.allwomenstalk.com/easy-to-follow-infographics-thatll-make-you-a-dancing-diva/)
 - [snap chat photos](https://apps.allwomenstalk.com/snapchat-tips-tricks-and-hacks-for-your-best-photos-yet/)
-- [hysterical pictures](https://lifestyle.allwomenstalk.com/hysterical-holiday-photos-thatll-have-you-cracking-up/)
-- [where should your eyes look when taking a selfie](https://beauty.allwomenstalk.com/selfie-mistakes-that-are-ruining-your-pictures/)
-- [hats on snakes](https://funny.allwomenstalk.com/photos-of-snakes-wearing-hats-will-make-you-love-them/)
 - [9 Things You Should Keep Secret ...](https://lifestyle.allwomenstalk.com/things-you-should-keep-secret/)
 - [5 Interesting Things to Know...](https://allwomenstalk.com/5-interesting-things-to-know/)
 

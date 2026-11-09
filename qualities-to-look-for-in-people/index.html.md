@@ -1,9 +1,9 @@
 ---
 title: "7 Good Qualities to Look for in People (Including Yourself)"
-description: "Gratitude; Empathy; Self-Esteem; Humility; Contentment; More ..."
+description: "Gratitude; Empathy; Self-Esteem; Humility; Contentment"
 url: "https://inspiration.allwomenstalk.com/qualities-to-look-for-in-people/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 7 Good Qualities to Look for in People \(Including Yourself\)
@@ -69,15 +69,15 @@ Making a conscious effort to show appreciation for the people and opportunities 
 ## Related Posts
 
 - [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
-- [skills all adults should have](https://lifestyle.allwomenstalk.com/essential-social-skills-that-all-adults-should-have/)
 - [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
-- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
-- [types of people in a class](https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/)
-- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
 - [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
-- [social media person](https://apps.allwomenstalk.com/great-ways-social-media-makes-you-a-better-person/)
-- [erin hanson human](https://inspiration.allwomenstalk.com/when-sadness-finds-you-by-erin-hanson/)
+- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
+- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
 - [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
+- [types of people in a class](https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/)
+- [erin hanson human](https://inspiration.allwomenstalk.com/when-sadness-finds-you-by-erin-hanson/)
+- [social media person](https://apps.allwomenstalk.com/great-ways-social-media-makes-you-a-better-person/)
+- [skills all adults should have](https://lifestyle.allwomenstalk.com/essential-social-skills-that-all-adults-should-have/)
 - [8 Ways to Make Yourself a Better Person ...](https://lifestyle.allwomenstalk.com/ways-to-make-yourself-a-better-person/)
 - [5 Ways to Be the Best Version of Yourself ...](https://allwomenstalk.com/ways-to-be-the-best-version-of-yourself/)
 

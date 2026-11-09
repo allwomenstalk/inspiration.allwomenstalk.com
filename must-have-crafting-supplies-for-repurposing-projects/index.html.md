@@ -1,9 +1,9 @@
 ---
 title: "7 Must-Have Crafting Supplies for Repurposing Projects ..."
-description: "Mod Podge; The X-Acto Knife; A Crafting Brush Set; A Hot Glue Gun; Acrylic Sealer; More ..."
+description: "Mod Podge; The X-Acto Knife; A Crafting Brush Set; A Hot Glue Gun; Acrylic Sealer"
 url: "https://inspiration.allwomenstalk.com/must-have-crafting-supplies-for-repurposing-projects/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 7 Must\-Have Crafting Supplies for Repurposing Projects ...

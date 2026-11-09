@@ -1,9 +1,9 @@
 ---
 title: "Savvy Ways to Deal with That Self-Absorbed Person in Your Life ..."
-description: "Realize Their Limitations; Adjust Your Expectations; Put Some Distance between You; Just Let Them Talk; Get with Some Other Friends; More ..."
+description: "Realize Their Limitations; Adjust Your Expectations; Put Some Distance between You; Just Let Them Talk; Get with Some Other Friends"
 url: "https://inspiration.allwomenstalk.com/steps-to-dealing-with-a-self-absorbed-person/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Savvy Ways to Deal with That Self\-Absorbed Person in Your Life ...
@@ -43,15 +43,15 @@ Do you have a self-absorbed person in your life? How do you deal? Please share y
 ## Related Posts
 
 - [song for sister birthday](https://lifestyle.allwomenstalk.com/things-you-can-do-to-have-a-closer-relationship-with-your-sister/)
+- [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
+- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
+- [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
 - [socially awkward situations](https://lifestyle.allwomenstalk.com/socially-awkward-situations-everyone-goes-through-and-how-to-handle-them/)
 - [quotes about friends hurting you](https://inspiration.allwomenstalk.com/reasons-to-be-kind-to-those-who-have-hurt-you/)
-- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
-- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
 - [how to tell a lender no](https://money.allwomenstalk.com/ways-to-politely-turn-down-requests-for-money/)
-- [friends with coworkers](https://inspiration.allwomenstalk.com/tips-on-how-to-be-good-friends-with-your-co-workers/)
 - [introvert friends](https://lifestyle.allwomenstalk.com/ways-to-deal-with-an-introvert-friend/)
-- [why am i so mean to my boyfriend](https://love.allwomenstalk.com/helpful-tips-on-how-to-deal-with-a-mean-boyfriend/)
-- [hanging with friends](https://money.allwomenstalk.com/tips-for-hanging-out-with-rich-friends/)
+- [one who brags](https://inspiration.allwomenstalk.com/ways-to-deal-with-someone-who-brags/)
+- [how to deal with a backstabbing friend](https://inspiration.allwomenstalk.com/tips-on-how-to-deal-with-a-backstabbing-friend/)
 - [Clever Ways to Survive an Awkward Situation ...](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
 - [Dealing with Passive, Aggressive Family, Friends a...](https://inspiration.allwomenstalk.com/dealing-with-passive-aggressive-family-friends-and-others/)
 

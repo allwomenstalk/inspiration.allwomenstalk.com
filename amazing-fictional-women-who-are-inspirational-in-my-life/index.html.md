@@ -1,9 +1,9 @@
 ---
 title: "9 Amazing Fictional Women Who Are Inspirational in My Life ..."
-description: "River Song - \"Doctor Who\"; Ethel Mertz - “I Love Lucy”; Lucy Ricardo - “I Love Lucy”; Peggy Olson - “Mad Men”; Doctor 'Bones' Brennan - \"Bones\"; More ..."
+description: "River Song - \"Doctor Who\"; Ethel Mertz - “I Love Lucy”; Lucy Ricardo - “I Love Lucy”; Peggy Olson - “Mad Men”; Doctor 'Bones' Brennan - \"Bones\""
 url: "https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 9 Amazing Fictional Women Who Are Inspirational in My Life ...
@@ -68,16 +68,16 @@ The biggest pet peeve that I have is that some shows seem to cast female charact
 
 ## Related Posts
 
-- [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
-- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
-- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
-- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
-- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
-- [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
-- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
-- [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
 - [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
+- [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
+- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
+- [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
+- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
+- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
+- [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
+- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 

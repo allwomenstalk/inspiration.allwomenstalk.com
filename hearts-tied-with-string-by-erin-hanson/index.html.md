@@ -1,9 +1,9 @@
 ---
 title: "Hearts Tied with String by Erin Hanson ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Hearts Tied with String by Erin Hanson When we were young we tied our heartstrings To a helium balloon, In hopes, they'd carry us away To carve our names upon…"
 url: "https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Hearts Tied with String by Erin Hanson ...
@@ -45,16 +45,16 @@ When we were young we are full of wonders. We love to go out at night to see the
 
 ## Related Posts
 
-- [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
-- [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
-- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
 - [Let's Make Love (and Listen to Junior Boys) ...](https://allwomenstalk.com/lets-make-love-and-listen-to-junior-boys/)
-- [hip hop diss songs](https://music.allwomenstalk.com/top-diss-tracks-in-hip-hop-history/)
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
 - [funny, lip sync ideas for groups](https://music.allwomenstalk.com/best-lip-sync-songs-for-getting-your-jam-on/)
-- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
+- [hip hop diss songs](https://music.allwomenstalk.com/top-diss-tracks-in-hip-hop-history/)
 - [Headbangin' Mario Tunes](https://allwomenstalk.com/headbangin-mario-tunes/)
+- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
+- [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
 - [is christina aguilera single](https://music.allwomenstalk.com/the-best-christina-aguilera-singles/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [Music to Our Eyes ...](https://allwomenstalk.com/music-to-our-eyes/)
 

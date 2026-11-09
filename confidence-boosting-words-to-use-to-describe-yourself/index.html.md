@@ -1,9 +1,9 @@
 ---
 title: "Confidence Boosting Words to Use when Describing Yourself without Looking Cocky ..."
-description: "Capable; Inspiring; Brave; Brilliant; Charming; More ..."
+description: "Capable; Inspiring; Brave; Brilliant; Charming"
 url: "https://inspiration.allwomenstalk.com/confidence-boosting-words-to-use-to-describe-yourself/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Confidence Boosting Words to Use when Describing Yourself without Looking Cocky ...
@@ -42,15 +42,15 @@ Every single one of these words describe you, whether you realize it or not. Wha
 
 ## Related Posts
 
-- [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
-- [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
 - [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
+- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
+- [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
+- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
+- [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
+- [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
+- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
 - [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
 - [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
-- [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
-- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
-- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
-- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
 - [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
 - [8 Methods to Build Your Confidence ...](https://lifestyle.allwomenstalk.com/methods-to-build-your-confidence/)
 - [9 Ways to Wear Your Confidence ...](https://lifestyle.allwomenstalk.com/ways-to-wear-your-confidence/)

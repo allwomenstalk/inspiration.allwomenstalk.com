@@ -1,9 +1,9 @@
 ---
 title: "5 Ways to Know if a Nice Person is Fake ..."
-description: "Truly Nice People Supports Your Actions; They Love Your Quirks; Forgives You Eternally; They Keep in Touch; They Create Time for You; More ..."
+description: "Truly Nice People Supports Your Actions; They Love Your Quirks; Forgives You Eternally; They Keep in Touch; They Create Time for You"
 url: "https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/"
 category: "inspiration"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 5 Ways to Know if a Nice Person is Fake ...
@@ -59,14 +59,14 @@ Having one less fake friend in your life is better than a bunch of unreliable pe
 
 - [how to stop being reserved](https://inspiration.allwomenstalk.com/how-to-stop-being-shy-and-learn-to-communicate-with-confidence/)
 - [turtle syndrome](https://inspiration.allwomenstalk.com/how-to-handle-turtling-syndrome/)
-- [8 Tips for Finding an Alternative Therapist ...](https://allwomenstalk.com/8-tips-for-finding-an-alternative-therapist/)
-- [8 Ways to Spot a New BFF ...](https://allwomenstalk.com/8-ways-to-spot-a-new-bff/)
-- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
-- [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
-- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
 - [7 Ways to Deal with His Overprotective Mum ...](https://7fun.net/7-ways-to-deal-with-his-overprotective-mum/)
-- [how to prevent shyness](https://allwomenstalk.com/10-ways-to-overcome-shyness/)
+- [8 Ways to Spot a New BFF ...](https://allwomenstalk.com/8-ways-to-spot-a-new-bff/)
+- [8 Tips for Finding an Alternative Therapist ...](https://allwomenstalk.com/8-tips-for-finding-an-alternative-therapist/)
+- [name to call husband](https://love.allwomenstalk.com/what-to-do-when-your-husband-calls-you-names/)
 - [what to say when someone is missing a loved one](https://allwomenstalk.com/how-to-make-someone-feel-better/)
+- [how to prevent shyness](https://allwomenstalk.com/10-ways-to-overcome-shyness/)
+- [time to call off the engagement](https://love.allwomenstalk.com/how-to-call-off-an-engagement-with-class/)
+- [10 Ways to Deal with a Jealous Boyfriend](https://allwomenstalk.com/10-ways-to-deal-with-a-jealous-boyfriend/)
 - [5 Ways to Identify a Vampire ...](https://twilight.allwomenstalk.com/5-ways-to-identify-a-vampire/)
 - [10 Ways to Spot a Frenemy ...](https://allwomenstalk.com/10-ways-to-spot-a-frenemy/)
 
