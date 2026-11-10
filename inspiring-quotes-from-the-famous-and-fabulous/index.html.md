@@ -3,7 +3,7 @@ title: "7 Inspiring Quotes from the Famous and Fabulous ..."
 description: "“I'm Selfish, Impatient and a Little Insecure. I Make Mistakes, I Am out of Control and at Times Hard to Handle. but if You Can't Handle Me at My Worst, then…"
 url: "https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-famous-and-fabulous/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # 7 Inspiring Quotes from the Famous and Fabulous ...
@@ -56,16 +56,16 @@ Marlene Dietrich said that the reasons she loved quotations, was because "it is 
 
 ## Related Posts
 
+- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
 - [knowledgeable quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-education-to-learn-from/)
 - [single inspirational quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-to-put-up-in-your-home-to-motivate-you-every-single-day/)
-- [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
 - [lost life quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-lost-that-you-will-love/)
 - [meaningful sherlock quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-bbcs-sherlock/)
-- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
 - [you can be the best you can be](https://inspiration.allwomenstalk.com/inspirational-quotes-to-be-the-best-you-can-be/)
-- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
-- [gandhi simplicity quotes](https://inspiration.allwomenstalk.com/quotes-by-gandhi-the-world-would-do-well-to-remember/)
+- [i hope you live](https://inspiration.allwomenstalk.com/uplifting-quotes-to-make-you-feel-better/)
+- [best quotes from new girl](https://inspiration.allwomenstalk.com/inspiring-quotes-from-new-girl-about-life/)
 - [don't be shy quotes](https://lifestyle.allwomenstalk.com/inspirational-quotes-for-shy-people-to-help-overcome-anxieties/)
+- [lines from disney movies](https://inspiration.allwomenstalk.com/memorable-quotes-from-disney-movies-that-we-love/)
 - [The 7 Most Inspiring Women Celebrities ...](https://allwomenstalk.com/the-7-most-inspiring-women-celebrities/)
 - [20 Most Amazing Quotes for Inspiration ...](https://lifestyle.allwomenstalk.com/most-amazing-quotes-for-inspiration/)
 

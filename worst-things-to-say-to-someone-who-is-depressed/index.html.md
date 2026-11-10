@@ -3,7 +3,7 @@ title: "7 Worst Things to Say to Someone Who is Depressed ..."
 description: "“There Are so Many Things You Should Be Happy about”; “There Are People Who Feel Even Worse then You do”; “It’s All in Your Head!”"
 url: "https://inspiration.allwomenstalk.com/worst-things-to-say-to-someone-who-is-depressed/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # 7 Worst Things to Say to Someone Who is Depressed ...
@@ -46,16 +46,16 @@ _psychcentral.com_
 
 ## Related Posts
 
-- [bad things to do to others](https://lifestyle.allwomenstalk.com/worst-things-people-do-when-trying-to-help-others/)
-- [what not to do at school](https://teen.allwomenstalk.com/things-to-avoid-doing-in-high-school-under-all-circumstances/)
-- [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
-- [my boyfriend reminds me of my brother](https://love.allwomenstalk.com/things-guys-hate-to-hear-from-their-girlfriends/)
-- [kissing mistakes](https://love.allwomenstalk.com/mistakes-people-can-make-while-kissing/)
-- [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
 - [9 Things That Piss off Your Photographer ...](https://lifestyle.allwomenstalk.com/things-that-piss-off-your-photographer/)
+- [results oriented resume](https://lifestyle.allwomenstalk.com/words-to-eliminate-from-your-resume/)
+- [happiness is not something far away and unattainab...](https://inspiration.allwomenstalk.com/common-beliefs-of-unhappy-people-that-you-should-stay-far-away-from/)
+- [movies about flirting](https://love.allwomenstalk.com/worst-flirting-moves-that-just-dont-work-in-real-life/)
+- [what not to do at school](https://teen.allwomenstalk.com/things-to-avoid-doing-in-high-school-under-all-circumstances/)
 - [worst black friday](https://money.allwomenstalk.com/worst-things-to-buy-on-black-friday/)
 - [piercing vocabulary](https://lifestyle.allwomenstalk.com/words-you-should-erase-from-your-vocabulary/)
-- [results oriented resume](https://lifestyle.allwomenstalk.com/words-to-eliminate-from-your-resume/)
+- [bad things to do to others](https://lifestyle.allwomenstalk.com/worst-things-people-do-when-trying-to-help-others/)
+- [my boyfriend reminds me of my brother](https://love.allwomenstalk.com/things-guys-hate-to-hear-from-their-girlfriends/)
+- [kissing mistakes](https://love.allwomenstalk.com/mistakes-people-can-make-while-kissing/)
 - [12 Things You Can Say to Someone Suicidal or Depre...](https://health.allwomenstalk.com/12-things-you-can-say-to-someone-suicidal-or-depressed/)
 - [7 Inspirational Things from Me to Those Feeling Su...](https://allwomenstalk.com/7-inspirational-things-from-me-to-those-feeling-suicidal/)
 

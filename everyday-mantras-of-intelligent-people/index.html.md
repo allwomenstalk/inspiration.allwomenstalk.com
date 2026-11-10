@@ -3,7 +3,7 @@ title: "Everyday Mantras of Intelligent 🤓 People ..."
 description: "If No One Wants to do It, then I Will; That Wasn’t so Bad; I Can’t do It All Today, but I Will Make a Start; Fewer Words, More Action!"
 url: "https://inspiration.allwomenstalk.com/everyday-mantras-of-intelligent-people/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # Everyday Mantras of Intelligent 🤓 People ...
@@ -56,16 +56,16 @@ My mantra is “it may not be perfect but it suits me fine”. It’s taken me m
 
 ## Related Posts
 
-- [adultery book quotes](https://inspiration.allwomenstalk.com/quotes-from-paulo-coelho/)
-- [ronald reagan quotes marines](https://lifestyle.allwomenstalk.com/phenomenal-memorial-day-quotes-that-will-remind-you-what-the-holiday-is-really-about/)
-- [i'm walking away quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-for-motivation/)
-- [don t worry about things you can t control quotes](https://inspiration.allwomenstalk.com/quotes-about-worrying/)
-- [quotes on freedom and independence](https://lifestyle.allwomenstalk.com/quotes-to-give-you-all-the-feels-of-freedom-this-independence-day/)
 - [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
-- [gratitude quotes from celebrities](https://celebs.allwomenstalk.com/importance-of-gratitude/)
 - [redhead gentle cleansing](https://inspiration.allwomenstalk.com/how-to-embrace-being-a-redhead/)
-- [marilyn monroe body quotes](https://celebs.allwomenstalk.com/quotes-from-marilyn-monroe/)
+- [don t worry about things you can t control quotes](https://inspiration.allwomenstalk.com/quotes-about-worrying/)
+- [adultery book quotes](https://inspiration.allwomenstalk.com/quotes-from-paulo-coelho/)
+- [i'm walking away quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-for-motivation/)
+- [gratitude quotes from celebrities](https://celebs.allwomenstalk.com/importance-of-gratitude/)
+- [quotes on freedom and independence](https://lifestyle.allwomenstalk.com/quotes-to-give-you-all-the-feels-of-freedom-this-independence-day/)
 - [make it through quotes](https://inspiration.allwomenstalk.com/inspiration-quotes-to-get-you-through-it-all/)
+- [ronald reagan quotes marines](https://lifestyle.allwomenstalk.com/phenomenal-memorial-day-quotes-that-will-remind-you-what-the-holiday-is-really-about/)
+- [marilyn monroe body quotes](https://celebs.allwomenstalk.com/quotes-from-marilyn-monroe/)
 - [7 Helpful Mantras to Get You through Rough Times ....](https://inspiration.allwomenstalk.com/helpful-mantras-to-get-you-through-rough-times/)
 - [Learn to Humble Yourself for a Better Life ...](https://inspiration.allwomenstalk.com/very-useful-tips-on-how-to-be-humble-that-you-should-consider/)
 

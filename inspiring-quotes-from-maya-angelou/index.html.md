@@ -3,7 +3,7 @@ title: "Inspiring Maya Angelou Quotes for the Modern Woman ..."
 description: "I Am Grateful to Be a Woman. I Must Have Done Something Great in Another Life; I Got My Own Back"
 url: "https://inspiration.allwomenstalk.com/inspiring-quotes-from-maya-angelou/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # Inspiring Maya Angelou Quotes for the Modern Woman ...
@@ -40,16 +40,16 @@ It is up to you to take care of all areas of your life.
 
 ## Related Posts
 
-- [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
 - [erykah badu cakes](https://allwomenstalk.com/in-the-wise-words-of-erykah-badu-what-a-day-what-a-day/)
-- [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
-- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
-- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
 - [kaiser quotes](https://allwomenstalk.com/the-kaiser-of-quotable-quotes/)
+- [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
+- [Unleash Your Inner Warrior: Inspiring Nordic Tatto...](https://bodyart.allwomenstalk.com/nordic-tattoo-ideas/)
+- [things that are inspiring](https://allwomenstalk.com/8-things-that-really-inspire-me/)
 - [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
+- [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 - [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
 - [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
-- [5 Gray to Lift up Your Day...](https://allwomenstalk.com/5-gray-to-lift-up-your-day/)
+- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
 - [9 Interesting Quotes from Celebrities Who Support ...](https://celebs.allwomenstalk.com/quotes-from-celebrities-who-support-feminism/)
 - [7 Amazing and Inspirational Women That Every Girl ...](https://inspiration.allwomenstalk.com/amazing-and-inspirational-women-that-every-girl-can-look-up-to-in-todays-society/)
 

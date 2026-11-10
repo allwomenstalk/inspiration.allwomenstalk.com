@@ -3,7 +3,7 @@ title: "These Charitable Celebrity Couples Are All about Giving Back ..."
 description: "Brad Pitt & Angelina Jolie; Jay-z & Beyonce; Will & Jada Pinkett Smith; Ben Affleck & Jennifer Garner; Keith Urban & Nicole Kidman"
 url: "https://inspiration.allwomenstalk.com/these-charitable-celebrity-couples-are-all-about-giving-back/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # These Charitable Celebrity Couples Are All about Giving Back ...
@@ -48,16 +48,16 @@ Can you think of other charitable celebrity couples?
 
 ## Related Posts
 
+- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
+- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
+- [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
+- [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
 - [cameron diaz snoop high school](https://celebs.allwomenstalk.com/celebrities-who-went-to-high-school-together/)
+- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
 - [bromances](https://celebs.allwomenstalk.com/of-the-cutest-celebrity-bromances-of-all-time/)
 - [julianna hough plastic surgery](https://celebs.allwomenstalk.com/whoa-celebrity-doppelgangers-from-different-generations/)
-- [celebrities just like us](https://celebs.allwomenstalk.com/just-like-us-celebrity-couples-who-love-a-little-pda/)
 - [celebrities photobombing](https://celebs.allwomenstalk.com/celebrity-photobombs-thatll-make-you-lol/)
-- [most influential teenagers](https://celebs.allwomenstalk.com/in-case-you-missed-it-these-are-times-most-influential-teens/)
-- [celebrities with weird kid names](https://celebs.allwomenstalk.com/celebrities-explain-their-reasoning-behind-their-strange-baby-names/)
-- [barrie james o'neill height](https://celebs.allwomenstalk.com/celebrity-couples-who-split-in/)
 - [selena gomez no makeup selfie](https://celebs.allwomenstalk.com/what-do-these-celebrities-look-like-without-makeup/)
-- [florence welch natural hair color](https://hair.allwomenstalk.com/these-fiery-celeb-redheads-will-finally-convince-you-to-take-the-plunge/)
 - [The Charity Wedding: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 

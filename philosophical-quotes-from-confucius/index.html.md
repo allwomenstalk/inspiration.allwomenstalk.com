@@ -3,7 +3,7 @@ title: "7 Philosophical Quotes from Confucius ..."
 description: "Falling and Rising; Complications; Knowledge; Give It Your All; Focus on the Good"
 url: "https://inspiration.allwomenstalk.com/philosophical-quotes-from-confucius/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # 7 Philosophical Quotes from Confucius ...
@@ -59,15 +59,15 @@ The wisdom of Confucius has lasted for thousands of years. His teachings are tim
 ## Related Posts
 
 - [quotes from ellen degeneres](https://funny.allwomenstalk.com/hilarious-quotes-from-ellen-degeneres-about-life/)
-- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
-- [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
 - [emerson quote](https://inspiration.allwomenstalk.com/quotes-from-ralph-waldo-emerson-that-will-change-the-way-you-think/)
-- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
+- [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
 - [happiness thought of the day](https://inspiration.allwomenstalk.com/quotes-about-happiness-that-will-drive-away-your-blues/)
-- [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
+- [queen b quotes](https://movies.allwomenstalk.com/very-memorable-quotes-from-blair-waldorf/)
+- [everyone has flaws but](https://beauty.allwomenstalk.com/quotes-about-beauty-to-stick-to-your-mirror/)
 - [positive life quotes love](https://love.allwomenstalk.com/positive-quotes-for-your-love-life/)
 - [insecure qoutes](https://teen.allwomenstalk.com/quotes-about-insecurity-for-teens/)
-- [famous thoreau quotes](https://inspiration.allwomenstalk.com/contemplative-quotes-from-henry-david-thoreau-that-are-thought-provoking/)
+- [groucho marx quotes about life](https://funny.allwomenstalk.com/sharp-witted-quotes-from-groucho-marx/)
+- [real quotes about love](https://love.allwomenstalk.com/realistic-quotes-about-love/)
 - [7 of My Favorite Friendship Quotes ...](https://allwomenstalk.com/7-of-my-favorite-friendship-quotes/)
 - [7 TV Quotes about Friendship ...](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
 

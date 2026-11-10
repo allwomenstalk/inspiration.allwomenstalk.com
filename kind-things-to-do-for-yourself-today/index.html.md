@@ -3,7 +3,7 @@ title: "7 Kind Things to do for Yourself Today ..."
 description: "Slow down; Enjoy the Moment; Get Some Fresh Air; Cut Yourself Some Slack; Take a Break"
 url: "https://inspiration.allwomenstalk.com/kind-things-to-do-for-yourself-today/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # 7 Kind Things to do for Yourself Today ...
@@ -43,15 +43,15 @@ Being kind to ourselves is something almost all of us could work on doing better
 ## Related Posts
 
 - [positive word about yourself](https://inspiration.allwomenstalk.com/positive-words-to-describe-yourself-to-help-boost-your-self-confidence/)
+- [write any two ways of helping others](https://inspiration.allwomenstalk.com/amazing-ways-to-help-others-and-make-a-difference/)
 - [how to move on with life](https://inspiration.allwomenstalk.com/ways-to-move-on-and-create-a-better-life-for-yourself/)
-- [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
-- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
+- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [does wishes really come true](https://inspiration.allwomenstalk.com/ways-to-get-everything-you-have-ever-wanted/)
 - [being the hero](https://inspiration.allwomenstalk.com/inspiring-ways-to-become-a-hero-in-your-community/)
-- [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
-- [how do i get my life back](https://inspiration.allwomenstalk.com/ways-to-get-your-life-back-on-track/)
 - [vision artist](https://inspiration.allwomenstalk.com/ways-to-develop-your-artistic-vision/)
-- [write any two ways of helping others](https://inspiration.allwomenstalk.com/amazing-ways-to-help-others-and-make-a-difference/)
+- [how to be your own bestfriend](https://inspiration.allwomenstalk.com/awesome-ways-to-be-your-own-best-friend/)
+- [for this too shall pass bible verse](https://inspiration.allwomenstalk.com/lines-to-remember-to-live-a-good-life/)
+- [how do i be a better person](https://inspiration.allwomenstalk.com/amazing-ways-to-inspire-someone-to-become-a-better-person/)
 - [7 Ways to Feel Happy Right Now ...](https://allwomenstalk.com/7-ways-to-feel-happy-right-now/)
 - [7 Things to do on Your Day off ...](https://allwomenstalk.com/7-things-to-do-on-your-day-off/)
 

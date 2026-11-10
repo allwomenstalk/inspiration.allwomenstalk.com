@@ -3,7 +3,7 @@ title: "22 Totally Important Things for 20-Somethings to Remember when Life Hits
 description: "It’s Okay Not to Love Every Part of You...; Take Those Selfies; But Don't Forget about the Real Stuff Too"
 url: "https://inspiration.allwomenstalk.com/totally-important-things-for-20-somethings-to-remember-when-life-hits-hard/"
 category: "inspiration"
-last_updated: "2026-11-09"
+last_updated: "2026-11-10"
 ---
 
 # 22 Totally Important Things for 20\-Somethings to Remember when Life Hits Hard ...
@@ -146,16 +146,16 @@ What's your favorite mantra for when life hits hard? Did you agree with these li
 
 ## Related Posts
 
-- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
-- [what does clutter say about a person](https://lifestyle.allwomenstalk.com/what-your-hidden-clutter-says-about-your-personality/)
-- [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
-- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
 - [we must accept finite disappointment meaning](https://inspiration.allwomenstalk.com/things-truly-worth-hoping-for/)
+- [never regret falling in love quotes](https://inspiration.allwomenstalk.com/things-you-should-never-regret-in-life/)
 - [harsh cable tv](https://lifestyle.allwomenstalk.com/how-technology-has-taken-over-our-lives/)
-- [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
+- [female body language](https://inspiration.allwomenstalk.com/things-body-language-says-about-you/)
 - [teens psychology](https://teen.allwomenstalk.com/teen-psychology/)
-- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
 - [age is just a number cake](https://beauty.allwomenstalk.com/iconic-women-who-prove-that-age-is-just-a-number/)
+- [what does clutter say about a person](https://lifestyle.allwomenstalk.com/what-your-hidden-clutter-says-about-your-personality/)
+- [being only child](https://lifestyle.allwomenstalk.com/things-you-can-relate-to-if-youre-an-only-child/)
+- [relationship detachment](https://inspiration.allwomenstalk.com/the-relationship-between-detachment-and-success/)
+- [lessons learned from harry potter](https://movies.allwomenstalk.com/life-lessons-learned-from-harry-potter/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 - [8 Things Not to Worry about in Your Twenties ...](https://lifestyle.allwomenstalk.com/things-not-to-worry-about-in-your-twenties/)
 
